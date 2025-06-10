@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Walgreens, Authentic Brands, Kourtney Kardashian among those evaluating Rite Aid assets, sources say](https://finance.yahoo.com/news/walgreens-authentic-brands-kourtney-kardashian-172627561.html)
-- Jun 10 - [A 41-year-old longevity doctor says his 'biological age' is 24. He takes 3 supplements daily.](https://www.yahoo.com/lifestyle/41-old-longevity-doctor-says-121230754.html)
-- Jun 10 - [Trump military parade to bring days of road closures to DC](https://www.yahoo.com/news/trump-military-parade-bring-days-143836153.html)
-- Jun 10 - [Bill Gates Paid $38 Million To Buy An Entire Street In Palm Beach For Daughter's Equestrian Hobby — 'Gobbled Up Properties Like Pac-Man'](https://finance.yahoo.com/news/bill-gates-paid-38-million-140030699.html)
-- Jun 10 - [US, China talks will result in a 'shaky truce at best'](https://finance.yahoo.com/video/us-china-talks-result-shaky-135655854.html)
+- Jun 10 - [Police recover a stolen custom-built Telecaster guitar that belongs to Heart's Nancy Wilson](https://www.yahoo.com/entertainment/articles/police-recover-stolen-custom-built-192721993.html)
+- Jun 10 - [Why Apple's Updates Impress Users, Not Investors](https://finance.yahoo.com/video/why-apples-updates-impress-users-191119054.html)
+- Jun 10 - [R. Kelly’s Attorneys File for Immediate Release From Custody, Alleging Officials Solicited Inmate to Murder Him](https://www.yahoo.com/news/r-kelly-attorneys-file-immediate-185632970.html)
+- Jun 10 - [Montana Supreme Court declares 2021 abortion restrictions unconstitutional](https://www.yahoo.com/news/montana-supreme-court-declares-2021-184753769.html)
+- Jun 10 - [The ‘Gates of Hell’ Are Closing. That’s a Pretty Big Problem.](https://www.yahoo.com/news/gates-hell-closing-pretty-big-180000365.html)
 <!-- feed end -->
