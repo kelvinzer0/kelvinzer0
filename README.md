@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [UK's M&S resumes online orders following cyberattack](https://finance.yahoo.com/video/uks-m-resumes-online-orders-095346265.html)
-- Jun 10 - [Adults Are Sharing Their "I Can't Believe I Have To Explain This To Another Adult" Stories, And I Need To Lie Down After Reading These](https://www.yahoo.com/lifestyle/adults-sharing-cant-believe-explain-093103284.html)
-- Jun 10 - [Crackdown launched on ‘rogue financial promotions’ by some influencers](https://finance.yahoo.com/news/crackdown-launched-rogue-financial-promotions-230100762.html)
-- Jun 10 - [Israeli navy attacks rebel-held Yemeni port city of Hodeida, a first in the conflict](https://www.yahoo.com/news/israel-attacks-yemeni-port-city-045038398.html)
-- Jun 10 - [I just moved to Cincinnati. 5 things I learned in my first week](https://www.yahoo.com/lifestyle/just-moved-cincinnati-5-things-040521150.html)
+- Jun 10 - [Eight killed in Austria school shooting, interior ministry says](https://www.yahoo.com/news/police-respond-suspected-shooting-high-091225940.html)
+- Jun 10 - [The Economics of Flying Private: How NetJets Became the Uber of Private Jets](https://finance.yahoo.com/video/economics-flying-private-netjets-became-103013287.html)
+- Jun 10 - [Despite Trump directive, emergency abortion care is still a legal right | Opinion](https://www.yahoo.com/news/despite-trump-directive-emergency-abortion-100515162.html)
+- Jun 10 - [What to know about invasive ant with fatal sting reported in multiple states](https://www.yahoo.com/news/know-invasive-ant-fatal-sting-151257555.html)
+- Jun 10 - [Rachel Maddow Reveals Sure Sign Donald Trump Is 'Absolutely Panicking' Right Now](https://www.yahoo.com/news/rachel-maddow-reveals-sure-sign-093446647.html)
 <!-- feed end -->
