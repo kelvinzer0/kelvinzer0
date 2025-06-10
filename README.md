@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Diddy's Attorneys Just Asked for a Mistrial (Again). Here's What the Judge Said](https://www.yahoo.com/news/diddys-attorneys-just-asked-mistrial-143038879.html)
-- Jun 10 - [New York Judge Censured After Erupting During School Board Meeting, Demanding His Son Be Named Valedictorian](https://www.yahoo.com/news/york-judge-censured-erupting-during-142921007.html)
-- Jun 10 - [US, China talks will result in a 'shaky truce at best'](https://finance.yahoo.com/video/us-china-talks-result-shaky-135655854.html)
-- Jun 10 - [Marines arrive in LA under Trump orders after more restrained protests](https://www.yahoo.com/news/marines-arrive-la-under-trump-135112749.html)
-- Jun 10 - [El Paso is No. 2 'Best Big City to Live in the US,' according to US News & World Report](https://www.yahoo.com/lifestyle/el-paso-no-2-best-132918036.html)
+- Jun 10 - [Russian billionaire and Putin critic launches AI data centres in the UK](https://finance.yahoo.com/news/russian-billionaire-putin-critic-launches-151531287.html)
+- Jun 10 - [Russian attack damages building next to Kyiv office of EU delegation](https://www.yahoo.com/news/russian-attack-damages-building-next-150704795.html)
+- Jun 10 - [Driven by personal loss, Syrian woman clears war remnants](https://www.yahoo.com/news/driven-personal-loss-syrian-woman-144650040.html)
+- Jun 10 - [NTSB determines that longtime dirt Late Model racer Scott Bloomquist likely intentionally crashed plane into barn](https://sports.yahoo.com/nascar/breaking-news/article/ntsb-determines-that-longtime-dirt-late-model-racer-scott-bloomquist-likely-intentionally-crashed-plane-into-barn-141705902.html)
+- Jun 10 - [Big Bang theory is wrong, claim scientists](https://www.yahoo.com/news/big-bang-theory-wrong-claim-132156521.html)
 <!-- feed end -->
