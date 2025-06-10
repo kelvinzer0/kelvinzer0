@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [3 Monster Stocks -- including Nvidia -- to Hold for the Next 10 Years](https://finance.yahoo.com/news/3-monster-stocks-including-nvidia-081500543.html)
+- Jun 10 - [Wall Street's Biggest Stock Split of the Year Has Arrived -- and This 57,000%-Gainer Can Head Significantly Higher](https://finance.yahoo.com/news/wall-streets-biggest-stock-split-075100060.html)
 - Jun 10 - [Crackdown launched on ‘rogue financial promotions’ by some influencers](https://finance.yahoo.com/news/crackdown-launched-rogue-financial-promotions-230100762.html)
 - Jun 10 - [EUR/USD to 1.40 is Feasible Overshoot: 3-Minute MLIV](https://finance.yahoo.com/video/eur-usd-1-40-feasible-074356383.html)
 - Jun 10 - [Dr Pepper recall upgraded over serious health risk](https://www.yahoo.com/news/dr-pepper-recall-upgraded-over-211340677.html)
-- Jun 10 - [Alabama to execute a long-serving death row inmate for the 1988 beating death of a woman he dated](https://www.yahoo.com/news/alabama-execute-long-serving-death-040226201.html)
-- Jun 10 - [13 victims found in a 70-mile radius in New England | Banfield](https://www.yahoo.com/news/13-victims-found-70-mile-030145724.html)
 <!-- feed end -->
