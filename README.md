@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 09 - [Thames Water creditors offer up £5bn as part of emergency turnaround plan](https://finance.yahoo.com/news/thames-water-creditors-offer-5bn-230135306.html)
-- Jun 09 - [Country Singer Conner Smith Strikes and Kills Woman, 77, in Alleged Crosswalk Car Accident](https://www.yahoo.com/news/country-singer-conner-smith-strikes-221757958.html)
-- Jun 09 - [S&P 500 could push even higher by end of year: Chart of the Day](https://finance.yahoo.com/video/p-500-could-push-even-221107594.html)
+- Jun 10 - [North Korea’s Frigate That Partially Sunk Appears In Dry Dock With Mangled Superstructure](https://www.yahoo.com/news/north-korea-frigate-partially-sunk-003114571.html)
+- Jun 10 - [Prediction: This High-Yield Dividend Stock Will Crush the S&P 500's Returns Over the Next Decade](https://finance.yahoo.com/news/prediction-high-yield-dividend-stock-000200315.html)
+- Jun 09 - [Republican congressman Green to resign after tax bill vote](https://www.yahoo.com/news/republican-congressman-green-resign-tax-220738739.html)
+- Jun 09 - [Woman arrested on DUI charges, other citations after crashing into Peoria restaurant](https://www.yahoo.com/news/woman-arrested-dui-charges-other-202942254.html)
 - Jun 09 - [Cousin discovers 23-year-old’s body bound and duct taped, Washington cops say](https://www.yahoo.com/news/cousin-discovers-23-old-body-184137780.html)
-- Jun 09 - [White House breaks ground on Trump projects to pave over Rose Garden grass, add flagpoles to lawns](https://www.yahoo.com/news/white-house-breaks-ground-trump-182858802.html)
 <!-- feed end -->
