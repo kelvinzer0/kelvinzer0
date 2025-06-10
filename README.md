@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Macron says Israel's blockade of humanitarian aid into Gaza is a 'disgrace''](https://www.yahoo.com/news/macron-says-israels-blockade-humanitarian-025802799.html)
-- Jun 10 - [Want $1 Million in Retirement? Invest $100,000 in These 3 Stocks and Wait a Decade](https://finance.yahoo.com/news/want-1-million-retirement-invest-005600063.html)
+- Jun 10 - [Tesla announces launch date for game-changing new service: 'That's how progress works'](https://www.yahoo.com/news/tesla-announces-launch-date-game-013000545.html)
 - Jun 10 - [North Korea’s Frigate That Partially Sunk Appears In Dry Dock With Mangled Superstructure](https://www.yahoo.com/news/north-korea-frigate-partially-sunk-003114571.html)
-- Jun 10 - [Prediction: This High-Yield Dividend Stock Will Crush the S&P 500's Returns Over the Next Decade](https://finance.yahoo.com/news/prediction-high-yield-dividend-stock-000200315.html)
+- Jun 09 - [A Video Of Obama Exposing MAGA’s Double Standards Is Going Viral, And It’s A Startling Reminder Of Just How Much Things Have Changed](https://www.yahoo.com/news/imagine-had-done-clip-obama-234338329.html)
+- Jun 09 - [Several Psychiatric Disorders Share The Same Root Cause, Study Finds](https://www.yahoo.com/news/several-psychiatric-disorders-share-same-221338333.html)
 - Jun 09 - [S&P 500 could push even higher by end of year: Chart of the Day](https://finance.yahoo.com/video/p-500-could-push-even-221107594.html)
 <!-- feed end -->
