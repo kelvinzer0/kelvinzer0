@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [Cold War fighter jet fired up after 18 years](https://www.yahoo.com/news/cold-war-fighter-jet-fired-134205643.html)
+- Jun 10 - [El Paso is No. 2 'Best Big City to Live in the US,' according to US News & World Report](https://www.yahoo.com/lifestyle/el-paso-no-2-best-132918036.html)
 - Jun 10 - ['Python Huntress' takes on invasive snakes in the Everglades](https://www.yahoo.com/news/python-huntress-takes-invasive-snakes-130457623.html)
-- Jun 10 - [33 Cities Where You Need To Earn Six Figures To Afford a Typical Home](https://finance.yahoo.com/news/33-cities-where-earn-six-130120797.html)
-- Jun 10 - [Indonesia stops nickel mining operations at top tourist diving destination](https://www.yahoo.com/news/indonesia-stops-nickel-mining-operations-125804521.html)
-- Jun 10 - [Stocks Have Likely Bottomed, Says Morgan Stanley's Wilson](https://finance.yahoo.com/video/stocks-likely-bottomed-says-morgan-125422769.html)
+- Jun 10 - [Daytona Beach man unhappy with restaurant bill pulls gun, points it at staff](https://www.yahoo.com/news/daytona-beach-man-unhappy-restaurant-123159717.html)
 - Jun 10 - [Lakewood gas station’s private guard was fatally shot. Final defendant sentenced](https://www.yahoo.com/news/lakewood-gas-station-private-guard-123000189.html)
 <!-- feed end -->
