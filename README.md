@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [On This Day, June 10: Norway surrenders to Germany in WWII](https://www.yahoo.com/news/day-june-10-norway-surrenders-070006401.html)
 - Jun 10 - [Apple keeps it simple on AI, unveils 'liquid glass' redesign](https://finance.yahoo.com/video/apple-keeps-simple-ai-unveils-060910536.html)
-- Jun 10 - [Samsung Galaxy S25 Edge review: super thinness above all else](https://tech.yahoo.com/phones/articles/samsung-galaxy-s25-edge-review-060044910.html)
-- Jun 10 - [European Dividend Stocks: Teleperformance And 2 Other Top Picks](https://finance.yahoo.com/news/european-dividend-stocks-teleperformance-2-053140136.html)
 - Jun 10 - [Dr Pepper recall upgraded over serious health risk](https://www.yahoo.com/news/dr-pepper-recall-upgraded-over-211340677.html)
+- Jun 10 - [CNN Correspondent Detained By LAPD, Camera Crew Arrested](https://www.yahoo.com/news/cnn-correspondent-detained-lapd-camera-050421711.html)
 - Jun 10 - [I just moved to Cincinnati. 5 things I learned in my first week](https://www.yahoo.com/lifestyle/just-moved-cincinnati-5-things-040521150.html)
 <!-- feed end -->
