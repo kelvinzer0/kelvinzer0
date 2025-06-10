@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Police recover a stolen custom-built Telecaster guitar that belongs to Heart's Nancy Wilson](https://www.yahoo.com/entertainment/articles/police-recover-stolen-custom-built-192721993.html)
-- Jun 10 - [Why Apple's Updates Impress Users, Not Investors](https://finance.yahoo.com/video/why-apples-updates-impress-users-191119054.html)
+- Jun 10 - [Waymo leads in self-driving: Can Tesla's robotaxi take its crown?](https://finance.yahoo.com/video/waymo-leads-self-driving-teslas-205201635.html)
+- Jun 10 - [‘We may be flying blind,’ says meteorologist after budget cuts](https://www.yahoo.com/news/may-flying-blind-says-meteorologist-203747427.html)
 - Jun 10 - [R. Kelly’s Attorneys File for Immediate Release From Custody, Alleging Officials Solicited Inmate to Murder Him](https://www.yahoo.com/news/r-kelly-attorneys-file-immediate-185632970.html)
+- Jun 10 - [Goldman Sachs makes a shocking prediction on inflation](https://finance.yahoo.com/news/goldman-sachs-makes-shocking-prediction-185044320.html)
 - Jun 10 - [Montana Supreme Court declares 2021 abortion restrictions unconstitutional](https://www.yahoo.com/news/montana-supreme-court-declares-2021-184753769.html)
-- Jun 10 - [The ‘Gates of Hell’ Are Closing. That’s a Pretty Big Problem.](https://www.yahoo.com/news/gates-hell-closing-pretty-big-180000365.html)
 <!-- feed end -->
