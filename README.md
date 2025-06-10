@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Judge determined OPM broke law with DOGE access to data](https://www.yahoo.com/news/judge-determined-opm-broke-law-154953266.html)
+- Jun 10 - [Walgreens, Authentic Brands, Kourtney Kardashian among those evaluating Rite Aid assets, sources say](https://finance.yahoo.com/news/walgreens-authentic-brands-kourtney-kardashian-172627561.html)
 - Jun 10 - [A 41-year-old longevity doctor says his 'biological age' is 24. He takes 3 supplements daily.](https://www.yahoo.com/lifestyle/41-old-longevity-doctor-says-121230754.html)
-- Jun 10 - [MU's HBM Revenues Surpass $1 Billion: Will the Momentum Persist?](https://finance.yahoo.com/news/mus-hbm-revenues-surpass-1-142400488.html)
-- Jun 10 - [NTSB determines that longtime dirt Late Model racer Scott Bloomquist likely intentionally crashed plane into barn](https://sports.yahoo.com/nascar/breaking-news/article/ntsb-determines-that-longtime-dirt-late-model-racer-scott-bloomquist-likely-intentionally-crashed-plane-into-barn-141705902.html)
+- Jun 10 - [Trump military parade to bring days of road closures to DC](https://www.yahoo.com/news/trump-military-parade-bring-days-143836153.html)
+- Jun 10 - [Bill Gates Paid $38 Million To Buy An Entire Street In Palm Beach For Daughter's Equestrian Hobby — 'Gobbled Up Properties Like Pac-Man'](https://finance.yahoo.com/news/bill-gates-paid-38-million-140030699.html)
 - Jun 10 - [US, China talks will result in a 'shaky truce at best'](https://finance.yahoo.com/video/us-china-talks-result-shaky-135655854.html)
 <!-- feed end -->
