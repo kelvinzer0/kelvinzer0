@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Eight killed in Austria school shooting, interior ministry says](https://www.yahoo.com/news/police-respond-suspected-shooting-high-091225940.html)
-- Jun 10 - [The Economics of Flying Private: How NetJets Became the Uber of Private Jets](https://finance.yahoo.com/video/economics-flying-private-netjets-became-103013287.html)
-- Jun 10 - [Despite Trump directive, emergency abortion care is still a legal right | Opinion](https://www.yahoo.com/news/despite-trump-directive-emergency-abortion-100515162.html)
-- Jun 10 - [What to know about invasive ant with fatal sting reported in multiple states](https://www.yahoo.com/news/know-invasive-ant-fatal-sting-151257555.html)
-- Jun 10 - [Rachel Maddow Reveals Sure Sign Donald Trump Is 'Absolutely Panicking' Right Now](https://www.yahoo.com/news/rachel-maddow-reveals-sure-sign-093446647.html)
+- Jun 10 - [How I'd Invest $1,000 Today if I Had to Start From Scratch](https://finance.yahoo.com/news/id-invest-1-000-today-120000476.html)
+- Jun 10 - [What's Driving the Bitcoin and Ether Rally?](https://finance.yahoo.com/video/whats-driving-bitcoin-ether-rally-113501780.html)
+- Jun 10 - [IBM just took a 'significant' step toward useful quantum computing](https://finance.yahoo.com/news/ibm-just-took-a-significant-step-toward-useful-quantum-computing-100048784.html)
+- Jun 10 - [Adults Are Sharing Their "I Can't Believe I Have To Explain This To Another Adult" Stories, And I Need To Lie Down After Reading These](https://www.yahoo.com/lifestyle/adults-sharing-cant-believe-explain-093103284.html)
+- Jun 10 - [Jim Jordan's 'In America' Rant Goes Very Wrong, Very Quickly](https://www.yahoo.com/news/jim-jordans-america-rant-goes-091357429.html)
 <!-- feed end -->
