@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [Macron says Israel's blockade of humanitarian aid into Gaza is a 'disgrace''](https://www.yahoo.com/news/macron-says-israels-blockade-humanitarian-025802799.html)
+- Jun 10 - [Want $1 Million in Retirement? Invest $100,000 in These 3 Stocks and Wait a Decade](https://finance.yahoo.com/news/want-1-million-retirement-invest-005600063.html)
 - Jun 10 - [North Korea’s Frigate That Partially Sunk Appears In Dry Dock With Mangled Superstructure](https://www.yahoo.com/news/north-korea-frigate-partially-sunk-003114571.html)
 - Jun 10 - [Prediction: This High-Yield Dividend Stock Will Crush the S&P 500's Returns Over the Next Decade](https://finance.yahoo.com/news/prediction-high-yield-dividend-stock-000200315.html)
-- Jun 09 - [Republican congressman Green to resign after tax bill vote](https://www.yahoo.com/news/republican-congressman-green-resign-tax-220738739.html)
-- Jun 09 - [Woman arrested on DUI charges, other citations after crashing into Peoria restaurant](https://www.yahoo.com/news/woman-arrested-dui-charges-other-202942254.html)
-- Jun 09 - [Cousin discovers 23-year-old’s body bound and duct taped, Washington cops say](https://www.yahoo.com/news/cousin-discovers-23-old-body-184137780.html)
+- Jun 09 - [S&P 500 could push even higher by end of year: Chart of the Day](https://finance.yahoo.com/video/p-500-could-push-even-221107594.html)
 <!-- feed end -->
