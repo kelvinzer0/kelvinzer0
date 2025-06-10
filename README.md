@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [How I'd Invest $1,000 Today if I Had to Start From Scratch](https://finance.yahoo.com/news/id-invest-1-000-today-120000476.html)
-- Jun 10 - [What's Driving the Bitcoin and Ether Rally?](https://finance.yahoo.com/video/whats-driving-bitcoin-ether-rally-113501780.html)
-- Jun 10 - [IBM just took a 'significant' step toward useful quantum computing](https://finance.yahoo.com/news/ibm-just-took-a-significant-step-toward-useful-quantum-computing-100048784.html)
-- Jun 10 - [Adults Are Sharing Their "I Can't Believe I Have To Explain This To Another Adult" Stories, And I Need To Lie Down After Reading These](https://www.yahoo.com/lifestyle/adults-sharing-cant-believe-explain-093103284.html)
-- Jun 10 - [Jim Jordan's 'In America' Rant Goes Very Wrong, Very Quickly](https://www.yahoo.com/news/jim-jordans-america-rant-goes-091357429.html)
+- Jun 10 - ['Python Huntress' takes on invasive snakes in the Everglades](https://www.yahoo.com/news/python-huntress-takes-invasive-snakes-130457623.html)
+- Jun 10 - [33 Cities Where You Need To Earn Six Figures To Afford a Typical Home](https://finance.yahoo.com/news/33-cities-where-earn-six-130120797.html)
+- Jun 10 - [Indonesia stops nickel mining operations at top tourist diving destination](https://www.yahoo.com/news/indonesia-stops-nickel-mining-operations-125804521.html)
+- Jun 10 - [Stocks Have Likely Bottomed, Says Morgan Stanley's Wilson](https://finance.yahoo.com/video/stocks-likely-bottomed-says-morgan-125422769.html)
+- Jun 10 - [Lakewood gas station’s private guard was fatally shot. Final defendant sentenced](https://www.yahoo.com/news/lakewood-gas-station-private-guard-123000189.html)
 <!-- feed end -->
