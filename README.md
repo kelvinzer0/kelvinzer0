@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [Cold War fighter jet fired up after 18 years](https://www.yahoo.com/news/cold-war-fighter-jet-fired-134205643.html)
+- Jun 10 - [Diddy's Attorneys Just Asked for a Mistrial (Again). Here's What the Judge Said](https://www.yahoo.com/news/diddys-attorneys-just-asked-mistrial-143038879.html)
+- Jun 10 - [New York Judge Censured After Erupting During School Board Meeting, Demanding His Son Be Named Valedictorian](https://www.yahoo.com/news/york-judge-censured-erupting-during-142921007.html)
+- Jun 10 - [US, China talks will result in a 'shaky truce at best'](https://finance.yahoo.com/video/us-china-talks-result-shaky-135655854.html)
+- Jun 10 - [Marines arrive in LA under Trump orders after more restrained protests](https://www.yahoo.com/news/marines-arrive-la-under-trump-135112749.html)
 - Jun 10 - [El Paso is No. 2 'Best Big City to Live in the US,' according to US News & World Report](https://www.yahoo.com/lifestyle/el-paso-no-2-best-132918036.html)
-- Jun 10 - ['Python Huntress' takes on invasive snakes in the Everglades](https://www.yahoo.com/news/python-huntress-takes-invasive-snakes-130457623.html)
-- Jun 10 - [Daytona Beach man unhappy with restaurant bill pulls gun, points it at staff](https://www.yahoo.com/news/daytona-beach-man-unhappy-restaurant-123159717.html)
-- Jun 10 - [Lakewood gas station’s private guard was fatally shot. Final defendant sentenced](https://www.yahoo.com/news/lakewood-gas-station-private-guard-123000189.html)
 <!-- feed end -->
