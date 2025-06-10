@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 10 - [3 Monster Stocks -- including Nvidia -- to Hold for the Next 10 Years](https://finance.yahoo.com/news/3-monster-stocks-including-nvidia-081500543.html)
-- Jun 10 - [Wall Street's Biggest Stock Split of the Year Has Arrived -- and This 57,000%-Gainer Can Head Significantly Higher](https://finance.yahoo.com/news/wall-streets-biggest-stock-split-075100060.html)
+- Jun 10 - [UK's M&S resumes online orders following cyberattack](https://finance.yahoo.com/video/uks-m-resumes-online-orders-095346265.html)
+- Jun 10 - [Adults Are Sharing Their "I Can't Believe I Have To Explain This To Another Adult" Stories, And I Need To Lie Down After Reading These](https://www.yahoo.com/lifestyle/adults-sharing-cant-believe-explain-093103284.html)
 - Jun 10 - [Crackdown launched on ‘rogue financial promotions’ by some influencers](https://finance.yahoo.com/news/crackdown-launched-rogue-financial-promotions-230100762.html)
-- Jun 10 - [EUR/USD to 1.40 is Feasible Overshoot: 3-Minute MLIV](https://finance.yahoo.com/video/eur-usd-1-40-feasible-074356383.html)
-- Jun 10 - [Dr Pepper recall upgraded over serious health risk](https://www.yahoo.com/news/dr-pepper-recall-upgraded-over-211340677.html)
+- Jun 10 - [Israeli navy attacks rebel-held Yemeni port city of Hodeida, a first in the conflict](https://www.yahoo.com/news/israel-attacks-yemeni-port-city-045038398.html)
+- Jun 10 - [I just moved to Cincinnati. 5 things I learned in my first week](https://www.yahoo.com/lifestyle/just-moved-cincinnati-5-things-040521150.html)
 <!-- feed end -->
