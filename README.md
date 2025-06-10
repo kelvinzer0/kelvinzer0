@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 10 - [Astronomy show accidentally reveals unseen structure in our solar system](https://www.yahoo.com/news/astronomy-show-accidentally-reveals-unseen-173357934.html)
 - Jun 10 - [Waymo leads in self-driving: Can Tesla's robotaxi take its crown?](https://finance.yahoo.com/video/waymo-leads-self-driving-teslas-205201635.html)
-- Jun 10 - [‘We may be flying blind,’ says meteorologist after budget cuts](https://www.yahoo.com/news/may-flying-blind-says-meteorologist-203747427.html)
-- Jun 10 - [R. Kelly’s Attorneys File for Immediate Release From Custody, Alleging Officials Solicited Inmate to Murder Him](https://www.yahoo.com/news/r-kelly-attorneys-file-immediate-185632970.html)
-- Jun 10 - [Goldman Sachs makes a shocking prediction on inflation](https://finance.yahoo.com/news/goldman-sachs-makes-shocking-prediction-185044320.html)
+- Jun 10 - [People Are Reporting A Frightening COVID Symptom Right Now — Here's What To Know](https://autos.yahoo.com/people-reporting-frightening-covid-symptom-203334244.html)
 - Jun 10 - [Montana Supreme Court declares 2021 abortion restrictions unconstitutional](https://www.yahoo.com/news/montana-supreme-court-declares-2021-184753769.html)
+- Jun 10 - [Donald Trump Threatens That Any Protesters At Upcoming Military Parade “Will Be Met With Very Big Force”](https://www.yahoo.com/news/donald-trump-threatens-protesters-upcoming-180447539.html)
 <!-- feed end -->
