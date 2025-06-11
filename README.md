@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Israeli strikes kill 35 in Gaza, many near an aid site, medics say](https://www.yahoo.com/news/israeli-strikes-kill-35-gaza-065355566.html)
-- Jun 11 - [Japan's shift to cashless society prods BOJ call for payment innovation](https://tech.yahoo.com/articles/japans-shift-cashless-society-prods-060304227.html)
+- Jun 11 - [Homes, cars set ablaze in Northern Ireland over alleged sexual assault](https://www.yahoo.com/news/homes-cars-set-ablaze-northern-075439596.html)
 - Jun 11 - [Trump Mocked After Suffering Brain Fart While Trying To Insult Biden](https://www.yahoo.com/news/trump-mocked-suffering-brain-fart-040208035.html)
-- Jun 11 - [‘Made for sex’: the hedonistic party palaces of New York’s Fire Island – and the blond bombshell who made them](https://www.yahoo.com/lifestyle/articles/made-sex-hedonistic-party-palaces-040019740.html)
 - Jun 11 - [It Makes Me Feel Sick, Says A Homeowner Watching Their Condo's Value Collapse. They Still Owe $100K More Than What A Neighbor Just Sold For](https://finance.yahoo.com/news/makes-feel-sick-says-homeowner-010029728.html)
+- Jun 11 - [Takeaways from New Jersey election: Trump looms large and signs of Democratic enthusiasm](https://www.yahoo.com/news/takeaways-jerseys-primaries-gop-nominees-004725229.html)
+- Jun 11 - [US Justice Department says Trump can cancel national monuments that protect landscapes](https://www.yahoo.com/news/trump-administration-says-authority-cancel-000307184.html)
 <!-- feed end -->
