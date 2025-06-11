@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [RFK Jr. names new vaccine panel members after firing previous ones](https://www.yahoo.com/news/us-health-chief-kennedy-names-204723587.html)
+- Jun 11 - [Major Averages Slip After CPI Print | Closing Bell](https://finance.yahoo.com/video/major-averages-slip-cpi-print-203837968.html)
 - Jun 11 - [What are rare earth elements and why are they important?](https://www.yahoo.com/news/rare-earth-elements-why-important-194408445.html)
+- Jun 11 - [Gavin Newsom's Staff Just Destroyed Jon Voight's Rant With A Single "Simpsons" Picture](https://www.yahoo.com/entertainment/articles/gavin-newsoms-press-team-just-184547284.html)
 - Jun 11 - [Massive black bear spotted roaming around Massachusetts neighborhood](https://www.yahoo.com/news/massive-black-bear-spotted-roaming-175404389.html)
-- Jun 11 - [Bragg Soldiers Who Cheered Trump's Political Attacks While in Uniform Were Checked for Allegiance, Appearance](https://www.yahoo.com/news/bragg-soldiers-cheered-trumps-political-172518382.html)
-- Jun 11 - [Trump Just Got Some Bad News Before the G7 Conference](https://www.yahoo.com/news/trump-just-got-bad-news-165941695.html)
-- Jun 11 - [High school teacher charged with sexually assaulting former teen student at her home](https://www.yahoo.com/news/high-school-teacher-charged-sexually-165122904.html)
 <!-- feed end -->
