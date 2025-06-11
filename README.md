@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [TikTok star Khaby Lame leaves US after being detained by immigration officials](https://www.yahoo.com/news/tiktok-star-khaby-lame-leaves-212149248.html)
-- Jun 11 - [Airlines, other service stocks could face headwinds, says strategist](https://finance.yahoo.com/video/airlines-other-stocks-could-face-205908800.html)
-- Jun 11 - [Kennedy names replacements for fired US CDC vaccine panel members](https://www.yahoo.com/news/us-health-chief-kennedy-names-204723587.html)
+- Jun 11 - [Victoria’s Secret in ‘Recovery Phase’ After Cyber Incident](https://finance.yahoo.com/news/victoria-secret-recovery-phase-cyber-221200585.html)
 - Jun 11 - [Worker who leaked plans to build golf courses in Florida parks files whistleblower suit](https://www.yahoo.com/news/worker-leaked-plans-build-golf-203031830.html)
+- Jun 11 - [About 500 National Guard troops in LA are trained to accompany agents on immigration raids](https://www.yahoo.com/news/national-guard-troops-temporarily-detained-202355581.html)
+- Jun 11 - [Gavin Newsom's Staff Just Destroyed Jon Voight's Rant With A Single "Simpsons" Picture](https://www.yahoo.com/entertainment/articles/gavin-newsoms-press-team-just-184547284.html)
 - Jun 11 - [Massive black bear spotted roaming around Massachusetts neighborhood](https://www.yahoo.com/news/massive-black-bear-spotted-roaming-175404389.html)
 <!-- feed end -->
