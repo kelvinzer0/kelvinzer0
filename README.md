@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [RFK Jr. names new vaccine panel members after firing previous ones](https://www.yahoo.com/news/us-health-chief-kennedy-names-204723587.html)
-- Jun 11 - [Major Averages Slip After CPI Print | Closing Bell](https://finance.yahoo.com/video/major-averages-slip-cpi-print-203837968.html)
-- Jun 11 - [What are rare earth elements and why are they important?](https://www.yahoo.com/news/rare-earth-elements-why-important-194408445.html)
-- Jun 11 - [Gavin Newsom's Staff Just Destroyed Jon Voight's Rant With A Single "Simpsons" Picture](https://www.yahoo.com/entertainment/articles/gavin-newsoms-press-team-just-184547284.html)
+- Jun 11 - [TikTok star Khaby Lame leaves US after being detained by immigration officials](https://www.yahoo.com/news/tiktok-star-khaby-lame-leaves-212149248.html)
+- Jun 11 - [Airlines, other service stocks could face headwinds, says strategist](https://finance.yahoo.com/video/airlines-other-stocks-could-face-205908800.html)
+- Jun 11 - [Kennedy names replacements for fired US CDC vaccine panel members](https://www.yahoo.com/news/us-health-chief-kennedy-names-204723587.html)
+- Jun 11 - [Worker who leaked plans to build golf courses in Florida parks files whistleblower suit](https://www.yahoo.com/news/worker-leaked-plans-build-golf-203031830.html)
 - Jun 11 - [Massive black bear spotted roaming around Massachusetts neighborhood](https://www.yahoo.com/news/massive-black-bear-spotted-roaming-175404389.html)
 <!-- feed end -->
