@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Sciortino: Proxima Fusion Is Like a European Treasure](https://finance.yahoo.com/video/sciortino-proxima-fusion-european-treasure-092517837.html)
+- Jun 11 - [What are the best paying jobs in Florida, with a college degree or without?](https://www.yahoo.com/news/best-paying-jobs-florida-college-090201053.html)
+- Jun 11 - [Sunken ship with £16bn of treasure ‘found in Caribbean’](https://finance.yahoo.com/news/sunken-ship-16bn-treasure-found-203604804.html)
 - Jun 11 - [Trump Mocked After Suffering Brain Fart While Trying To Insult Biden](https://www.yahoo.com/news/trump-mocked-suffering-brain-fart-040208035.html)
-- Jun 11 - [Takeaways from New Jersey election: Trump looms large and signs of Democratic enthusiasm](https://www.yahoo.com/news/takeaways-jerseys-primaries-gop-nominees-004725229.html)
 - Jun 11 - [Analysts react to US-China trade agreement](https://finance.yahoo.com/news/analysts-react-us-china-trade-001153585.html)
-- Jun 11 - [US Justice Department says Trump can cancel national monuments that protect landscapes](https://www.yahoo.com/news/trump-administration-says-authority-cancel-000307184.html)
-- Jun 11 - [Arizona governor vetoes bill banning teaching antisemitism, calls it an attack on educators](https://www.yahoo.com/news/arizona-governor-vetoes-bill-ban-000142568.html)
 <!-- feed end -->
