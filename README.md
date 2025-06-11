@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Turkish far-right politician accused of inciting hatred goes on trial](https://www.yahoo.com/news/turkish-far-politician-accused-inciting-144457585.html)
-- Jun 11 - [Trump says China will face 55% tariffs as he endorses trade deal](https://www.yahoo.com/news/trump-says-china-face-55-142114600.html)
-- Jun 11 - [Lockheed Martin Falls After Pentagon Slashes F-35 Request](https://www.investors.com/news/lockheed-martin-pentagon-air-force-f-35-request-lmt-stock-ouster-oust-stock/?src=A00220&yptr=yahoo)
+- Jun 11 - [I Let ChatGPT Review My Retirement Plan: Here’s Where It Told Me To Change](https://finance.yahoo.com/news/let-chatgpt-review-retirement-plan-150113760.html)
+- Jun 11 - [Airline cancels all flights, shuts down leaving travelers stranded](https://www.yahoo.com/news/airline-cancels-flights-shuts-down-150059412.html)
+- Jun 11 - [Anti-doping watchdog urges US authorities to shut down planned drug-fueled event in Las Vegas](https://sports.yahoo.com/article/anti-doping-watchdog-urges-us-125449294.html)
+- Jun 11 - [Tesla bulls have been waiting years for this day: Elon Musk finally reveals date for his robotaxi pilot launch](https://finance.yahoo.com/news/tesla-bulls-waiting-years-day-124048514.html)
 - Jun 11 - [Scientists stunned as cameras capture footage of 200-million-year-old creature once thought extinct: 'The whole team was euphoric'](https://www.yahoo.com/news/scientists-stunned-cameras-capture-footage-114519954.html)
-- Jun 11 - [Ukraine's defense industry says the fight against Russia has shown it that the West's approach to weapons is all wrong](https://www.yahoo.com/news/ukraines-defense-industry-says-fight-094702494.html)
 <!-- feed end -->
