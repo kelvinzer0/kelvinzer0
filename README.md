@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [I Let ChatGPT Review My Retirement Plan: Here’s Where It Told Me To Change](https://finance.yahoo.com/news/let-chatgpt-review-retirement-plan-150113760.html)
+- Jun 11 - [Oklahoma court clears the way for execution of a man convicted in a Tulsa woman's killing](https://www.yahoo.com/news/oklahoma-court-clears-way-execution-163953705.html)
+- Jun 11 - [Toyota And Subaru Dragged To Court Because A Simple Component Keeps Failing](https://autos.yahoo.com/toyota-subaru-dragged-court-because-154641924.html)
+- Jun 11 - [Peru, the US's top blueberry supplier, looks to China as tariffs hit](https://finance.yahoo.com/video/peru-uss-top-blueberry-supplier-152537666.html)
+- Jun 11 - [Delaware girl reported missing now treated as MD homicide; abduction no longer believed](https://www.yahoo.com/news/delaware-girl-reported-missing-ncco-152517408.html)
 - Jun 11 - [Airline cancels all flights, shuts down leaving travelers stranded](https://www.yahoo.com/news/airline-cancels-flights-shuts-down-150059412.html)
-- Jun 11 - [Anti-doping watchdog urges US authorities to shut down planned drug-fueled event in Las Vegas](https://sports.yahoo.com/article/anti-doping-watchdog-urges-us-125449294.html)
-- Jun 11 - [Tesla bulls have been waiting years for this day: Elon Musk finally reveals date for his robotaxi pilot launch](https://finance.yahoo.com/news/tesla-bulls-waiting-years-day-124048514.html)
-- Jun 11 - [Scientists stunned as cameras capture footage of 200-million-year-old creature once thought extinct: 'The whole team was euphoric'](https://www.yahoo.com/news/scientists-stunned-cameras-capture-footage-114519954.html)
 <!-- feed end -->
