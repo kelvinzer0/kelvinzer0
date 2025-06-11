@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Serbia's Moscow-friendly president visits Ukraine but refuses to sign 'anti-Russian' declaration](https://www.yahoo.com/news/serbias-moscow-friendly-president-visits-184942484.html)
 - Jun 11 - [AI Weekly: Apple plays it safe, OpenAI rakes it in](https://finance.yahoo.com/video/ai-weekly-apple-plays-safe-181016364.html)
-- Jun 11 - [US preparing to evacuate embassy in Iraq over security risks, sources say](https://www.yahoo.com/news/us-embassy-iraq-preparing-ordered-173202340.html)
-- Jun 11 - [Trump Just Got Some Bad News Before the G7 Conference](https://www.yahoo.com/news/trump-just-got-bad-news-165941695.html)
-- Jun 11 - [Mitch McConnell Grills Pete Hegseth on Russia in Damning Exchange](https://www.yahoo.com/news/mitch-mcconnell-grills-pete-hegseth-161737771.html)
-- Jun 11 - [Lansing faith-healing couple sentenced for death of baby who died of treatable condition](https://www.yahoo.com/news/lansing-faith-healing-couple-sentenced-161307813.html)
+- Jun 11 - [She Showed Up Late to Zoom Court — Then Started Making a Sandwich. The Judge Had Enough](https://www.yahoo.com/news/she-showed-zoom-court-then-175626661.html)
+- Jun 11 - [US military authorizes voluntary departure of troops' dependents across Mideast, officials say](https://www.yahoo.com/news/us-prepares-order-departure-nonessential-175220929.html)
+- Jun 11 - [Tulane scientist resigns citing university censorship of pollution and racial disparity research](https://www.yahoo.com/news/tulane-scientist-resigns-citing-university-172801278.html)
 <!-- feed end -->
