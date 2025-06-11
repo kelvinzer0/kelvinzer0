@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [Rupee set for calm open amid yuan watch, two-sided flows](https://finance.yahoo.com/news/rupee-set-calm-open-amid-025919769.html)
+- Jun 11 - ['You will be prosecuted': LA mayor issues downtown curfew](https://www.yahoo.com/news/prosecuted-la-mayor-issues-downtown-025215182.html)
+- Jun 11 - [It Makes Me Feel Sick, Says A Homeowner Watching Their Condo's Value Collapse. They Still Owe $100K More Than What A Neighbor Just Sold For](https://finance.yahoo.com/news/makes-feel-sick-says-homeowner-010029728.html)
+- Jun 11 - [Highway 50 shuts down in Northern California amid several fires](https://www.yahoo.com/news/highway-50-shuts-down-northern-000615841.html)
 - Jun 11 - [US Justice Department says Trump can cancel national monuments that protect landscapes](https://www.yahoo.com/news/trump-administration-says-authority-cancel-000307184.html)
-- Jun 10 - [World’s most popular TikTok star Khaby Lame leaves the U.S. after being detained by ICE](https://www.yahoo.com/news/world-most-popular-tiktok-star-221056294.html)
-- Jun 10 - [Correspondent Terry Moran out at ABC News, two days after suspension over Stephen Miller post](https://finance.yahoo.com/news/correspondent-terry-moran-abc-news-212547684.html)
-- Jun 10 - [New nationwide study ranks best and worst fast-food fries in America](https://www.yahoo.com/news/nationwide-study-ranks-best-worst-203525469.html)
-- Jun 10 - [This Alarming COVID Symptom Is Everywhere With The Latest Variant. We Asked Experts What You Need To Know.](https://autos.yahoo.com/people-reporting-frightening-covid-symptom-203334244.html)
 <!-- feed end -->
