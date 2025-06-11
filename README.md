@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Defence spending to rise to 2.6% by 2027](https://www.yahoo.com/news/defence-spending-rise-2-6-122705165.html)
-- Jun 11 - [Houston to unite MLK parades in 2026](https://www.yahoo.com/news/houston-unite-mlk-parades-2026-115552446.html)
+- Jun 11 - [Kremlin shrugs off EU plans to lower oil price ceiling](https://www.yahoo.com/news/kremlin-shrugs-off-eu-plans-130134674.html)
+- Jun 11 - [Macron to push for social media ban for under-15s after school attack](https://www.yahoo.com/news/macron-push-social-media-ban-115311568.html)
+- Jun 11 - [Woman Goes Viral for Epic Airport Meltdown After Being Told Her Luggage Is Too Heavy](https://www.yahoo.com/lifestyle/articles/woman-goes-viral-epic-airport-095941682.html)
 - Jun 11 - [Ukraine's defense industry says the fight against Russia has shown it that the West's approach to weapons is all wrong](https://www.yahoo.com/news/ukraines-defense-industry-says-fight-094702494.html)
-- Jun 11 - [Sunken ship with £16bn of treasure ‘found in Caribbean’](https://finance.yahoo.com/news/sunken-ship-16bn-treasure-found-203604804.html)
-- Jun 11 - [Trump Mocked After Suffering Brain Fart While Trying To Insult Biden](https://www.yahoo.com/news/trump-mocked-suffering-brain-fart-040208035.html)
+- Jun 11 - [Your favorite alcoholic beverage could be linked to deadly form of cancer, study finds](https://www.yahoo.com/news/favorite-alcoholic-beverage-could-linked-090025441.html)
 <!-- feed end -->
