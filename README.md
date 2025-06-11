@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Homes, cars set ablaze in Northern Ireland over alleged sexual assault](https://www.yahoo.com/news/homes-cars-set-ablaze-northern-075439596.html)
 - Jun 11 - [Trump Mocked After Suffering Brain Fart While Trying To Insult Biden](https://www.yahoo.com/news/trump-mocked-suffering-brain-fart-040208035.html)
-- Jun 11 - [It Makes Me Feel Sick, Says A Homeowner Watching Their Condo's Value Collapse. They Still Owe $100K More Than What A Neighbor Just Sold For](https://finance.yahoo.com/news/makes-feel-sick-says-homeowner-010029728.html)
 - Jun 11 - [Takeaways from New Jersey election: Trump looms large and signs of Democratic enthusiasm](https://www.yahoo.com/news/takeaways-jerseys-primaries-gop-nominees-004725229.html)
+- Jun 11 - [Analysts react to US-China trade agreement](https://finance.yahoo.com/news/analysts-react-us-china-trade-001153585.html)
 - Jun 11 - [US Justice Department says Trump can cancel national monuments that protect landscapes](https://www.yahoo.com/news/trump-administration-says-authority-cancel-000307184.html)
+- Jun 11 - [Arizona governor vetoes bill banning teaching antisemitism, calls it an attack on educators](https://www.yahoo.com/news/arizona-governor-vetoes-bill-ban-000142568.html)
 <!-- feed end -->
