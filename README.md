@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Kremlin shrugs off EU plans to lower oil price ceiling](https://www.yahoo.com/news/kremlin-shrugs-off-eu-plans-130134674.html)
-- Jun 11 - [Macron to push for social media ban for under-15s after school attack](https://www.yahoo.com/news/macron-push-social-media-ban-115311568.html)
-- Jun 11 - [Woman Goes Viral for Epic Airport Meltdown After Being Told Her Luggage Is Too Heavy](https://www.yahoo.com/lifestyle/articles/woman-goes-viral-epic-airport-095941682.html)
+- Jun 11 - [GM to invest $4 billion into US plants over the next 2 years](https://finance.yahoo.com/video/gm-invest-4-billion-us-141500755.html)
+- Jun 11 - [Scientists stunned as cameras capture footage of 200-million-year-old creature once thought extinct: 'The whole team was euphoric'](https://www.yahoo.com/news/scientists-stunned-cameras-capture-footage-114519954.html)
 - Jun 11 - [Ukraine's defense industry says the fight against Russia has shown it that the West's approach to weapons is all wrong](https://www.yahoo.com/news/ukraines-defense-industry-says-fight-094702494.html)
+- Jun 11 - [Russia says it's ready to remove highly enriched uranium from Iran](https://www.yahoo.com/news/russia-says-ready-remove-excess-090209262.html)
 - Jun 11 - [Your favorite alcoholic beverage could be linked to deadly form of cancer, study finds](https://www.yahoo.com/news/favorite-alcoholic-beverage-could-linked-090025441.html)
 <!-- feed end -->
