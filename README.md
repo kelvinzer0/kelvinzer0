@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Oklahoma court clears the way for execution of a man convicted in a Tulsa woman's killing](https://www.yahoo.com/news/oklahoma-court-clears-way-execution-163953705.html)
-- Jun 11 - [Toyota And Subaru Dragged To Court Because A Simple Component Keeps Failing](https://autos.yahoo.com/toyota-subaru-dragged-court-because-154641924.html)
-- Jun 11 - [Peru, the US's top blueberry supplier, looks to China as tariffs hit](https://finance.yahoo.com/video/peru-uss-top-blueberry-supplier-152537666.html)
-- Jun 11 - [Delaware girl reported missing now treated as MD homicide; abduction no longer believed](https://www.yahoo.com/news/delaware-girl-reported-missing-ncco-152517408.html)
-- Jun 11 - [Airline cancels all flights, shuts down leaving travelers stranded](https://www.yahoo.com/news/airline-cancels-flights-shuts-down-150059412.html)
+- Jun 11 - [AI Weekly: Apple plays it safe, OpenAI rakes it in](https://finance.yahoo.com/video/ai-weekly-apple-plays-safe-181016364.html)
+- Jun 11 - [US preparing to evacuate embassy in Iraq over security risks, sources say](https://www.yahoo.com/news/us-embassy-iraq-preparing-ordered-173202340.html)
+- Jun 11 - [Trump Just Got Some Bad News Before the G7 Conference](https://www.yahoo.com/news/trump-just-got-bad-news-165941695.html)
+- Jun 11 - [Mitch McConnell Grills Pete Hegseth on Russia in Damning Exchange](https://www.yahoo.com/news/mitch-mcconnell-grills-pete-hegseth-161737771.html)
+- Jun 11 - [Lansing faith-healing couple sentenced for death of baby who died of treatable condition](https://www.yahoo.com/news/lansing-faith-healing-couple-sentenced-161307813.html)
 <!-- feed end -->
