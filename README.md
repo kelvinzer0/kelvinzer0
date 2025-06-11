@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 11 - [Trump Mocked After Suffering Brain Fart While Trying To Insult Biden](https://www.yahoo.com/news/trump-mocked-suffering-brain-fart-040208035.html)
 - Jun 11 - [It Makes Me Feel Sick, Says A Homeowner Watching Their Condo's Value Collapse. They Still Owe $100K More Than What A Neighbor Just Sold For](https://finance.yahoo.com/news/makes-feel-sick-says-homeowner-010029728.html)
-- Jun 11 - [Navy's search for missing 21-year-old seaman ends with tragic discovery, sailor detained in Virginia](https://www.yahoo.com/news/navys-search-missing-21-old-001844293.html)
-- Jun 11 - [Highway 50 shuts down in Northern California amid several fires](https://www.yahoo.com/news/highway-50-shuts-down-northern-000615841.html)
+- Jun 11 - [Takeaways from New Jersey election: Trump looms large and signs of Democratic enthusiasm](https://www.yahoo.com/news/takeaways-jerseys-primaries-gop-nominees-004725229.html)
 - Jun 11 - [US Justice Department says Trump can cancel national monuments that protect landscapes](https://www.yahoo.com/news/trump-administration-says-authority-cancel-000307184.html)
+- Jun 11 - [You Are Completely Unprepared for What Tesla's Robotaxi Actually Looks Like](https://www.yahoo.com/news/completely-unprepared-teslas-robotaxi-actually-000001379.html)
 <!-- feed end -->
