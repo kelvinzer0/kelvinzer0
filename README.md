@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Musk Says He Regrets Social Media Posts Lashing Out at Trump](https://finance.yahoo.com/news/musk-says-regrets-social-media-081519709.html)
+- Jun 11 - [Defence spending to rise to 2.6% by 2027](https://www.yahoo.com/news/defence-spending-rise-2-6-122705165.html)
+- Jun 11 - [Houston to unite MLK parades in 2026](https://www.yahoo.com/news/houston-unite-mlk-parades-2026-115552446.html)
 - Jun 11 - [Ukraine's defense industry says the fight against Russia has shown it that the West's approach to weapons is all wrong](https://www.yahoo.com/news/ukraines-defense-industry-says-fight-094702494.html)
-- Jun 11 - [Rare earths: China's trump card in trade war with US](https://www.yahoo.com/news/rare-earths-chinas-trump-card-042930299.html)
+- Jun 11 - [Sunken ship with £16bn of treasure ‘found in Caribbean’](https://finance.yahoo.com/news/sunken-ship-16bn-treasure-found-203604804.html)
 - Jun 11 - [Trump Mocked After Suffering Brain Fart While Trying To Insult Biden](https://www.yahoo.com/news/trump-mocked-suffering-brain-fart-040208035.html)
-- Jun 11 - [It Makes Me Feel Sick, Says A Homeowner Watching Their Condo's Value Collapse. They Still Owe $100K More Than What A Neighbor Just Sold For](https://finance.yahoo.com/news/makes-feel-sick-says-homeowner-010029728.html)
 <!-- feed end -->
