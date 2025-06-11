@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 11 - [US Justice Department says Trump can cancel national monuments that protect landscapes](https://www.yahoo.com/news/trump-administration-says-authority-cancel-000307184.html)
 - Jun 10 - [World’s most popular TikTok star Khaby Lame leaves the U.S. after being detained by ICE](https://www.yahoo.com/news/world-most-popular-tiktok-star-221056294.html)
-- Jun 10 - [He Fell Behind on His Taxes. So the Government Seized His Home, Sold It, and Kept the $258,000 Profit.](https://www.yahoo.com/news/fell-behind-taxes-government-seized-213048141.html)
 - Jun 10 - [Correspondent Terry Moran out at ABC News, two days after suspension over Stephen Miller post](https://finance.yahoo.com/news/correspondent-terry-moran-abc-news-212547684.html)
-- Jun 10 - [People Are Reporting A Frightening COVID Symptom Right Now — Here's What To Know](https://autos.yahoo.com/people-reporting-frightening-covid-symptom-203334244.html)
-- Jun 10 - [Goldman Sachs makes a shocking prediction on inflation](https://finance.yahoo.com/news/goldman-sachs-makes-shocking-prediction-185044320.html)
+- Jun 10 - [New nationwide study ranks best and worst fast-food fries in America](https://www.yahoo.com/news/nationwide-study-ranks-best-worst-203525469.html)
+- Jun 10 - [This Alarming COVID Symptom Is Everywhere With The Latest Variant. We Asked Experts What You Need To Know.](https://autos.yahoo.com/people-reporting-frightening-covid-symptom-203334244.html)
 <!-- feed end -->
