@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Arena authority awaits appraisal on parcel before negotiations can resume on sale](https://www.yahoo.com/news/arena-authority-awaits-appraisal-parcel-011800218.html)
-- Jun 12 - [Giant Jets Bigger Than The Milky Way Seen Shooting From Black Hole](https://www.yahoo.com/news/giant-jets-bigger-milky-way-004517499.html)
-- Jun 12 - [Kennedy Center’s ‘Les Misérables’ Opening Night Reflects The Trump Takeover: POTUS Walks Red Carpet, Attacks L.A. Protests’ “Radical Left Lunatics”](https://www.yahoo.com/news/kennedy-center-les-mis-rables-001340213.html)
+- Jun 12 - [Republicans reject ranked choice voting nationwide. Why?](https://www.yahoo.com/news/republicans-reject-ranked-choice-voting-030001193.html)
+- Jun 12 - [In a Ukrainian strip club, the war is laid bare](https://www.yahoo.com/news/ukrainian-strip-club-war-laid-024150459.html)
 - Jun 11 - [Republican senators uncover mysterious $1 billion added to budget bill](https://www.yahoo.com/news/republican-senators-uncover-mysterious-1-230617392.html)
 - Jun 11 - [Rand Paul attacks ‘immaturity’ of White House after rescinded picnic invitation, says he’s lost a ‘lot of respect’ for Trump](https://www.yahoo.com/news/rand-paul-attacks-immaturity-white-224703768.html)
+- Jun 11 - [David Murdock, billionaire businessman who twice reshaped NC town, dies at 102](https://www.yahoo.com/news/david-murdock-billionaire-businessman-twice-203534002.html)
 <!-- feed end -->
