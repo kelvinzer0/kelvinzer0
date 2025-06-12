@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Crypto: What's the next milestone for bitcoin and stablecoins?](https://finance.yahoo.com/video/crypto-whats-next-milestone-bitcoin-164221987.html)
-- Jun 12 - [CCTV footage shows moment of Air India crash in Ahmedabad airport](https://www.yahoo.com/news/cctv-footage-shows-moment-air-164123913.html)
+- Jun 12 - [Trump praises Tesla after Musk backtracks in feud](https://finance.yahoo.com/video/trump-praises-tesla-musk-backtracks-172448486.html)
+- Jun 12 - [At least 4 dead, 2 missing after torrential rain floods San Antonio](https://www.yahoo.com/news/least-4-dead-2-missing-170950839.html)
+- Jun 12 - [Air India disaster deals heavy blow to 'world class airline' ambition](https://finance.yahoo.com/news/air-india-disaster-deals-heavy-165620030.html)
+- Jun 12 - [Hegseth All but Confirms Trump Plans to Take Greenland by Force](https://www.yahoo.com/news/hegseth-confirms-trump-plans-greenland-163010778.html)
 - Jun 12 - [30 seconds from take-off to disaster: The doomed Air India flight in full](https://www.yahoo.com/news/doomed-air-india-flight-exploded-120054103.html)
-- Jun 12 - [Man Says He Somehow Survived Air India Plane Crash and Described the Tragedy from His Hospital Bed](https://www.yahoo.com/news/man-says-somehow-survived-air-152522103.html)
-- Jun 12 - [Supreme Court rules for girl with epilepsy in opinion that could affect education access lawsuits](https://www.yahoo.com/news/supreme-court-rules-girl-epilepsy-144232635.html)
 <!-- feed end -->
