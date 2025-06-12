@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 12 - [GOP tax bill would cost poor Americans $1,600 a year and boost highest earners by $12,000, CBO says](https://www.yahoo.com/news/gop-tax-bill-cost-poor-203723948.html)
-- Jun 12 - [The miracle of seat 11A ... how did British passenger survive?](https://www.yahoo.com/news/miracle-seat-11a-did-british-201654850.html)
-- Jun 12 - [“Manhandling” Of Sen. Alex Padilla By Federal Agents In LA Finds Trump Team Spinning Fiction As Justification – Update](https://www.yahoo.com/news/trump-shock-troops-drag-senator-192205086.html)
-- Jun 12 - [Why did Air India plane crash? The theories explained](https://www.yahoo.com/news/why-did-air-india-plane-155233469.html)
-- Jun 12 - [Plea deal ends career of Chicago police officer who struck 14-year-old student](https://www.yahoo.com/news/plea-deal-ends-career-chicago-193000376.html)
+- Jun 12 - ['Now I know why Elon doesn't like me so much': Trump takes another swipe at Musk](https://www.yahoo.com/news/now-know-why-elon-doesnt-202645045.html)
+- Jun 12 - [Fed unlikely to cut rates in September, says market expert](https://finance.yahoo.com/video/fed-unlikely-cut-rates-september-195826613.html)
+- Jun 12 - [Before crash, Air India spent years attempting a turnaround after emerging from government control](https://www.yahoo.com/news/crash-air-india-spent-years-192316216.html)
+- Jun 12 - [Video shows ‘nothing working’ on Air India plane](https://www.yahoo.com/news/video-shows-nothing-working-air-180001190.html)
 <!-- feed end -->
