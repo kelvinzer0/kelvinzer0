@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Trump supporters, this is what you're cheering as his deportation scheme unfolds | Opinion](https://www.yahoo.com/news/trump-supporters-youre-cheering-deportation-083050966.html)
-- Jun 12 - [U.S. funding cuts to Antarctic research sparks climate fears](https://www.yahoo.com/news/u-funding-cuts-antarctic-research-082945322.html)
-- Jun 12 - [Russian drones strike Ukrainian city of Kharkiv, injuring 14 people](https://www.yahoo.com/news/russian-drones-strike-ukrainian-city-061416855.html)
-- Jun 12 - [India to tighten remittance rules, bar offshore time deposits, sources say](https://finance.yahoo.com/news/india-tighten-remittance-rules-bar-052116864.html)
-- Jun 12 - [In a Ukrainian strip club, the war is laid bare](https://www.yahoo.com/news/ukrainian-strip-club-war-laid-024150459.html)
+- Jun 12 - [Crypto Weekly: from stablecoins to Syria](https://finance.yahoo.com/video/crypto-weekly-stablecoins-syria-100103893.html)
+- Jun 12 - [6 toilet habit changes you should always see a doctor about](https://www.yahoo.com/lifestyle/article/toilet-habits-changes-blood-stool-urine-doctor-093435498.html)
+- Jun 12 - [Wings & Wheels brings aircraft, classic cars, historic boats & food trucks to Sheboygan airport on Father's Day](https://www.yahoo.com/news/wings-wheels-brings-aircraft-classic-093049002.html)
+- Jun 12 - [Americans flunk retirement literacy quiz. Here's why it matters.](https://finance.yahoo.com/news/americans-flunk-retirement-literacy-quiz-heres-why-it-matters-090000055.html)
+- Jun 12 - [Las Vegas police issue dispersal order for protestors in downtown area](https://www.yahoo.com/news/las-vegas-police-issue-dispersal-042759600.html)
 <!-- feed end -->
