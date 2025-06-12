@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 12 - [California Sen. Alex Padilla handcuffed at Noem news conference in LA](https://www.yahoo.com/news/california-sen-alex-padilla-handcuffed-183310896.html)
+- Jun 12 - [Democrats criticize latest effort by Congress to regulate college sports as setback for athletes](https://www.yahoo.com/news/democrats-criticize-latest-effort-congress-182907049.html)
 - Jun 12 - [Trump praises Tesla after Musk backtracks in feud](https://finance.yahoo.com/video/trump-praises-tesla-musk-backtracks-172448486.html)
-- Jun 12 - [At least 4 dead, 2 missing after torrential rain floods San Antonio](https://www.yahoo.com/news/least-4-dead-2-missing-170950839.html)
-- Jun 12 - [Air India disaster deals heavy blow to 'world class airline' ambition](https://finance.yahoo.com/news/air-india-disaster-deals-heavy-165620030.html)
-- Jun 12 - [Hegseth All but Confirms Trump Plans to Take Greenland by Force](https://www.yahoo.com/news/hegseth-confirms-trump-plans-greenland-163010778.html)
+- Jun 12 - [CCTV shows take-off and crash of Air India plane in Ahmedabad](https://www.yahoo.com/news/cctv-shows-off-crash-air-172045264.html)
 - Jun 12 - [30 seconds from take-off to disaster: The doomed Air India flight in full](https://www.yahoo.com/news/doomed-air-india-flight-exploded-120054103.html)
 <!-- feed end -->
