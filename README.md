@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 11 - [Victoria’s Secret in ‘Recovery Phase’ After Cyber Incident](https://finance.yahoo.com/news/victoria-secret-recovery-phase-cyber-221200585.html)
-- Jun 11 - [Worker who leaked plans to build golf courses in Florida parks files whistleblower suit](https://www.yahoo.com/news/worker-leaked-plans-build-golf-203031830.html)
-- Jun 11 - [About 500 National Guard troops in LA are trained to accompany agents on immigration raids](https://www.yahoo.com/news/national-guard-troops-temporarily-detained-202355581.html)
-- Jun 11 - [Gavin Newsom's Staff Just Destroyed Jon Voight's Rant With A Single "Simpsons" Picture](https://www.yahoo.com/entertainment/articles/gavin-newsoms-press-team-just-184547284.html)
-- Jun 11 - [Massive black bear spotted roaming around Massachusetts neighborhood](https://www.yahoo.com/news/massive-black-bear-spotted-roaming-175404389.html)
+- Jun 12 - [Arena authority awaits appraisal on parcel before negotiations can resume on sale](https://www.yahoo.com/news/arena-authority-awaits-appraisal-parcel-011800218.html)
+- Jun 12 - [Giant Jets Bigger Than The Milky Way Seen Shooting From Black Hole](https://www.yahoo.com/news/giant-jets-bigger-milky-way-004517499.html)
+- Jun 12 - [Kennedy Center’s ‘Les Misérables’ Opening Night Reflects The Trump Takeover: POTUS Walks Red Carpet, Attacks L.A. Protests’ “Radical Left Lunatics”](https://www.yahoo.com/news/kennedy-center-les-mis-rables-001340213.html)
+- Jun 11 - [Republican senators uncover mysterious $1 billion added to budget bill](https://www.yahoo.com/news/republican-senators-uncover-mysterious-1-230617392.html)
+- Jun 11 - [Rand Paul attacks ‘immaturity’ of White House after rescinded picnic invitation, says he’s lost a ‘lot of respect’ for Trump](https://www.yahoo.com/news/rand-paul-attacks-immaturity-white-224703768.html)
 <!-- feed end -->
