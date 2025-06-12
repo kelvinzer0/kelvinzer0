@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [23andme Faces Lawsuit Over Sale of Customer DNA Data](https://www.yahoo.com/news/23andme-faces-lawsuit-over-sale-121608044.html)
-- Jun 12 - [At the scene in Ahmedabad: 'Everyone is running trying to save as many lives as possible'](https://www.yahoo.com/news/scene-ahmedabad-everyone-running-trying-121053410.html)
-- Jun 12 - [Governor Newsom Is Going Viral For Telling Off This Republican Governor With A Single Fact](https://www.yahoo.com/news/governor-newsom-going-viral-telling-120728896.html)
-- Jun 12 - [Texas parents and teachers worry bills to root out liberal sway from public schools pave the way for conservative bias](https://www.yahoo.com/news/texas-parents-teachers-worry-bills-100000511.html)
-- Jun 12 - [Air India says crashed aircraft is Flight AI171, a passenger flight to London Gatwick airport](https://www.yahoo.com/news/air-india-says-crashed-aircraft-092027618.html)
+- Jun 12 - [Boeing plane crash in India: What it means for the aircraft maker](https://finance.yahoo.com/video/boeing-plane-crash-india-means-132225737.html)
+- Jun 12 - [Air India plane crash: reactions from across the world](https://www.yahoo.com/news/air-india-plane-crash-reactions-125110901.html)
+- Jun 12 - [Factbox-Air India disaster is first fatal Boeing 787 accident](https://www.yahoo.com/news/factbox-air-india-disaster-first-124301098.html)
+- Jun 12 - [These Missing Persons Wiki Pages Are So Dark, People Can't Stop Thinking About Them](https://www.yahoo.com/news/missing-persons-wiki-pages-dark-123102021.html)
+- Jun 12 - [This Traveler Was Woken Up on a Red-eye Flight After a Neighbor Started 'Slapping' His Head—and It Happened More Than Once](https://www.yahoo.com/news/traveler-woken-red-eye-flight-122445273.html)
 <!-- feed end -->
