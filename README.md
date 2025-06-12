@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Republicans reject ranked choice voting nationwide. Why?](https://www.yahoo.com/news/republicans-reject-ranked-choice-voting-030001193.html)
 - Jun 12 - [In a Ukrainian strip club, the war is laid bare](https://www.yahoo.com/news/ukrainian-strip-club-war-laid-024150459.html)
 - Jun 11 - [Republican senators uncover mysterious $1 billion added to budget bill](https://www.yahoo.com/news/republican-senators-uncover-mysterious-1-230617392.html)
 - Jun 11 - [Rand Paul attacks ‘immaturity’ of White House after rescinded picnic invitation, says he’s lost a ‘lot of respect’ for Trump](https://www.yahoo.com/news/rand-paul-attacks-immaturity-white-224703768.html)
-- Jun 11 - [David Murdock, billionaire businessman who twice reshaped NC town, dies at 102](https://www.yahoo.com/news/david-murdock-billionaire-businessman-twice-203534002.html)
+- Jun 11 - [North Texas golfer killed, another injured by lightning strike](https://www.yahoo.com/news/north-texas-golfer-killed-another-210327849.html)
+- Jun 11 - [Kennedy replaces fired US CDC panel members, includes anti-vaccine proponents](https://www.yahoo.com/news/us-health-chief-kennedy-names-204723587.html)
 <!-- feed end -->
