@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Supreme Court rules for girl with epilepsy in opinion that could affect education access lawsuits](https://www.yahoo.com/news/supreme-court-rules-girl-epilepsy-144232635.html)
+- Jun 12 - [Man Says He Somehow Survived Air India Plane Crash and Described the Tragedy from His Hospital Bed](https://www.yahoo.com/news/man-says-somehow-survived-air-152522103.html)
+- Jun 12 - [Exclusive-Kennedy's new vaccine adviser was expert witness against Merck vaccine](https://www.yahoo.com/news/exclusive-kennedys-vaccine-adviser-expert-152349812.html)
+- Jun 12 - [Tesla's Texas robotaxi launch: Expect it to be 'low-key'](https://finance.yahoo.com/video/teslas-texas-robotaxi-launch-expect-152125263.html)
+- Jun 12 - [Moment Air India A171 flight appears to crash after take off](https://www.yahoo.com/news/moment-air-india-a171-flight-134425851.html)
 - Jun 12 - [Boeing plane crash in India: What it means for the aircraft maker](https://finance.yahoo.com/video/boeing-plane-crash-india-means-132225737.html)
-- Jun 12 - [Air India plane crash: reactions from across the world](https://www.yahoo.com/news/air-india-plane-crash-reactions-125110901.html)
-- Jun 12 - [Factbox-Air India disaster is first fatal Boeing 787 accident](https://www.yahoo.com/news/factbox-air-india-disaster-first-124301098.html)
-- Jun 12 - [Governor Newsom Is Going Viral For Telling Off This Arkansas Governor With A Single Fact](https://www.yahoo.com/news/governor-newsom-going-viral-telling-120728896.html)
 <!-- feed end -->
