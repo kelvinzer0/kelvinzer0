@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Five dead and aid staff feared kidnapped in Gaza ambush](https://www.yahoo.com/news/five-dead-aid-staff-feared-072703697.html)
+- Jun 12 - [Trump supporters, this is what you're cheering as his deportation scheme unfolds | Opinion](https://www.yahoo.com/news/trump-supporters-youre-cheering-deportation-083050966.html)
+- Jun 12 - [U.S. funding cuts to Antarctic research sparks climate fears](https://www.yahoo.com/news/u-funding-cuts-antarctic-research-082945322.html)
 - Jun 12 - [Russian drones strike Ukrainian city of Kharkiv, injuring 14 people](https://www.yahoo.com/news/russian-drones-strike-ukrainian-city-061416855.html)
 - Jun 12 - [India to tighten remittance rules, bar offshore time deposits, sources say](https://finance.yahoo.com/news/india-tighten-remittance-rules-bar-052116864.html)
-- Jun 12 - [Rand Paul attacks ‘immaturity’ of White House after rescinded picnic invitation, says he’s lost a ‘lot of respect’ for Trump](https://www.yahoo.com/news/rand-paul-attacks-immaturity-white-224703768.html)
 - Jun 12 - [In a Ukrainian strip club, the war is laid bare](https://www.yahoo.com/news/ukrainian-strip-club-war-laid-024150459.html)
 <!-- feed end -->
