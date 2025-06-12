@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Warner Split Is Part of Broader 'Shakeout': Netflix Co-CEO](https://finance.yahoo.com/video/warner-split-part-broader-shakeout-105631593.html)
-- Jun 12 - [6 toilet habit changes you should always see a doctor about](https://www.yahoo.com/lifestyle/article/toilet-habits-changes-blood-stool-urine-doctor-093435498.html)
+- Jun 12 - [23andme Faces Lawsuit Over Sale of Customer DNA Data](https://www.yahoo.com/news/23andme-faces-lawsuit-over-sale-121608044.html)
+- Jun 12 - [At the scene in Ahmedabad: 'Everyone is running trying to save as many lives as possible'](https://www.yahoo.com/news/scene-ahmedabad-everyone-running-trying-121053410.html)
+- Jun 12 - [Governor Newsom Is Going Viral For Telling Off This Republican Governor With A Single Fact](https://www.yahoo.com/news/governor-newsom-going-viral-telling-120728896.html)
+- Jun 12 - [Texas parents and teachers worry bills to root out liberal sway from public schools pave the way for conservative bias](https://www.yahoo.com/news/texas-parents-teachers-worry-bills-100000511.html)
 - Jun 12 - [Air India says crashed aircraft is Flight AI171, a passenger flight to London Gatwick airport](https://www.yahoo.com/news/air-india-says-crashed-aircraft-092027618.html)
-- Jun 12 - ['Many killed' as Air India plane with 242 on board crashes near India's Ahmedabad airport](https://www.yahoo.com/news/plane-crashes-indias-ahmedabad-airport-083449975.html)
-- Jun 12 - [India to tighten remittance rules, bar offshore time deposits, sources say](https://finance.yahoo.com/news/india-tighten-remittance-rules-bar-052116864.html)
 <!-- feed end -->
