@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [Boeing 787 Jet Bound for London Crashes in India With 242 on Board](https://finance.yahoo.com/video/plane-bound-london-crashes-western-094200929.html)
-- Jun 12 - [Goldman's Rosner: No Need to Go Into the 30-Year Bond](https://finance.yahoo.com/video/goldmans-rosner-no-30-bond-132358021.html)
+- Jun 12 - [Supreme Court rules for girl with epilepsy in opinion that could affect education access lawsuits](https://www.yahoo.com/news/supreme-court-rules-girl-epilepsy-144232635.html)
+- Jun 12 - [Boeing plane crash in India: What it means for the aircraft maker](https://finance.yahoo.com/video/boeing-plane-crash-india-means-132225737.html)
+- Jun 12 - [Air India plane crash: reactions from across the world](https://www.yahoo.com/news/air-india-plane-crash-reactions-125110901.html)
 - Jun 12 - [Factbox-Air India disaster is first fatal Boeing 787 accident](https://www.yahoo.com/news/factbox-air-india-disaster-first-124301098.html)
 - Jun 12 - [Governor Newsom Is Going Viral For Telling Off This Arkansas Governor With A Single Fact](https://www.yahoo.com/news/governor-newsom-going-viral-telling-120728896.html)
-- Jun 12 - [How doomed Air India flight exploded in less than 60 seconds](https://www.yahoo.com/news/doomed-air-india-flight-exploded-120054103.html)
 <!-- feed end -->
