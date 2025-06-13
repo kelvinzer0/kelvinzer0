@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Evidence of rodent infestation found at area Kroger location. What we know](https://www.yahoo.com/news/evidence-rodent-infestation-found-area-164055787.html)
+- Jun 13 - [US citizen blasts ICE after being detained as he drove to work: ‘They’re the criminals’](https://www.yahoo.com/news/us-citizen-blasts-ice-being-174545748.html)
+- Jun 13 - [Trump Accidentally Reveals a Dark MAGA Truth—and Hands Dems an Opening](https://www.yahoo.com/news/trump-accidentally-reveals-dark-maga-171733730.html)
 - Jun 13 - [Air India Pilot's Last Words To Air Traffic Control Are A Chilling Prelude To Tragedy](https://www.yahoo.com/news/air-india-pilots-last-words-154025369.html)
 - Jun 13 - [Crypto legislation just had a 'gigantic' week. Here's why.](https://finance.yahoo.com/video/crypto-legislation-just-had-gigantic-153354946.html)
-- Jun 13 - [Molotov cocktail police attacker jailed for life](https://www.yahoo.com/news/molotov-cocktail-police-attacker-jailed-142904647.html)
-- Jun 13 - [Judge blocks Trump’s election executive order, siding with Democrats who called it overreach](https://www.yahoo.com/news/judge-blocks-trump-election-executive-125247315.html)
+- Jun 13 - [How Tehran ‘decapitations’ signalled the start of Israel’s onslaught](https://www.yahoo.com/news/hour-hour-israel-three-pronged-143033789.html)
 <!-- feed end -->
