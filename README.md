@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [From a Russian prison, US schoolteacher tells lawyers he was grabbed by Moscow's soldiers](https://www.yahoo.com/news/russian-prison-us-schoolteacher-tells-135357108.html)
-- Jun 13 - [Boeing 787 blackbox reportedly recovered from Air India crash](https://finance.yahoo.com/video/boeing-787-blackbox-reportedly-recovered-134547139.html)
+- Jun 13 - [No immigration changes under way for farm, hospitality workers, Washington Post reports](https://www.yahoo.com/news/no-immigration-changes-under-way-142516116.html)
+- Jun 13 - [Should people be paid to donate blood? Yahoo readers have their say](https://www.yahoo.com/lifestyle/article/blood-donation-payment-nhs-shortage-poll-results-142002103.html)
+- Jun 13 - [Swiss government approves package of measures for closer EU ties](https://finance.yahoo.com/news/swiss-government-approves-package-measures-141320581.html)
+- Jun 13 - [Judge blocks Trump’s election executive order, siding with Democrats who called it overreach](https://www.yahoo.com/news/judge-blocks-trump-election-executive-125247315.html)
 - Jun 13 - [Hamas says Iran 'paying the price' for supporting Gaza militants](https://www.yahoo.com/news/hamas-says-iran-paying-price-121457309.html)
-- Jun 13 - [Air India's sole crash survivor narrates his escape](https://www.yahoo.com/news/air-indias-sole-crash-survivor-112034859.html)
-- Jun 13 - [300 workers blindsided by Illinois plant’s abrupt closure — after it served as a local linchpin for 60 years](https://www.yahoo.com/news/300-workers-blindsided-illinois-plant-103100447.html)
 <!-- feed end -->
