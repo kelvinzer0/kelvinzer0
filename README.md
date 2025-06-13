@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Judge blocks Trump’s election executive order, siding with Democrats who called it overreach](https://www.yahoo.com/news/judge-blocks-trump-election-executive-125247315.html)
-- Jun 13 - [Topeka police arrest Pearson Carter III, 19, in city’s latest homicide](https://www.yahoo.com/news/topeka-police-arrest-pearson-carter-124239087.html)
-- Jun 13 - [Israeli strikes kill some of Iran’s most powerful men, including military and nuclear leaders](https://www.yahoo.com/news/hossein-salami-one-iran-most-050101977.html)
+- Jun 13 - [From a Russian prison, US schoolteacher tells lawyers he was grabbed by Moscow's soldiers](https://www.yahoo.com/news/russian-prison-us-schoolteacher-tells-135357108.html)
+- Jun 13 - [Boeing 787 blackbox reportedly recovered from Air India crash](https://finance.yahoo.com/video/boeing-787-blackbox-reportedly-recovered-134547139.html)
+- Jun 13 - [Hamas says Iran 'paying the price' for supporting Gaza militants](https://www.yahoo.com/news/hamas-says-iran-paying-price-121457309.html)
 - Jun 13 - [Air India's sole crash survivor narrates his escape](https://www.yahoo.com/news/air-indias-sole-crash-survivor-112034859.html)
 - Jun 13 - [300 workers blindsided by Illinois plant’s abrupt closure — after it served as a local linchpin for 60 years](https://www.yahoo.com/news/300-workers-blindsided-illinois-plant-103100447.html)
 <!-- feed end -->
