@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
 - Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
-- Jun 13 - [Americans are feeling better about the outlook for inflation](https://finance.yahoo.com/video/americans-feeling-better-outlook-inflation-211715853.html)
-- Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
 - Jun 13 - [Gavin Newsom Just Absolutely Dragged Trump's Military Parade, And Trump's Really, Really Not Gonna Like It](https://www.yahoo.com/news/gavin-newsoms-comments-trumps-military-185917110.html)
+- Jun 13 - [McDonald's settles Byron Allen's $10 billion lawsuit over ads for Black-owned media](https://finance.yahoo.com/news/mcdonalds-settles-byron-allens-10-184020900.html)
+- Jun 13 - [Bonnaroo festival grounds closed due to weather, which could impact The Farm 'for hours.' Here's the latest updates](https://www.yahoo.com/news/bonnaroo-festival-grounds-evacuated-due-181414053.html)
+- Jun 13 - [The overlooked Army division that held off the Germans during the Battle of the Bulge](https://www.yahoo.com/news/overlooked-army-division-held-off-175643142.html)
 <!-- feed end -->
