@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
+- Jun 13 - [McDonald's settles Byron Allen's $10 billion lawsuit over commitment to Black-owned media](https://finance.yahoo.com/news/mcdonalds-settles-byron-allens-10-184020900.html)
 - Jun 13 - [US citizen blasts ICE after being detained as he drove to work: ‘They’re the criminals’](https://www.yahoo.com/news/us-citizen-blasts-ice-being-174545748.html)
+- Jun 13 - [Jesse Watters’ Dig At Simone Biles Hits A New Low — And It’s ‘Incredibly Damaging’](https://www.yahoo.com/news/jesse-watters-dig-simone-biles-181452535.html)
 - Jun 13 - [Trump Accidentally Reveals a Dark MAGA Truth—and Hands Dems an Opening](https://www.yahoo.com/news/trump-accidentally-reveals-dark-maga-171733730.html)
-- Jun 13 - [Air India Pilot's Last Words To Air Traffic Control Are A Chilling Prelude To Tragedy](https://www.yahoo.com/news/air-india-pilots-last-words-154025369.html)
-- Jun 13 - [Crypto legislation just had a 'gigantic' week. Here's why.](https://finance.yahoo.com/video/crypto-legislation-just-had-gigantic-153354946.html)
-- Jun 13 - [How Tehran ‘decapitations’ signalled the start of Israel’s onslaught](https://www.yahoo.com/news/hour-hour-israel-three-pronged-143033789.html)
 <!-- feed end -->
