@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Painful wait for Ukrainians to learn if returned bodies are loved ones](https://www.yahoo.com/news/painful-wait-ukrainians-learn-returned-122518490.html)
+- Jun 13 - [Judge blocks Trump’s election executive order, siding with Democrats who called it overreach](https://www.yahoo.com/news/judge-blocks-trump-election-executive-125247315.html)
+- Jun 13 - [Topeka police arrest Pearson Carter III, 19, in city’s latest homicide](https://www.yahoo.com/news/topeka-police-arrest-pearson-carter-124239087.html)
+- Jun 13 - [Israeli strikes kill some of Iran’s most powerful men, including military and nuclear leaders](https://www.yahoo.com/news/hossein-salami-one-iran-most-050101977.html)
 - Jun 13 - [Air India's sole crash survivor narrates his escape](https://www.yahoo.com/news/air-indias-sole-crash-survivor-112034859.html)
-- Jun 13 - [Billionaire friend of Prince of Wales dies after ‘swallowing a bee’](https://www.yahoo.com/entertainment/articles/billionaire-friend-prince-wales-dies-104952438.html)
-- Jun 13 - [This Florida metro is the foreclosure capital of the US — here's what is behind the crisis](https://finance.yahoo.com/news/florida-metro-foreclosure-capital-us-104300163.html)
 - Jun 13 - [300 workers blindsided by Illinois plant’s abrupt closure — after it served as a local linchpin for 60 years](https://www.yahoo.com/news/300-workers-blindsided-illinois-plant-103100447.html)
 <!-- feed end -->
