@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [Evidence of rodent infestation found at area Kroger location. What we know](https://www.yahoo.com/news/evidence-rodent-infestation-found-area-164055787.html)
+- Jun 13 - [Air India Pilot's Last Words To Air Traffic Control Are A Chilling Prelude To Tragedy](https://www.yahoo.com/news/air-india-pilots-last-words-154025369.html)
 - Jun 13 - [Crypto legislation just had a 'gigantic' week. Here's why.](https://finance.yahoo.com/video/crypto-legislation-just-had-gigantic-153354946.html)
-- Jun 13 - [How Microsoft plays both 'offense and defense'](https://finance.yahoo.com/video/microsoft-plays-both-offense-defense-151750955.html)
 - Jun 13 - [Molotov cocktail police attacker jailed for life](https://www.yahoo.com/news/molotov-cocktail-police-attacker-jailed-142904647.html)
-- Jun 13 - [No immigration changes under way for farm, hospitality workers, Washington Post reports](https://www.yahoo.com/news/no-immigration-changes-under-way-142516116.html)
 - Jun 13 - [Judge blocks Trump’s election executive order, siding with Democrats who called it overreach](https://www.yahoo.com/news/judge-blocks-trump-election-executive-125247315.html)
 <!-- feed end -->
