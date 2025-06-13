@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [A miracle in seat 11A: What we know about the sole survivor of Air India crash Vishwash Kumar Ramesh](https://www.yahoo.com/news/miracle-seat-11a-know-sole-211144474.html)
-- Jun 13 - [Trump Regains Control Of Troops In L.A. From Newsom Thanks To Appeals Court; Governor Was To Take Command Of National Guard On Friday – Updated](https://www.yahoo.com/news/newsom-beats-trump-court-curtails-011440493.html)
+- Jun 13 - [Gold hits nearly two-month high as Israel attack spurs safe-haven demand](https://uk.finance.yahoo.com/news/oil-prices-gold-pound-dollar-083400517.html)
+- Jun 13 - [BNP Paribas: EUR/USD Can Keep Heading Higher](https://finance.yahoo.com/video/bnp-paribas-eur-usd-keep-075852628.html)
 - Jun 13 - [The longest-serving legislative leader in US history will be sentenced on corruption charges](https://www.yahoo.com/news/longest-serving-legislative-leader-us-035307095.html)
+- Jun 13 - [Homeowners in Houston subdivision say they fear foreclosure after fines, legal fees from HOA quickly escalates](https://www.yahoo.com/news/homeowners-houston-subdivision-fear-foreclosure-032119222.html)
 - Jun 13 - [Antonio Brown reportedly wanted for attempted murder charge after boxing incident in May](https://sports.yahoo.com/nfl/article/antonio-brown-reportedly-wanted-for-attempted-murder-charge-after-boxing-incident-in-may-015956644.html)
-- Jun 12 - [GOP tax bill would cost poor Americans $1,600 a year and boost highest earners by $12,000, CBO says](https://www.yahoo.com/news/gop-tax-bill-cost-poor-203723948.html)
 <!-- feed end -->
