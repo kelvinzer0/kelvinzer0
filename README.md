@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Family of 4 Were Vacationing When They Died in Air India Crash, Relatives Say as They Slam U.K. Government for 'No Support'](https://www.yahoo.com/news/family-4-were-vacationing-died-194656056.html)
-- Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
-- Jun 13 - [Gavin Newsom's Comments About Trump's Military Parade Are Going Viral: "That's About As Small As It Gets"](https://www.yahoo.com/news/gavin-newsoms-comments-trumps-military-185917110.html)
-- Jun 13 - [Interceptions overhead in Tel Aviv following an Iranian missile attack on Israel](https://www.yahoo.com/news/interceptions-overhead-tel-aviv-following-184853466.html)
-- Jun 13 - [McDonald's settles Byron Allen's $10 billion lawsuit over commitment to Black-owned media](https://finance.yahoo.com/news/mcdonalds-settles-byron-allens-10-184020900.html)
+- Jun 13 - [How to maximize returns if stocks don't rise much from here](https://finance.yahoo.com/video/maximize-returns-stocks-dont-rise-205904465.html)
+- Jun 13 - [Gavin Newsom Just Absolutely Dragged Trump's Military Parade, And Trump's Really, Really Not Gonna Like It](https://www.yahoo.com/news/gavin-newsoms-comments-trumps-military-185917110.html)
+- Jun 13 - [McDonald's settles Byron Allen's $10 billion lawsuit over ads for Black-owned media](https://finance.yahoo.com/news/mcdonalds-settles-byron-allens-10-184020900.html)
+- Jun 13 - [Trump Accidentally Reveals a Dark MAGA Truth—and Hands Dems an Opening](https://www.yahoo.com/news/trump-accidentally-reveals-dark-maga-171733730.html)
+- Jun 13 - [Noem attends ICE raid at home of pregnant California mother](https://www.yahoo.com/news/noem-attends-ice-raid-home-154544272.html)
 <!-- feed end -->
