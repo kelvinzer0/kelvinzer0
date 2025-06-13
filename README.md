@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [How to maximize returns if stocks don't rise much from here](https://finance.yahoo.com/video/maximize-returns-stocks-dont-rise-205904465.html)
+- Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
+- Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
+- Jun 13 - [Americans are feeling better about the outlook for inflation](https://finance.yahoo.com/video/americans-feeling-better-outlook-inflation-211715853.html)
+- Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
 - Jun 13 - [Gavin Newsom Just Absolutely Dragged Trump's Military Parade, And Trump's Really, Really Not Gonna Like It](https://www.yahoo.com/news/gavin-newsoms-comments-trumps-military-185917110.html)
-- Jun 13 - [McDonald's settles Byron Allen's $10 billion lawsuit over ads for Black-owned media](https://finance.yahoo.com/news/mcdonalds-settles-byron-allens-10-184020900.html)
-- Jun 13 - [Trump Accidentally Reveals a Dark MAGA Truth—and Hands Dems an Opening](https://www.yahoo.com/news/trump-accidentally-reveals-dark-maga-171733730.html)
-- Jun 13 - [Noem attends ICE raid at home of pregnant California mother](https://www.yahoo.com/news/noem-attends-ice-raid-home-154544272.html)
 <!-- feed end -->
