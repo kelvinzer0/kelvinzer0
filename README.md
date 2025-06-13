@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 13 - [Crypto legislation just had a 'gigantic' week. Here's why.](https://finance.yahoo.com/video/crypto-legislation-just-had-gigantic-153354946.html)
+- Jun 13 - [How Microsoft plays both 'offense and defense'](https://finance.yahoo.com/video/microsoft-plays-both-offense-defense-151750955.html)
+- Jun 13 - [Molotov cocktail police attacker jailed for life](https://www.yahoo.com/news/molotov-cocktail-police-attacker-jailed-142904647.html)
 - Jun 13 - [No immigration changes under way for farm, hospitality workers, Washington Post reports](https://www.yahoo.com/news/no-immigration-changes-under-way-142516116.html)
-- Jun 13 - [Should people be paid to donate blood? Yahoo readers have their say](https://www.yahoo.com/lifestyle/article/blood-donation-payment-nhs-shortage-poll-results-142002103.html)
-- Jun 13 - [Swiss government approves package of measures for closer EU ties](https://finance.yahoo.com/news/swiss-government-approves-package-measures-141320581.html)
 - Jun 13 - [Judge blocks Trump’s election executive order, siding with Democrats who called it overreach](https://www.yahoo.com/news/judge-blocks-trump-election-executive-125247315.html)
-- Jun 13 - [Hamas says Iran 'paying the price' for supporting Gaza militants](https://www.yahoo.com/news/hamas-says-iran-paying-price-121457309.html)
 <!-- feed end -->
