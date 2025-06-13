@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Visionaries Club Co-Founder Lacher at Founders Forum](https://finance.yahoo.com/video/visionaries-club-co-founder-lacher-060115458.html)
 - Jun 13 - [A miracle in seat 11A: What we know about the sole survivor of Air India crash Vishwash Kumar Ramesh](https://www.yahoo.com/news/miracle-seat-11a-know-sole-211144474.html)
 - Jun 13 - [The longest-serving legislative leader in US history will be sentenced on corruption charges](https://www.yahoo.com/news/longest-serving-legislative-leader-us-035307095.html)
-- Jun 13 - [EPPD: Man dead after jumping out of vehicle while having ‘verbal argument’](https://www.yahoo.com/news/eppd-man-dead-jumping-vehicle-013131130.html)
+- Jun 13 - [Antonio Brown reportedly wanted for attempted murder charge after boxing incident in May](https://sports.yahoo.com/nfl/article/antonio-brown-reportedly-wanted-for-attempted-murder-charge-after-boxing-incident-in-may-015956644.html)
+- Jun 12 - [Former celebrity lawyer Michael Avenatti gets nearly eight more years in prison at resentencing](https://www.yahoo.com/news/former-celebrity-lawyer-michael-avenatti-211529279.html)
 - Jun 12 - [GOP tax bill would cost poor Americans $1,600 a year and boost highest earners by $12,000, CBO says](https://www.yahoo.com/news/gop-tax-bill-cost-poor-203723948.html)
 <!-- feed end -->
