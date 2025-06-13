@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Marjorie Taylor Greene rips Trump Mideast policy saying ‘Americans don’t want to bomb Iran’ for Israel](https://www.yahoo.com/news/marjorie-taylor-greene-rips-trump-195335502.html)
-- Jun 13 - [Dollar and other safe havens rise as Israel strikes Iran](https://finance.yahoo.com/news/dollar-other-safe-havens-rise-010352151.html)
+- Jun 13 - [Scientists Found Cancer in a Dinosaur – And It Might Help Save Human Lives](https://www.yahoo.com/news/scientists-found-cancer-dinosaur-might-024002740.html)
 - Jun 13 - [Israel attacks Iran's capital with explosions booming across Tehran](https://www.yahoo.com/news/explosions-ring-across-iran-capital-001346234.html)
 - Jun 12 - [GOP tax bill would cost poor Americans $1,600 a year and boost highest earners by $12,000, CBO says](https://www.yahoo.com/news/gop-tax-bill-cost-poor-203723948.html)
 - Jun 12 - ['Now I know why Elon doesn't like me so much': Trump takes another swipe at Musk](https://www.yahoo.com/news/now-know-why-elon-doesnt-202645045.html)
+- Jun 12 - [Why did Air India plane crash? The theories explained](https://www.yahoo.com/news/why-did-air-india-plane-155233469.html)
 <!-- feed end -->
