@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 12 - [GOP tax bill would cost poor Americans $1,600 a year and boost highest earners by $12,000, CBO says](https://www.yahoo.com/news/gop-tax-bill-cost-poor-203723948.html)
-- Jun 12 - [US says China's Huawei can't make more than 200,000 AI chips in 2025](https://tech.yahoo.com/ai/articles/us-says-chinas-huawei-cant-184914813.html)
-- Jun 12 - [Video shows ‘nothing working’ on Air India plane](https://www.yahoo.com/news/video-shows-nothing-working-air-180001190.html)
-- Jun 12 - [Democrat tears into ’embarrassment’ Hegseth: ‘Get the hell out’](https://www.yahoo.com/news/democrat-tears-embarrassment-hegseth-hell-175803031.html)
-- Jun 12 - [Here's What Happens to Your Blood Pressure When You Eat Blueberries Every Day](https://health.yahoo.com/articles/heres-happens-blood-pressure-eat-175000475.html)
+- Jun 13 - [UK finally catching up with 'Global Crypto Hub' pledge, says Coinbase | Future Focus](https://finance.yahoo.com/video/uk-finally-catching-global-crypto-050038185.html)
+- Jun 13 - [A miracle in seat 11A: What we know about the sole survivor of Air India crash Vishwash Kumar Ramesh](https://www.yahoo.com/news/miracle-seat-11a-know-sole-211144474.html)
+- Jun 13 - [The longest-serving legislative leader in US history will be sentenced on corruption charges](https://www.yahoo.com/news/longest-serving-legislative-leader-us-035307095.html)
+- Jun 13 - [Antonio Brown reportedly wanted for attempted murder charge after boxing incident in May](https://sports.yahoo.com/nfl/article/antonio-brown-reportedly-wanted-for-attempted-murder-charge-after-boxing-incident-in-may-015956644.html)
+- Jun 13 - [Marjorie Taylor Greene rips Trump Mideast policy saying ‘Americans don’t want to bomb Iran’ for Israel](https://www.yahoo.com/news/marjorie-taylor-greene-rips-trump-195335502.html)
 <!-- feed end -->
