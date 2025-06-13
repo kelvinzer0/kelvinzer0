@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Scientists Found Cancer in a Dinosaur – And It Might Help Save Human Lives](https://www.yahoo.com/news/scientists-found-cancer-dinosaur-might-024002740.html)
-- Jun 13 - [Israel attacks Iran's capital with explosions booming across Tehran](https://www.yahoo.com/news/explosions-ring-across-iran-capital-001346234.html)
 - Jun 12 - [GOP tax bill would cost poor Americans $1,600 a year and boost highest earners by $12,000, CBO says](https://www.yahoo.com/news/gop-tax-bill-cost-poor-203723948.html)
-- Jun 12 - ['Now I know why Elon doesn't like me so much': Trump takes another swipe at Musk](https://www.yahoo.com/news/now-know-why-elon-doesnt-202645045.html)
-- Jun 12 - [Why did Air India plane crash? The theories explained](https://www.yahoo.com/news/why-did-air-india-plane-155233469.html)
+- Jun 12 - [US says China's Huawei can't make more than 200,000 AI chips in 2025](https://tech.yahoo.com/ai/articles/us-says-chinas-huawei-cant-184914813.html)
+- Jun 12 - [Video shows ‘nothing working’ on Air India plane](https://www.yahoo.com/news/video-shows-nothing-working-air-180001190.html)
+- Jun 12 - [Democrat tears into ’embarrassment’ Hegseth: ‘Get the hell out’](https://www.yahoo.com/news/democrat-tears-embarrassment-hegseth-hell-175803031.html)
+- Jun 12 - [Here's What Happens to Your Blood Pressure When You Eat Blueberries Every Day](https://health.yahoo.com/articles/heres-happens-blood-pressure-eat-175000475.html)
 <!-- feed end -->
