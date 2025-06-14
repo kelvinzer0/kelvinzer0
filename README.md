@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - ['No Kings' flyers found inside car of suspect in 'targeted' Minnesota shootings](https://www.yahoo.com/news/no-kings-flyers-found-inside-172430622.html)
+- Jun 14 - [John Hoffman’s Wife 'Threw Herself in Front' of Their Daughter to Protect Her in ‘Politically Motivated Assassination,' Family Says](https://www.yahoo.com/news/john-hoffman-wife-threw-herself-174546477.html)
+- Jun 14 - [Egypt delays opening of grand museum due to regional turmoil](https://www.yahoo.com/news/egypt-delays-opening-grand-museum-172918522.html)
 - Jun 14 - [Co-pilot error suspected in new Air India crash theory](https://www.yahoo.com/news/co-pilot-error-suspected-air-151829483.html)
-- Jun 14 - [Minnesota lawmakers shot in suspected targeted attacks; Rep. Hortman and her husband killed](https://www.yahoo.com/news/minnesota-lawmakers-shot-suspected-targeted-162001888.html)
-- Jun 14 - [John Fetterman and Bill Maher agree chaos in LA and Dem reaction to riots will be 'good for Trump'](https://www.yahoo.com/news/john-fetterman-bill-maher-agree-155909694.html)
-- Jun 14 - [Iran’s supreme leader facing fury from within](https://www.yahoo.com/news/iran-supreme-leader-facing-fury-154051843.html)
+- Jun 14 - [MSNBC Host Cracks Up Over Trump Email About Parade: 'Sorry, That's A Funny Sentence'](https://www.yahoo.com/news/msnbc-host-cracks-over-trump-152422952.html)
+- Jun 14 - [Trump knocks California on its heels: ‘He’s pulling the trigger on everything all at once.’](https://www.yahoo.com/news/week-trump-rocked-california-pulling-150000334.html)
 <!-- feed end -->
