@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 14 - [Making private assets accessible to your 401(k): Expert weighs in](https://finance.yahoo.com/video/making-private-assets-accessible-401-130058315.html)
+- Jun 14 - [Thousands celebrate South Korean Pride parade in Seoul](https://www.yahoo.com/news/thousands-celebrate-south-korean-pride-123144558.html)
+- Jun 14 - [Trail cameras capture incredible footage of one-of-a-kind herd for first time in years: 'Let's take care of them'](https://www.yahoo.com/news/trail-cameras-capture-incredible-footage-104507227.html)
 - Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
 - Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
-- Jun 13 - [Heartbreaking Update on Investigation Into Death of Brett Gardner’s Son](https://www.yahoo.com/news/heartbreaking-investigation-death-brett-gardner-210000584.html)
-- Jun 13 - [Trump Is Calling Handcuffed Senator Vile Racial Slur: Author](https://www.yahoo.com/news/trump-calling-handcuffed-senator-vile-190454799.html)
-- Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
 <!-- feed end -->
