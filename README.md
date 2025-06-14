@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 13 - [Byron Allen Reaches Settlement in $10 Billion Lawsuit Against McDonald’s Over TV Advertising](https://www.yahoo.com/news/byron-allen-reaches-settlement-10-232152562.html)
+- Jun 14 - [Police arrest roughly 60 veterans and military family members protesting outside US Capitol after group crosses police line](https://www.yahoo.com/news/police-arrest-roughly-60-protesters-015048673.html)
+- Jun 14 - [An Investor Who Took Out $150,000 In Loans To Buy Bitcoin Gives A Three-Year Update. But Everyone Just Wants To Know—How'd He Get 0% Loans?](https://finance.yahoo.com/news/investor-took-150-000-loans-010115275.html)
 - Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
-- Jun 13 - [Exclusive-Google, Scale AI's largest customer, plans split after Meta deal, sources say](https://finance.yahoo.com/news/exclusive-google-scale-ais-largest-213330621.html)
 - Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
-- Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
+- Jun 13 - [How Karen Read pays her hefty defense bill in the high-profile murder trial](https://www.yahoo.com/news/karen-read-pays-her-hefty-211109392.html)
 <!-- feed end -->
