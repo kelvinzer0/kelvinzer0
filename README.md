@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Israel warns ‘Tehran will burn’ if Iran continues firing missiles](https://www.yahoo.com/news/israel-warns-tehran-burn-iran-100206181.html)
-- Jun 14 - [Trump's DC military parade 2025: Start times, schedule, route, map, how to watch](https://www.yahoo.com/news/trumps-dc-military-parade-2025-095838794.html)
+- Jun 14 - [Heading to a Protest This Weekend? Lock Down Your Phone First](https://tech.yahoo.com/cybersecurity/articles/heading-protest-weekend-lock-down-100000588.html)
+- Jun 14 - [Watch live: King celebrates official birthday with Trooping the Colour parade](https://www.yahoo.com/news/watch-live-king-celebrates-official-084528656.html)
+- Jun 13 - [Byron Allen Reaches Settlement in $10 Billion Lawsuit Against McDonald’s Over TV Advertising](https://www.yahoo.com/news/byron-allen-reaches-settlement-10-232152562.html)
 - Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
-- Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
-- Jun 13 - [Trump Is Calling Handcuffed Senator Vile Racial Slur: Author](https://www.yahoo.com/news/trump-calling-handcuffed-senator-vile-190454799.html)
+- Jun 13 - [Can You Guess How Many People Retire With $1 Million Saved? Hint: Way Fewer Than You Think](https://finance.yahoo.com/news/guess-many-people-retire-1-203118101.html)
 <!-- feed end -->
