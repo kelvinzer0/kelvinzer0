@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Making private assets accessible to your 401(k): Expert weighs in](https://finance.yahoo.com/video/making-private-assets-accessible-401-130058315.html)
-- Jun 14 - [Thousands celebrate South Korean Pride parade in Seoul](https://www.yahoo.com/news/thousands-celebrate-south-korean-pride-123144558.html)
+- Jun 14 - [Man arrested over girl's suspected drug death](https://www.yahoo.com/news/man-arrested-over-girls-suspected-134529126.html)
 - Jun 14 - [Trail cameras capture incredible footage of one-of-a-kind herd for first time in years: 'Let's take care of them'](https://www.yahoo.com/news/trail-cameras-capture-incredible-footage-104507227.html)
+- Jun 13 - [4 Nutrients You Should Be Eating to Help Lower Dementia Risk, According to a New Study](https://health.yahoo.com/articles/4-nutrients-eating-help-lower-222843997.html)
 - Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
 - Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
 <!-- feed end -->
