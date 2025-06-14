@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Minnesota Gov. Tim Walz: former House speaker and husband killed in politically motivated shooting](https://www.yahoo.com/news/minnesota-mayor-says-two-state-142453861.html)
+- Jun 14 - [Choy sues Hawai‘i Tourism Authority for ‘retaliation,’ seeks reinstatement](https://www.yahoo.com/news/choy-sues-hawai-tourism-authority-160300860.html)
+- Jun 14 - [Police say they have recovered writings in a car used by suspect in shooting of Minnesota lawmakers](https://www.yahoo.com/news/minnesota-mayor-says-two-state-142453861.html)
 - Jun 14 - [Semi Truck Falls Off Overpass, Driver Jumps from Dangling Cab](https://www.yahoo.com/news/semi-truck-falls-off-overpass-134953108.html)
-- Jun 14 - [55-year-old dies in Northside shooting, police say](https://www.yahoo.com/news/55-old-dies-northside-shooting-133750845.html)
+- Jun 14 - [14,000-year-old mummified ‘puppies’ weren’t dogs at all, new research shows](https://www.yahoo.com/news/14-000-old-mummified-puppies-134502796.html)
 - Jun 14 - [Russia and Ukraine exchange prisoners of war, but Moscow received no war dead, Russia says](https://www.yahoo.com/news/russia-ukraine-exchange-prisoners-war-122604590.html)
-- Jun 14 - [Download festival rockers told to take off smartwatches after moshpits spark emergency alerts](https://www.yahoo.com/news/download-festivalgoers-warned-against-making-120051623.html)
 <!-- feed end -->
