@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 14 - [Police arrest roughly 60 veterans and military family members protesting outside US Capitol after group crosses police line](https://www.yahoo.com/news/police-arrest-roughly-60-protesters-015048673.html)
-- Jun 14 - [An Investor Who Took Out $150,000 In Loans To Buy Bitcoin Gives A Three-Year Update. But Everyone Just Wants To Know—How'd He Get 0% Loans?](https://finance.yahoo.com/news/investor-took-150-000-loans-010115275.html)
+- Jun 13 - [Marines are seen standing guard outside a federal building in Los Angeles](https://www.yahoo.com/news/marines-seen-standing-guard-outside-225012152.html)
 - Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
-- Jun 13 - [How Karen Read pays her hefty defense bill in the high-profile murder trial](https://www.yahoo.com/news/karen-read-pays-her-hefty-211109392.html)
-- Jun 13 - [Gavin Newsom Just Absolutely Dragged Trump's Military Parade, And Trump's Really, Really Not Gonna Like It](https://www.yahoo.com/news/gavin-newsoms-comments-trumps-military-185917110.html)
+- Jun 13 - [Former Tesla Dealership Manager Says It's "Game Over" for Elon Musk](https://finance.yahoo.com/news/former-tesla-dealership-manager-says-181803267.html)
+- Jun 13 - [Trump Accidentally Reveals a Dark MAGA Truth—and Hands Dems an Opening](https://www.yahoo.com/news/trump-accidentally-reveals-dark-maga-171733730.html)
 <!-- feed end -->
