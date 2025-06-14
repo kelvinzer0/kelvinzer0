@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Investors on edge over Israel-Iran conflict, anti-Trump protests](https://finance.yahoo.com/news/investors-edge-over-israel-iran-205114528.html)
-- Jun 14 - [Iran says production at world's largest gas field partly suspended after Israeli attack](https://www.yahoo.com/news/iran-says-production-worlds-largest-190127181.html)
+- Jun 14 - [Utah man, 80, is now bagging groceries to pay off his wife’s $80,000 medical bills — four years after she died](https://www.yahoo.com/lifestyle/articles/utah-man-80-now-bagging-182700406.html)
 - Jun 14 - [Co-pilot error suspected in new Air India crash theory](https://www.yahoo.com/news/co-pilot-error-suspected-air-151829483.html)
 - Jun 14 - [MSNBC Host Cracks Up Over Trump Email About Parade: 'Sorry, That's A Funny Sentence'](https://www.yahoo.com/news/msnbc-host-cracks-over-trump-152422952.html)
 - Jun 14 - [Trump knocks California on its heels: ‘He’s pulling the trigger on everything all at once.’](https://www.yahoo.com/news/week-trump-rocked-california-pulling-150000334.html)
+- Jun 14 - [Authorities still searching for suspect in shooting of 2 Minnesota state lawmakers](https://www.yahoo.com/news/minnesota-mayor-says-two-state-142453861.html)
 <!-- feed end -->
