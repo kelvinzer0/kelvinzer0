@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Man arrested over girl's suspected drug death](https://www.yahoo.com/news/man-arrested-over-girls-suspected-134529126.html)
-- Jun 14 - [Trail cameras capture incredible footage of one-of-a-kind herd for first time in years: 'Let's take care of them'](https://www.yahoo.com/news/trail-cameras-capture-incredible-footage-104507227.html)
-- Jun 13 - [4 Nutrients You Should Be Eating to Help Lower Dementia Risk, According to a New Study](https://health.yahoo.com/articles/4-nutrients-eating-help-lower-222843997.html)
-- Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
-- Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
+- Jun 14 - [Minnesota Gov. Tim Walz: former House speaker and husband killed in politically motivated shooting](https://www.yahoo.com/news/minnesota-mayor-says-two-state-142453861.html)
+- Jun 14 - [Semi Truck Falls Off Overpass, Driver Jumps from Dangling Cab](https://www.yahoo.com/news/semi-truck-falls-off-overpass-134953108.html)
+- Jun 14 - [55-year-old dies in Northside shooting, police say](https://www.yahoo.com/news/55-old-dies-northside-shooting-133750845.html)
+- Jun 14 - [Russia and Ukraine exchange prisoners of war, but Moscow received no war dead, Russia says](https://www.yahoo.com/news/russia-ukraine-exchange-prisoners-war-122604590.html)
+- Jun 14 - [Download festival rockers told to take off smartwatches after moshpits spark emergency alerts](https://www.yahoo.com/news/download-festivalgoers-warned-against-making-120051623.html)
 <!-- feed end -->
