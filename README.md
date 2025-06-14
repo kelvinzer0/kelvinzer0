@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Choy sues Hawai‘i Tourism Authority for ‘retaliation,’ seeks reinstatement](https://www.yahoo.com/news/choy-sues-hawai-tourism-authority-160300860.html)
-- Jun 14 - [Police say they have recovered writings in a car used by suspect in shooting of Minnesota lawmakers](https://www.yahoo.com/news/minnesota-mayor-says-two-state-142453861.html)
-- Jun 14 - [Semi Truck Falls Off Overpass, Driver Jumps from Dangling Cab](https://www.yahoo.com/news/semi-truck-falls-off-overpass-134953108.html)
-- Jun 14 - [14,000-year-old mummified ‘puppies’ weren’t dogs at all, new research shows](https://www.yahoo.com/news/14-000-old-mummified-puppies-134502796.html)
-- Jun 14 - [Russia and Ukraine exchange prisoners of war, but Moscow received no war dead, Russia says](https://www.yahoo.com/news/russia-ukraine-exchange-prisoners-war-122604590.html)
+- Jun 14 - [Smoke billows from Dubai skyscraper after fire reported](https://www.yahoo.com/news/smoke-billows-dubai-skyscraper-fire-170355351.html)
+- Jun 14 - [WestJet probes cybersecurity incident affecting app and internal systems](https://www.yahoo.com/news/westjet-probes-cybersecurity-incident-affecting-160859347.html)
+- Jun 14 - [MSNBC Host Cracks Up Over Trump Email About Parade: 'Sorry, That's A Funny Sentence'](https://www.yahoo.com/news/msnbc-host-cracks-over-trump-152422952.html)
+- Jun 14 - [Co-pilot error suspected in new Air India crash theory](https://www.yahoo.com/news/co-pilot-error-suspected-air-151829483.html)
+- Jun 14 - [‘No Kings’ protest taking place in Boston, nationwide against Trump’s policies](https://www.yahoo.com/news/no-kings-protest-taking-place-150736478.html)
 <!-- feed end -->
