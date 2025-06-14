@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Minnesota's slain Democratic leader saw liberal victories, then brokered a budget deal out of power](https://www.yahoo.com/news/minnesotas-slain-democratic-leader-saw-200053182.html)
-- Jun 14 - [Woman Can’t Decide If Her Father-in-Law’s Joke Was Mean-Spirited — Other People Say She’s Overthinking It](https://www.yahoo.com/lifestyle/articles/woman-t-decide-her-father-200000797.html)
+- Jun 14 - [Investors on edge over Israel-Iran conflict, anti-Trump protests](https://finance.yahoo.com/news/investors-edge-over-israel-iran-205114528.html)
 - Jun 14 - [Iran says production at world's largest gas field partly suspended after Israeli attack](https://www.yahoo.com/news/iran-says-production-worlds-largest-190127181.html)
-- Jun 14 - [Putin speaks to Trump, condemns Israel's strikes on Iran, Kremlin says](https://www.yahoo.com/news/putin-speaks-trump-condemns-israels-170124790.html)
 - Jun 14 - [Co-pilot error suspected in new Air India crash theory](https://www.yahoo.com/news/co-pilot-error-suspected-air-151829483.html)
+- Jun 14 - [MSNBC Host Cracks Up Over Trump Email About Parade: 'Sorry, That's A Funny Sentence'](https://www.yahoo.com/news/msnbc-host-cracks-over-trump-152422952.html)
+- Jun 14 - [Trump knocks California on its heels: ‘He’s pulling the trigger on everything all at once.’](https://www.yahoo.com/news/week-trump-rocked-california-pulling-150000334.html)
 <!-- feed end -->
