@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Newark ICE facility escapees faced charges of assault, burglary, terroristic threats](https://www.yahoo.com/news/newark-ice-facility-escapees-faced-011500363.html)
 - Jun 14 - [An Investor Who Took Out $150,000 In Loans To Buy Bitcoin Gives A Three-Year Update. But Everyone Just Wants To Know—How'd He Get 0% Loans?](https://finance.yahoo.com/news/investor-took-150-000-loans-010115275.html)
+- Jun 13 - [Byron Allen Reaches Settlement in $10 Billion Lawsuit Against McDonald’s Over TV Advertising](https://www.yahoo.com/news/byron-allen-reaches-settlement-10-232152562.html)
+- Jun 13 - [Exclusive-Google, Scale AI's largest customer, plans split after Meta deal, sources say](https://finance.yahoo.com/news/exclusive-google-scale-ais-largest-213330621.html)
+- Jun 13 - [How Karen Read pays her hefty defense bill in the high-profile murder trial](https://www.yahoo.com/news/karen-read-pays-her-hefty-211109392.html)
 - Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
-- Jun 13 - [Gavin Newsom Just Absolutely Dragged Trump's Military Parade, And Trump's Really, Really Not Gonna Like It](https://www.yahoo.com/news/gavin-newsoms-comments-trumps-military-185917110.html)
-- Jun 13 - [McDonald's settles Byron Allen's $10 billion lawsuit over ads for Black-owned media](https://finance.yahoo.com/news/mcdonalds-settles-byron-allens-10-184020900.html)
 <!-- feed end -->
