@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Police arrest roughly 60 veterans and military family members protesting outside US Capitol after group crosses police line](https://www.yahoo.com/news/police-arrest-roughly-60-protesters-015048673.html)
-- Jun 13 - [Marines are seen standing guard outside a federal building in Los Angeles](https://www.yahoo.com/news/marines-seen-standing-guard-outside-225012152.html)
+- Jun 14 - [Israel warns ‘Tehran will burn’ if Iran continues firing missiles](https://www.yahoo.com/news/israel-warns-tehran-burn-iran-100206181.html)
+- Jun 14 - [Trump's DC military parade 2025: Start times, schedule, route, map, how to watch](https://www.yahoo.com/news/trumps-dc-military-parade-2025-095838794.html)
 - Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
-- Jun 13 - [Former Tesla Dealership Manager Says It's "Game Over" for Elon Musk](https://finance.yahoo.com/news/former-tesla-dealership-manager-says-181803267.html)
-- Jun 13 - [Trump Accidentally Reveals a Dark MAGA Truth—and Hands Dems an Opening](https://www.yahoo.com/news/trump-accidentally-reveals-dark-maga-171733730.html)
+- Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
+- Jun 13 - [Trump Is Calling Handcuffed Senator Vile Racial Slur: Author](https://www.yahoo.com/news/trump-calling-handcuffed-senator-vile-190454799.html)
 <!-- feed end -->
