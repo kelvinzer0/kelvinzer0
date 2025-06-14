@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [A Border Patrol agent died in 2009. His widow is still fighting a backlogged US program for benefits](https://www.yahoo.com/news/border-patrol-agent-died-2009-040314418.html)
+- Jun 13 - [Byron Allen Reaches Settlement in $10 Billion Lawsuit Against McDonald’s Over TV Advertising](https://www.yahoo.com/news/byron-allen-reaches-settlement-10-232152562.html)
 - Jun 13 - [Bold Black Bear Cub Drinking Coffee From Man's Mug on Mountain Porch is the Most Magical Morning Scene](https://www.yahoo.com/lifestyle/articles/bold-black-bear-cub-drinking-214500050.html)
 - Jun 13 - [Exclusive-Google, Scale AI's largest customer, plans split after Meta deal, sources say](https://finance.yahoo.com/news/exclusive-google-scale-ais-largest-213330621.html)
-- Jun 13 - [Can You Guess How Many People Retire With $1 Million Saved? Hint: Way Fewer Than You Think](https://finance.yahoo.com/news/guess-many-people-retire-1-203118101.html)
+- Jun 13 - [Iranian missiles penetrated Israel's air defenses Friday. How ironclad is the system?](https://www.yahoo.com/news/iranian-missiles-penetrated-israels-air-212725410.html)
 - Jun 13 - [Israel hit by missiles as Iran retaliates for strikes on nuclear sites](https://www.yahoo.com/news/israel-hit-missiles-iran-retaliates-190435198.html)
 <!-- feed end -->
