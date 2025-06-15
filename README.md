@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 15 - [Buildings damaged in Tel Aviv area following Iranian missile attack](https://www.yahoo.com/news/buildings-damaged-tel-aviv-area-022314891.html)
 - Jun 15 - [Trump’s Military Birthday Parade Was a Gross Failure](https://www.yahoo.com/news/trump-military-birthday-parade-gross-012108688.html)
-- Jun 14 - [Iran says production at world's largest gas field partly suspended after Israeli attack](https://www.yahoo.com/news/iran-says-production-worlds-largest-190127181.html)
-- Jun 14 - [I Asked ChatGPT the Best SUVs To Buy in 2025 — Here’s What It Said](https://autos.yahoo.com/asked-chatgpt-best-suvs-buy-170309255.html)
-- Jun 14 - [Putin speaks to Trump, condemns Israel's strikes on Iran, Kremlin says](https://www.yahoo.com/news/putin-speaks-trump-condemns-israels-170124790.html)
+- Jun 14 - [PHOTOS: Thousands gather for ‘No Kings’ protests around St. Louis](https://www.yahoo.com/news/photos-thousands-gather-no-kings-221242209.html)
+- Jun 14 - [Man arrested for security threat onboard aircraft at Seattle airport](https://www.yahoo.com/news/sea-tac-airport-shut-down-203036649.html)
+- Jun 14 - [Vance Boelter, the suspect wanted in the Minnesota lawmaker shootings, reportedly attended Milwaukee's Cardinal Stritch](https://www.yahoo.com/news/suspect-minnesota-lawmaker-shootings-reportedly-194943988.html)
 <!-- feed end -->
