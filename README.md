@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 15 - [Work crews sift through wreckage after Arab Israel city hit in Iran strikes](https://www.yahoo.com/news/crews-sift-wreckage-arab-israel-083336388.html)
 - Jun 15 - [Trump’s Military Birthday Parade Was a Gross Failure](https://www.yahoo.com/news/trump-military-birthday-parade-gross-012108688.html)
+- Jun 14 - [Iran says production at world's largest gas field partly suspended after Israeli attack](https://www.yahoo.com/news/iran-says-production-worlds-largest-190127181.html)
+- Jun 14 - [Putin speaks to Trump, condemns Israel's strikes on Iran, Kremlin says](https://www.yahoo.com/news/putin-speaks-trump-condemns-israels-170124790.html)
 - Jun 14 - [Co-pilot error suspected in new Air India crash theory](https://www.yahoo.com/news/co-pilot-error-suspected-air-151829483.html)
-- Jun 14 - [Satellite photos reveal damage to Iranian missile bases and nuclear facilities after Israeli strikes](https://www.yahoo.com/news/satellite-photos-reveal-damage-iranian-144515347.html)
-- Jun 14 - [Opinion - ‘No Kings’ is utter nonsense, but few will notice this weekend](https://www.yahoo.com/news/opinion-no-kings-utter-nonsense-143000727.html)
 <!-- feed end -->
