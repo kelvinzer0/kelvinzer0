@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Soup kitchen distributes meals to desperate Palestinians in Gaza City tent camp amid Israeli blockade](https://www.yahoo.com/news/soup-kitchen-distributes-meals-desperate-154056171.html)
-- Jun 15 - [I Asked ChatGPT How Much Money Is Needed To Retire in 20 Years — Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-money-needed-150119474.html)
+- Jun 15 - [Huge turnout at a second Dutch protest seeking government action against Israel](https://www.yahoo.com/news/huge-turnout-second-dutch-protest-155334648.html)
+- Jun 15 - [Seemingly Intoxicated guest is cut off during Fox News appearance to talk Trump parade](https://www.yahoo.com/news/seemingly-intoxicated-guest-cut-off-141011688.html)
 - Jun 15 - [Trump administration weighs adding 36 countries to travel ban, memo says](https://www.yahoo.com/news/trump-administration-weighs-adding-36-140426605.html)
 - Jun 15 - [Iraq's Kataib Hezbollah warns US against intervening in Israel-Iran conflict](https://www.yahoo.com/news/iraqs-kataib-hezbollah-warns-us-135849600.html)
-- Jun 15 - [Shiba Inu Price Sell-Off Continues as SHIB Burn Rate Skyrockets to 112,000%](https://finance.yahoo.com/news/shiba-inu-price-sell-off-115452568.html)
+- Jun 15 - [Gen X, millennials are about three times more likely than their parents to be diagnosed with appendix cancer, study finds](https://www.yahoo.com/news/gen-x-millennials-three-times-120003529.html)
 <!-- feed end -->
