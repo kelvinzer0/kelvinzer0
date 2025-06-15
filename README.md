@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Seemingly Intoxicated guest is cut off during Fox News appearance to talk Trump parade](https://www.yahoo.com/news/seemingly-intoxicated-guest-cut-off-141011688.html)
+- Jun 15 - [Soup kitchen distributes meals to desperate Palestinians in Gaza City tent camp amid Israeli blockade](https://www.yahoo.com/news/soup-kitchen-distributes-meals-desperate-154056171.html)
+- Jun 15 - [I Asked ChatGPT How Much Money Is Needed To Retire in 20 Years — Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-money-needed-150119474.html)
 - Jun 15 - [Trump administration weighs adding 36 countries to travel ban, memo says](https://www.yahoo.com/news/trump-administration-weighs-adding-36-140426605.html)
 - Jun 15 - [Iraq's Kataib Hezbollah warns US against intervening in Israel-Iran conflict](https://www.yahoo.com/news/iraqs-kataib-hezbollah-warns-us-135849600.html)
-- Jun 15 - [Forget Florida — these two unexpected states are the new retirement hot spots](https://finance.yahoo.com/news/forget-florida-two-unexpected-states-113200329.html)
-- Jun 15 - [Trail cameras capture unusual footage of elusive pack of animals in one-of-a-kind encounter: 'To film them this intimately is extraordinarily rare'](https://www.yahoo.com/news/trail-cameras-capture-unusual-footage-111517649.html)
+- Jun 15 - [Shiba Inu Price Sell-Off Continues as SHIB Burn Rate Skyrockets to 112,000%](https://finance.yahoo.com/news/shiba-inu-price-sell-off-115452568.html)
 <!-- feed end -->
