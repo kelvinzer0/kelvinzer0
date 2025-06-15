@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Colombians condemn attack on senator with march of silence and call for an end to violence](https://www.yahoo.com/news/colombians-condemn-attack-senator-march-221004924.html)
-- Jun 15 - [The next wearable tech could be a face 'tattoo' that measures mental stress](https://tech.yahoo.com/wearables/articles/next-wearable-tech-could-face-205814091.html)
+- Jun 15 - [Here's How Many Shares of Coca-Cola You Must Own to Get $5,000 in Yearly Dividends](https://finance.yahoo.com/news/heres-many-shares-coca-cola-222500692.html)
 - Jun 15 - [Israel is attacking Iran where the regime fears most](https://www.yahoo.com/news/israel-attacking-iran-where-regime-200217382.html)
-- Jun 15 - [Trump wanted a military spectacle. Instead, he got a history lesson.](https://www.yahoo.com/entertainment/articles/trump-wanted-military-spectacle-instead-184906555.html)
-- Jun 15 - [Trump says he 'may' call Walz after Minnesota shootings, calls him 'grossly incompetent'](https://www.yahoo.com/news/trump-says-may-call-walz-182900186.html)
+- Jun 15 - [Spaniards packing water guns blame impact of mass tourism for housing crunch](https://www.yahoo.com/news/spaniards-packing-water-guns-blame-185746009.html)
+- Jun 15 - [FAA Makes Telling Decision on Boeing 787s After Air India Crash](https://www.yahoo.com/news/faa-makes-telling-decision-boeing-175421429.html)
+- Jun 15 - [Royal Caribbean and Celebrity Cruises announce new reward benefits](https://www.yahoo.com/lifestyle/articles/royal-caribbean-celebrity-cruises-announce-173600494.html)
 <!-- feed end -->
