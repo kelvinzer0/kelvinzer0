@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [These 2 Beaten-Down Dividend Stocks and This ETF Yield Over 4%. Here's Why They Are Worth Doubling Up on in June.](https://finance.yahoo.com/news/2-beaten-down-dividend-stocks-100000998.html)
+- Jun 15 - [Forget Florida — these two unexpected states are the new retirement hot spots](https://finance.yahoo.com/news/forget-florida-two-unexpected-states-113200329.html)
+- Jun 15 - [Cyprus says it has been asked by Iran to convey 'some messages' to Israel](https://www.yahoo.com/news/cyprus-says-asked-iran-convey-104020932.html)
 - Jun 15 - [Reeves: UK urges de-escalation in Middle East crisis](https://www.yahoo.com/news/reeves-uk-urges-escalation-middle-095233625.html)
-- Jun 15 - [Iran does not want conflict with Israel to expand but will defend itself, foreign minister says](https://www.yahoo.com/news/iran-does-not-want-conflict-074928356.html)
+- Jun 15 - [The heiress of $10 billion Perdue farms and the $12 billion Sheraton hotel empire wore hand-me-downs, still rides the subway, and flies economy](https://www.yahoo.com/lifestyle/articles/heiress-10-billion-perdue-farms-090500113.html)
 - Jun 15 - [An Aggressive Social Security Garnishment Is Underway for Over 1,000,000 Beneficiaries -- Here's How You Can Legally Avoid It](https://finance.yahoo.com/news/aggressive-social-security-garnishment-underway-074400419.html)
-- Jun 15 - [FBI Releases Chilling Photo of Minnesota Suspect Vance Boelter in Rubber Mask](https://www.yahoo.com/news/fbi-releases-chilling-photo-minnesota-051045941.html)
 <!-- feed end -->
