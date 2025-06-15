@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [BT CEO eyes deeper job cuts as AI becomes more powerful, FT reports](https://finance.yahoo.com/news/bt-ceo-eyes-deeper-job-055332745.html)
-- Jun 15 - [Pacers assist business that was victimized by NBA Finals scam](https://www.yahoo.com/news/pacers-assist-business-victimized-nba-043401484.html)
+- Jun 15 - [Buildings damaged in Tel Aviv area following Iranian missile attack](https://www.yahoo.com/news/buildings-damaged-tel-aviv-area-022314891.html)
 - Jun 15 - [Trump’s Military Birthday Parade Was a Gross Failure](https://www.yahoo.com/news/trump-military-birthday-parade-gross-012108688.html)
-- Jun 14 - [Israel expands attacks on Iran as Tehran responds with more missile strikes](https://www.yahoo.com/news/israel-expands-attacks-iran-tehran-234306314.html)
-- Jun 14 - [Gun pulled during ‘No Kings’ protest in Nashville](https://www.yahoo.com/news/gun-pulled-during-no-kings-214227040.html)
+- Jun 14 - [Scenes From Minnesota After Lawmaker ASSASSINATED At Her Home](https://www.yahoo.com/news/scenes-minnesota-lawmaker-assassinated-her-200400273.html)
+- Jun 14 - [Vance Boelter, the suspect wanted in the Minnesota lawmaker shootings, reportedly attended Milwaukee's Cardinal Stritch](https://www.yahoo.com/news/suspect-minnesota-lawmaker-shootings-reportedly-194943988.html)
+- Jun 14 - [Putin speaks to Trump, condemns Israel's strikes on Iran, Kremlin says](https://www.yahoo.com/news/putin-speaks-trump-condemns-israels-170124790.html)
 <!-- feed end -->
