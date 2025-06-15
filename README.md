@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [31 More Absolutely Hilarious Signs From The "No Kings" Protests](https://www.yahoo.com/news/31-more-absolutely-hilarious-signs-164956401.html)
+- Jun 15 - [Trump’s Military Parade Was a Pathetic Event for a Pathetic President](https://www.yahoo.com/news/trump-military-parade-pathetic-event-163834101.html)
 - Jun 15 - [Huge turnout at a second Dutch protest seeking government action against Israel](https://www.yahoo.com/news/huge-turnout-second-dutch-protest-155334648.html)
 - Jun 15 - [Seemingly Intoxicated guest is cut off during Fox News appearance to talk Trump parade](https://www.yahoo.com/news/seemingly-intoxicated-guest-cut-off-141011688.html)
 - Jun 15 - [Trump administration weighs adding 36 countries to travel ban, memo says](https://www.yahoo.com/news/trump-administration-weighs-adding-36-140426605.html)
-- Jun 15 - [Iraq's Kataib Hezbollah warns US against intervening in Israel-Iran conflict](https://www.yahoo.com/news/iraqs-kataib-hezbollah-warns-us-135849600.html)
-- Jun 15 - [Gen X, millennials are about three times more likely than their parents to be diagnosed with appendix cancer, study finds](https://www.yahoo.com/news/gen-x-millennials-three-times-120003529.html)
 <!-- feed end -->
