@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Here’s the team responsible for keeping Virginia Beach resort area in tip-top shape](https://www.yahoo.com/news/team-responsible-keeping-virginia-beach-192400811.html)
+- Jun 15 - [IAF Destroys Iranian Aerial Tanker 1,400 miles From Israel, Farthest Strike Yet (Updated)](https://www.yahoo.com/news/iaf-destroys-iranian-aerial-tanker-171441285.html)
+- Jun 15 - [Trump’s team claims 250,000 supporters watched his military parade. ‘No Kings’ protests drew at least 4 million, experts say](https://www.yahoo.com/news/trump-team-claims-250-000-191824897.html)
+- Jun 15 - [Trump wanted a military spectacle. Instead, he got a history lesson.](https://www.yahoo.com/entertainment/articles/trump-wanted-military-spectacle-instead-184906555.html)
 - Jun 15 - [The tourist protests in Spain, Portugal and Italy explained](https://www.yahoo.com/news/tourism-protests-europe-explained-180602675.html)
-- Jun 15 - [IAF Destroys Iranian Aerial Tanker 1,400 miles From Israel, Farthest Strike Yet](https://www.yahoo.com/news/iaf-destroys-iranian-aerial-tanker-171441285.html)
 - Jun 15 - [Huge turnout at a second Dutch protest seeking government action against Israel](https://www.yahoo.com/news/huge-turnout-second-dutch-protest-155334648.html)
-- Jun 15 - [Minnesota Lawmakers Shooting Suspect Vance Boelter’s Wife Detained After Passport and Weapon Found in Car: Reports](https://www.yahoo.com/news/minnesota-lawmakers-shooting-suspect-vance-152752904.html)
 <!-- feed end -->
