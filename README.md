@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Buildings damaged in Tel Aviv area following Iranian missile attack](https://www.yahoo.com/news/buildings-damaged-tel-aviv-area-022314891.html)
+- Jun 15 - [BT CEO eyes deeper job cuts as AI becomes more powerful, FT reports](https://finance.yahoo.com/news/bt-ceo-eyes-deeper-job-055332745.html)
+- Jun 15 - [Pacers assist business that was victimized by NBA Finals scam](https://www.yahoo.com/news/pacers-assist-business-victimized-nba-043401484.html)
 - Jun 15 - [Trump’s Military Birthday Parade Was a Gross Failure](https://www.yahoo.com/news/trump-military-birthday-parade-gross-012108688.html)
-- Jun 14 - [PHOTOS: Thousands gather for ‘No Kings’ protests around St. Louis](https://www.yahoo.com/news/photos-thousands-gather-no-kings-221242209.html)
-- Jun 14 - [Man arrested for security threat onboard aircraft at Seattle airport](https://www.yahoo.com/news/sea-tac-airport-shut-down-203036649.html)
-- Jun 14 - [Vance Boelter, the suspect wanted in the Minnesota lawmaker shootings, reportedly attended Milwaukee's Cardinal Stritch](https://www.yahoo.com/news/suspect-minnesota-lawmaker-shootings-reportedly-194943988.html)
+- Jun 14 - [Israel expands attacks on Iran as Tehran responds with more missile strikes](https://www.yahoo.com/news/israel-expands-attacks-iran-tehran-234306314.html)
+- Jun 14 - [Gun pulled during ‘No Kings’ protest in Nashville](https://www.yahoo.com/news/gun-pulled-during-no-kings-214227040.html)
 <!-- feed end -->
