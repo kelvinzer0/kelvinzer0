@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Trump Hosts $45 Million Military Parade For Himself Before Underwhelming Crowd](https://www.yahoo.com/news/trump-hosts-45-million-military-012534293.html)
-- Jun 14 - [Man 'intentionally' drives into protesters at 'No Kings' in Virginia, police](https://www.yahoo.com/news/man-intentionally-drives-protesters-no-234431946.html)
-- Jun 14 - [Scenes From Minnesota After Lawmaker ASSASSINATED At Her Home](https://www.yahoo.com/news/scenes-minnesota-lawmaker-assassinated-her-200400273.html)
-- Jun 14 - [Utah man, 80, is now bagging groceries to pay off his wife’s $80,000 medical bills — four years after she died](https://www.yahoo.com/lifestyle/articles/utah-man-80-now-bagging-182700406.html)
-- Jun 14 - [Putin speaks to Trump, condemns Israel's strikes on Iran, Kremlin says](https://www.yahoo.com/news/putin-speaks-trump-condemns-israels-170124790.html)
+- Jun 15 - [Police say they have solved a 1980 cold-case murder — after the first suspect wrongly spent 20 years in prison](https://www.yahoo.com/news/police-solved-1980-cold-case-024226662.html)
+- Jun 15 - [One person shot during ‘No Kings’ protest in SLC, Utah; police urge protesters to disperse](https://www.yahoo.com/news/one-person-shot-during-no-022842977.html)
+- Jun 15 - [Buildings damaged in Tel Aviv area following Iranian missile attack](https://www.yahoo.com/news/buildings-damaged-tel-aviv-area-022314891.html)
+- Jun 15 - [Trump’s Military Birthday Parade Was a Gross Failure](https://www.yahoo.com/news/trump-military-birthday-parade-gross-012108688.html)
+- Jun 14 - [Iran says production at world's largest gas field partly suspended after Israeli attack](https://www.yahoo.com/news/iran-says-production-worlds-largest-190127181.html)
 <!-- feed end -->
