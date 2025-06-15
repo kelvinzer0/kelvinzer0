@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [IAF Destroys Iranian Aerial Tanker 1,400 miles From Israel, Farthest Strike Yet (Updated)](https://www.yahoo.com/news/iaf-destroys-iranian-aerial-tanker-171441285.html)
-- Jun 15 - [Trump’s team claims 250,000 supporters watched his military parade. ‘No Kings’ protests drew at least 4 million, experts say](https://www.yahoo.com/news/trump-team-claims-250-000-191824897.html)
+- Jun 15 - [Colombians condemn attack on senator with march of silence and call for an end to violence](https://www.yahoo.com/news/colombians-condemn-attack-senator-march-221004924.html)
+- Jun 15 - [The next wearable tech could be a face 'tattoo' that measures mental stress](https://tech.yahoo.com/wearables/articles/next-wearable-tech-could-face-205814091.html)
+- Jun 15 - [Israel is attacking Iran where the regime fears most](https://www.yahoo.com/news/israel-attacking-iran-where-regime-200217382.html)
 - Jun 15 - [Trump wanted a military spectacle. Instead, he got a history lesson.](https://www.yahoo.com/entertainment/articles/trump-wanted-military-spectacle-instead-184906555.html)
-- Jun 15 - [The tourist protests in Spain, Portugal and Italy explained](https://www.yahoo.com/news/tourism-protests-europe-explained-180602675.html)
-- Jun 15 - [Huge turnout at a second Dutch protest seeking government action against Israel](https://www.yahoo.com/news/huge-turnout-second-dutch-protest-155334648.html)
+- Jun 15 - [Trump says he 'may' call Walz after Minnesota shootings, calls him 'grossly incompetent'](https://www.yahoo.com/news/trump-says-may-call-walz-182900186.html)
 <!-- feed end -->
