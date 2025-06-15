@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 14 - [Iran says production at world's largest gas field partly suspended after Israeli attack](https://www.yahoo.com/news/iran-says-production-worlds-largest-190127181.html)
-- Jun 14 - [People Are Calling Out Trump's Press Secretary, Karoline Leavitt, After She Unprofessionally Responded To A White House Reporter](https://www.yahoo.com/news/viral-clip-trumps-press-secretary-181422059.html)
+- Jun 15 - [Trump Hosts $45 Million Military Parade For Himself Before Underwhelming Crowd](https://www.yahoo.com/news/trump-hosts-45-million-military-012534293.html)
+- Jun 14 - [Man 'intentionally' drives into protesters at 'No Kings' in Virginia, police](https://www.yahoo.com/news/man-intentionally-drives-protesters-no-234431946.html)
+- Jun 14 - [Scenes From Minnesota After Lawmaker ASSASSINATED At Her Home](https://www.yahoo.com/news/scenes-minnesota-lawmaker-assassinated-her-200400273.html)
+- Jun 14 - [Utah man, 80, is now bagging groceries to pay off his wife’s $80,000 medical bills — four years after she died](https://www.yahoo.com/lifestyle/articles/utah-man-80-now-bagging-182700406.html)
 - Jun 14 - [Putin speaks to Trump, condemns Israel's strikes on Iran, Kremlin says](https://www.yahoo.com/news/putin-speaks-trump-condemns-israels-170124790.html)
-- Jun 14 - [Co-pilot error suspected in new Air India crash theory](https://www.yahoo.com/news/co-pilot-error-suspected-air-151829483.html)
-- Jun 14 - [MSNBC Host Cracks Up Over Trump Email About Parade: 'Sorry, That's A Funny Sentence'](https://www.yahoo.com/news/msnbc-host-cracks-over-trump-152422952.html)
 <!-- feed end -->
