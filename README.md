@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Forget Florida — these two unexpected states are the new retirement hot spots](https://finance.yahoo.com/news/forget-florida-two-unexpected-states-113200329.html)
+- Jun 15 - [Carpenters for Christ: Volunteers build new Fairburn church for free](https://www.yahoo.com/news/carpenters-christ-volunteers-build-fairburn-125347801.html)
+- Jun 15 - [The past year for Harley-Davidson (NYSE:HOG) investors has not been profitable](https://finance.yahoo.com/news/past-harley-davidson-nyse-hog-124624452.html)
+- Jun 15 - [Trail cameras capture unusual footage of elusive pack of animals in one-of-a-kind encounter: 'To film them this intimately is extraordinarily rare'](https://www.yahoo.com/news/trail-cameras-capture-unusual-footage-111517649.html)
 - Jun 15 - [Cyprus says it has been asked by Iran to convey 'some messages' to Israel](https://www.yahoo.com/news/cyprus-says-asked-iran-convey-104020932.html)
 - Jun 15 - [Reeves: UK urges de-escalation in Middle East crisis](https://www.yahoo.com/news/reeves-uk-urges-escalation-middle-095233625.html)
-- Jun 15 - [The heiress of $10 billion Perdue farms and the $12 billion Sheraton hotel empire wore hand-me-downs, still rides the subway, and flies economy](https://www.yahoo.com/lifestyle/articles/heiress-10-billion-perdue-farms-090500113.html)
-- Jun 15 - [An Aggressive Social Security Garnishment Is Underway for Over 1,000,000 Beneficiaries -- Here's How You Can Legally Avoid It](https://finance.yahoo.com/news/aggressive-social-security-garnishment-underway-074400419.html)
 <!-- feed end -->
