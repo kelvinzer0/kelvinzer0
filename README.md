@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 15 - [Seemingly Intoxicated guest is cut off during Fox News appearance to talk Trump parade](https://www.yahoo.com/news/seemingly-intoxicated-guest-cut-off-141011688.html)
+- Jun 15 - [Trump administration weighs adding 36 countries to travel ban, memo says](https://www.yahoo.com/news/trump-administration-weighs-adding-36-140426605.html)
+- Jun 15 - [Iraq's Kataib Hezbollah warns US against intervening in Israel-Iran conflict](https://www.yahoo.com/news/iraqs-kataib-hezbollah-warns-us-135849600.html)
 - Jun 15 - [Forget Florida — these two unexpected states are the new retirement hot spots](https://finance.yahoo.com/news/forget-florida-two-unexpected-states-113200329.html)
 - Jun 15 - [Trail cameras capture unusual footage of elusive pack of animals in one-of-a-kind encounter: 'To film them this intimately is extraordinarily rare'](https://www.yahoo.com/news/trail-cameras-capture-unusual-footage-111517649.html)
-- Jun 15 - [Video highlights debate over giant rodents overtaking upscale gated community: 'God forbid'](https://www.yahoo.com/news/video-highlights-debate-over-giant-111504500.html)
-- Jun 15 - [Researchers raise red flag that doctors may be underprepared for devastating new disease emerging in US: 'We want to give the early warning'](https://www.yahoo.com/news/researchers-raise-red-flag-doctors-104528437.html)
-- Jun 15 - [Cyprus says it has been asked by Iran to convey 'some messages' to Israel](https://www.yahoo.com/news/cyprus-says-asked-iran-convey-104020932.html)
 <!-- feed end -->
