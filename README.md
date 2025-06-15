@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Israeli fire kills 12 people in Gaza, medics say](https://www.yahoo.com/news/israeli-fire-kills-12-people-074341402.html)
-- Jun 15 - [Buildings damaged in Tel Aviv area following Iranian missile attack](https://www.yahoo.com/news/buildings-damaged-tel-aviv-area-022314891.html)
+- Jun 15 - [Work crews sift through wreckage after Arab Israel city hit in Iran strikes](https://www.yahoo.com/news/crews-sift-wreckage-arab-israel-083336388.html)
 - Jun 15 - [Trump’s Military Birthday Parade Was a Gross Failure](https://www.yahoo.com/news/trump-military-birthday-parade-gross-012108688.html)
-- Jun 14 - [Trump curbs immigration enforcement at farms, meatpacking plants, hotels and restaurants](https://www.yahoo.com/news/trump-curbs-immigration-enforcement-farms-202900410.html)
-- Jun 14 - [Iran says production at world's largest gas field partly suspended after Israeli attack](https://www.yahoo.com/news/iran-says-production-worlds-largest-190127181.html)
+- Jun 14 - [Co-pilot error suspected in new Air India crash theory](https://www.yahoo.com/news/co-pilot-error-suspected-air-151829483.html)
+- Jun 14 - [Satellite photos reveal damage to Iranian missile bases and nuclear facilities after Israeli strikes](https://www.yahoo.com/news/satellite-photos-reveal-damage-iranian-144515347.html)
+- Jun 14 - [Opinion - ‘No Kings’ is utter nonsense, but few will notice this weekend](https://www.yahoo.com/news/opinion-no-kings-utter-nonsense-143000727.html)
 <!-- feed end -->
