@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Pictured: Mother who died with skydiving instructor after parachute ‘failed to open’](https://www.yahoo.com/news/pictured-mother-died-skydiving-instructor-182456756.html)
+- Jun 15 - [Here’s the team responsible for keeping Virginia Beach resort area in tip-top shape](https://www.yahoo.com/news/team-responsible-keeping-virginia-beach-192400811.html)
 - Jun 15 - [The tourist protests in Spain, Portugal and Italy explained](https://www.yahoo.com/news/tourism-protests-europe-explained-180602675.html)
+- Jun 15 - [IAF Destroys Iranian Aerial Tanker 1,400 miles From Israel, Farthest Strike Yet](https://www.yahoo.com/news/iaf-destroys-iranian-aerial-tanker-171441285.html)
 - Jun 15 - [Huge turnout at a second Dutch protest seeking government action against Israel](https://www.yahoo.com/news/huge-turnout-second-dutch-protest-155334648.html)
-- Jun 15 - [Trump administration weighs adding 36 countries to travel ban, memo says](https://www.yahoo.com/news/trump-administration-weighs-adding-36-140426605.html)
-- Jun 15 - [Iraq's Kataib Hezbollah warns US against intervening in Israel-Iran conflict](https://www.yahoo.com/news/iraqs-kataib-hezbollah-warns-us-135849600.html)
+- Jun 15 - [Minnesota Lawmakers Shooting Suspect Vance Boelter’s Wife Detained After Passport and Weapon Found in Car: Reports](https://www.yahoo.com/news/minnesota-lawmakers-shooting-suspect-vance-152752904.html)
 <!-- feed end -->
