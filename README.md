@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Massive great white shark resurfaces off North Carolina coast. Meet Contender.](https://www.yahoo.com/news/massive-great-white-shark-resurfaces-143600941.html)
-- Jun 16 - [Forget Tesla? China's $41,000 Cybertruck Clone Comes With Steer-By-Wire, Adaptive Chassis, And A Wheel That Moves Side To Side](https://finance.yahoo.com/news/forget-tesla-chinas-41-000-140156232.html)
-- Jun 16 - [One dead, dozens injured from earthquake in Peru](https://www.yahoo.com/news/one-dead-dozens-injured-earthquake-135948205.html)
-- Jun 16 - [Wisconsin dairy farmer sues Trump administration claiming discrimination against white farmers](https://www.yahoo.com/news/wisconsin-dairy-farmer-sues-trump-131647229.html)
-- Jun 16 - [How the humble water gun became the symbol of Barcelona's anti-tourism movement](https://www.yahoo.com/news/humble-water-gun-became-symbol-122435092.html)
+- Jun 16 - [Salmonella poisoning linked to pistachio cream sickens 4 in Minnesota and New Jersey](https://www.yahoo.com/news/salmonella-poisoning-linked-pistachio-cream-160854674.html)
+- Jun 16 - [Manufacturing CEO Sees a Factory Resurgence](https://finance.yahoo.com/video/manufacturing-ceo-sees-factory-resurgence-160122295.html)
+- Jun 16 - [Sean 'Diddy' Combs juror dismissed despite defense's concern about race](https://www.yahoo.com/news/sean-diddy-combs-juror-dismissed-153006544.html)
+- Jun 16 - [How Long It Will Take To Pay Off a Luxury Rental Property in 10 Overlooked Destinations](https://finance.yahoo.com/news/long-pay-off-luxury-rental-150051506.html)
+- Jun 16 - [OneRepublic’s Ryan Tedder Says Nationwide ‘No Kings’ Protests on 250th Anniversary of U.S. Army Are ‘Super Bummer’](https://www.yahoo.com/news/onerepublic-ryan-tedder-says-nationwide-131838147.html)
 <!-- feed end -->
