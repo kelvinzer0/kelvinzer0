@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Minnesota Assassination Suspect Stopped At 4 Democratic Politicians' Homes](https://www.yahoo.com/news/minnesota-assassination-suspect-stopped-4-180354377.html)
+- Jun 16 - [Trump fires Democratic commissioner of independent agency that oversees nuclear safety](https://www.yahoo.com/news/trump-fires-democratic-commissioner-independent-190301447.html)
+- Jun 16 - [More Navy firepower has joined the US warships helping shield Israel from Iranian missiles](https://www.yahoo.com/news/more-navy-firepower-joined-us-181719693.html)
 - Jun 16 - [Canadian Indigenous leader says he was 'filled with rage' before 'intense' conversation with Trump](https://www.yahoo.com/news/canadian-indigenous-leader-says-filled-180103729.html)
-- Jun 16 - [More heavy rain possible in the Evansville, Henderson areas on Monday](https://www.yahoo.com/news/more-heavy-rain-possible-evansville-173308595.html)
+- Jun 16 - [10 arrested after child predator operation in Huntsville](https://www.yahoo.com/news/10-arrested-child-predator-operation-172056613.html)
 - Jun 16 - [2 Dead, 32 Injured After Bridge Collapses at Tourist Destination](https://www.yahoo.com/news/2-dead-bridge-collapses-tourist-171126690.html)
-- Jun 16 - [Astronomers locate universe's 'missing' matter](https://www.yahoo.com/news/astronomers-locate-universes-missing-matter-165232297.html)
 <!-- feed end -->
