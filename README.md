@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Salmonella poisoning linked to pistachio cream sickens 4 in Minnesota and New Jersey](https://www.yahoo.com/news/salmonella-poisoning-linked-pistachio-cream-160854674.html)
-- Jun 16 - [Manufacturing CEO Sees a Factory Resurgence](https://finance.yahoo.com/video/manufacturing-ceo-sees-factory-resurgence-160122295.html)
-- Jun 16 - [Sean 'Diddy' Combs juror dismissed despite defense's concern about race](https://www.yahoo.com/news/sean-diddy-combs-juror-dismissed-153006544.html)
-- Jun 16 - [How Long It Will Take To Pay Off a Luxury Rental Property in 10 Overlooked Destinations](https://finance.yahoo.com/news/long-pay-off-luxury-rental-150051506.html)
-- Jun 16 - [OneRepublic’s Ryan Tedder Says Nationwide ‘No Kings’ Protests on 250th Anniversary of U.S. Army Are ‘Super Bummer’](https://www.yahoo.com/news/onerepublic-ryan-tedder-says-nationwide-131838147.html)
+- Jun 16 - [Israeli strike on Iranian state TV fills studio with dust and debris during live broadcast](https://www.yahoo.com/news/israeli-strike-iranian-state-tv-165622193.html)
+- Jun 16 - ['Elbows up' doesn't extend to Canada's major pension fund, survey finds](https://finance.yahoo.com/news/elbows-up-doesnt-extend-to-canadas-major-pension-fund-survey-finds-165522128.html)
+- Jun 16 - [18-year-old in custody after body found behind apartments near Grand Rapids](https://www.yahoo.com/news/18-old-custody-body-found-162305241.html)
+- Jun 16 - [Spain's Sanchez names new party leadership to limit damage from graft probe](https://www.yahoo.com/news/spains-sanchez-names-party-leadership-161944082.html)
+- Jun 16 - [If you've been bitten by a tick, follow these 5 steps](https://www.yahoo.com/lifestyle/article/tick-bite-signs-rash-removal-lyme-disease-doctor-161025143.html)
 <!-- feed end -->
