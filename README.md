@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Second patient death reported with gene therapy for muscular dystrophy](https://www.yahoo.com/news/second-patient-death-reported-gene-200526242.html)
-- Jun 16 - [The Internet Had A Field Day Over Trump's Military Parade — Here Are All The Funniest Tweets](https://www.yahoo.com/news/internet-had-field-day-over-193328585.html)
-- Jun 16 - [Bitcoin's Record-Long Summer Lull: How Should You Trade It?](https://finance.yahoo.com/video/bitcoins-record-long-summer-lull-192944127.html)
-- Jun 16 - [Officers who cover their faces could be charged with a misdemeanor under California proposal](https://www.yahoo.com/news/officers-cover-faces-could-charged-192655269.html)
-- Jun 16 - [Canadian Indigenous leader says he was 'filled with rage' before 'intense' conversation with Trump](https://www.yahoo.com/news/canadian-indigenous-leader-says-filled-180103729.html)
+- Jun 16 - [Renewable energy remains cheapest power builds as new gas plants get pricier](https://finance.yahoo.com/news/renewable-energy-remains-cheapest-power-203954801.html)
+- Jun 16 - [The Trumps Are Launching *Checks Notes* Gold, Trump-Themed Smartphones, And Unfortunately, You Read This Headline Right](https://www.yahoo.com/entertainment/articles/trumps-launching-checks-notes-gold-203153117.html)
+- Jun 16 - [Iran’s broadcasters become the news on a day of mayhem](https://www.yahoo.com/news/iran-broadcasters-become-news-day-202325467.html)
+- Jun 16 - [NAACP won't invite Trump to its national convention. He will be 1st president excluded in 116 years](https://www.yahoo.com/news/naacp-wont-invite-trump-national-200951985.html)
+- Jun 16 - [Armada Of USAF Tankers Just Deployed East Over Atlantic Spurring Speculation (Updated)](https://www.yahoo.com/news/armada-usaf-tankers-just-deployed-095747420.html)
 <!-- feed end -->
