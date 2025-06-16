@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [What Israel’s targeting of Iranian oil infrastructure means for global energy security](https://www.yahoo.com/news/israel-targeting-iranian-oil-infrastructure-030236278.html)
-- Jun 16 - [Trump directs ICE to expand deportations in Democratic-run cities, undeterred by protests](https://www.yahoo.com/news/trump-directs-ice-expand-deportations-012125584.html)
 - Jun 16 - [Trump says must expand efforts to deport people illegally in US](https://www.yahoo.com/news/trump-says-must-expand-efforts-010203784.html)
+- Jun 16 - [Stock market today: Dow, S&P 500, Nasdaq futures gain, oil rises with Israel-Iran strikes in focus](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-gain-oil-rises-with-israel-iran-strikes-in-focus-003704764.html)
 - Jun 16 - [Dozens of heavily armed ICE agents swarm popular L.A. County swap meet](https://www.yahoo.com/news/dozens-heavily-armed-ice-agents-001847985.html)
 - Jun 15 - [Friends say Minnesota shooting suspect was deeply religious and conservative](https://www.yahoo.com/news/friends-minnesota-shooting-suspect-deeply-235237872.html)
+- Jun 15 - [The Silent Symptom Most People Don't Realize Could Be a Dementia Sign, According to Neurologists](https://www.yahoo.com/news/silent-symptom-most-people-dont-212500887.html)
 <!-- feed end -->
