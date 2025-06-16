@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Festival hit by stage closure over crowd safety](https://www.yahoo.com/news/festival-hit-stage-closure-over-091027534.html)
+- Jun 16 - [Sarepta and Roche halt DMD gene therapy’s use after second death](https://finance.yahoo.com/news/sarepta-roche-halt-dmd-gene-115552949.html)
+- Jun 16 - [Despite two months of tariffs, car prices aren’t going up. Is now the time to buy?](https://autos.yahoo.com/despite-two-months-tariffs-car-111138215.html)
+- Jun 16 - [Flight to nowhere for 214 passengers on a British Airways Boeing 787 bound for India](https://www.yahoo.com/news/flight-nowhere-214-passengers-british-110407824.html)
 - Jun 16 - [Nuclear agency head warns of radiological and chemical contamination inside Iran’s main nuclear site](https://www.yahoo.com/news/nuclear-agency-head-warns-radiological-104910676.html)
-- Jun 16 - [Why rare earth minerals are so crucial to US-China trade deal](https://finance.yahoo.com/video/why-rare-earth-minerals-crucial-100043747.html)
-- Jun 16 - [Armada Of USAF Tankers Just Deployed East Over Atlantic Spurring Speculation](https://www.yahoo.com/news/armada-usaf-tankers-just-deployed-095747420.html)
-- Jun 16 - [AP Top Stories June 16](https://www.yahoo.com/news/ap-top-stories-june-16-095146696.html)
-- Jun 16 - [The Ukrainian soldier's best chance against Russia's advanced unjammable drones is as low-tech as it gets](https://www.yahoo.com/news/ukrainian-soldiers-best-chance-against-094801176.html)
 <!-- feed end -->
