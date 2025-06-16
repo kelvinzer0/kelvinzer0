@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Massive great white shark resurfaces off North Carolina coast. Meet Contender.](https://www.yahoo.com/news/massive-great-white-shark-resurfaces-143600941.html)
+- Jun 16 - [Forget Tesla? China's $41,000 Cybertruck Clone Comes With Steer-By-Wire, Adaptive Chassis, And A Wheel That Moves Side To Side](https://finance.yahoo.com/news/forget-tesla-chinas-41-000-140156232.html)
+- Jun 16 - [One dead, dozens injured from earthquake in Peru](https://www.yahoo.com/news/one-dead-dozens-injured-earthquake-135948205.html)
 - Jun 16 - [Wisconsin dairy farmer sues Trump administration claiming discrimination against white farmers](https://www.yahoo.com/news/wisconsin-dairy-farmer-sues-trump-131647229.html)
 - Jun 16 - [How the humble water gun became the symbol of Barcelona's anti-tourism movement](https://www.yahoo.com/news/humble-water-gun-became-symbol-122435092.html)
-- Jun 16 - [Flight to nowhere for 214 passengers on a British Airways Boeing 787 bound for India](https://www.yahoo.com/news/flight-nowhere-214-passengers-british-110407824.html)
-- Jun 16 - [UN nuclear agency warns of possible contamination inside Iran's Natanz site after Israeli strikes](https://www.yahoo.com/news/nuclear-agency-head-warns-radiological-104910676.html)
-- Jun 16 - [Two powerhouse companies make game-changing breakthrough that could revolutionize electric vehicles: 'Unprecedented speed'](https://tech.yahoo.com/transportation/articles/two-powerhouse-companies-game-changing-103045108.html)
 <!-- feed end -->
