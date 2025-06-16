@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Festival hit by stage closure over crowd safety](https://www.yahoo.com/news/festival-hit-stage-closure-over-091027534.html)
-- Jun 16 - [Sarepta and Roche halt DMD gene therapy’s use after second death](https://finance.yahoo.com/news/sarepta-roche-halt-dmd-gene-115552949.html)
-- Jun 16 - [Despite two months of tariffs, car prices aren’t going up. Is now the time to buy?](https://autos.yahoo.com/despite-two-months-tariffs-car-111138215.html)
+- Jun 16 - [Trump Organization enters phone market with $499 Trump Mobile device](https://tech.yahoo.com/phones/articles/trump-organization-unveils-self-branded-121452747.html)
 - Jun 16 - [Flight to nowhere for 214 passengers on a British Airways Boeing 787 bound for India](https://www.yahoo.com/news/flight-nowhere-214-passengers-british-110407824.html)
-- Jun 16 - [Nuclear agency head warns of radiological and chemical contamination inside Iran’s main nuclear site](https://www.yahoo.com/news/nuclear-agency-head-warns-radiological-104910676.html)
+- Jun 16 - [Opinion - LA riot coverage shows the media’s Biden ‘miss’ wasn’t a miss at all — they just lie](https://www.yahoo.com/news/opinion-la-riot-coverage-shows-110000294.html)
+- Jun 16 - [UN nuclear agency warns of possible contamination inside Iran's Natanz site after Israeli strikes](https://www.yahoo.com/news/nuclear-agency-head-warns-radiological-104910676.html)
+- Jun 16 - [Billionaire Terry Smith, "the English Warren Buffett," Is Selling Meta Platforms and Microsoft and Buying This Stock That's Trouncing the Market in 2025](https://finance.yahoo.com/news/billionaire-terry-smith-english-warren-104500010.html)
 <!-- feed end -->
