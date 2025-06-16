@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Israeli strike on Iranian state TV fills studio with dust and debris during live broadcast](https://www.yahoo.com/news/israeli-strike-iranian-state-tv-165622193.html)
-- Jun 16 - ['Elbows up' doesn't extend to Canada's major pension fund, survey finds](https://finance.yahoo.com/news/elbows-up-doesnt-extend-to-canadas-major-pension-fund-survey-finds-165522128.html)
-- Jun 16 - [18-year-old in custody after body found behind apartments near Grand Rapids](https://www.yahoo.com/news/18-old-custody-body-found-162305241.html)
-- Jun 16 - [Spain's Sanchez names new party leadership to limit damage from graft probe](https://www.yahoo.com/news/spains-sanchez-names-party-leadership-161944082.html)
-- Jun 16 - [If you've been bitten by a tick, follow these 5 steps](https://www.yahoo.com/lifestyle/article/tick-bite-signs-rash-removal-lyme-disease-doctor-161025143.html)
+- Jun 16 - [Minnesota Assassination Suspect Stopped At 4 Democratic Politicians' Homes](https://www.yahoo.com/news/minnesota-assassination-suspect-stopped-4-180354377.html)
+- Jun 16 - [Canadian Indigenous leader says he was 'filled with rage' before 'intense' conversation with Trump](https://www.yahoo.com/news/canadian-indigenous-leader-says-filled-180103729.html)
+- Jun 16 - [More heavy rain possible in the Evansville, Henderson areas on Monday](https://www.yahoo.com/news/more-heavy-rain-possible-evansville-173308595.html)
+- Jun 16 - [2 Dead, 32 Injured After Bridge Collapses at Tourist Destination](https://www.yahoo.com/news/2-dead-bridge-collapses-tourist-171126690.html)
+- Jun 16 - [Astronomers locate universe's 'missing' matter](https://www.yahoo.com/news/astronomers-locate-universes-missing-matter-165232297.html)
 <!-- feed end -->
