@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Trump fires Democratic commissioner of independent agency that oversees nuclear safety](https://www.yahoo.com/news/trump-fires-democratic-commissioner-independent-190301447.html)
-- Jun 16 - [More Navy firepower has joined the US warships helping shield Israel from Iranian missiles](https://www.yahoo.com/news/more-navy-firepower-joined-us-181719693.html)
+- Jun 16 - [Second patient death reported with gene therapy for muscular dystrophy](https://www.yahoo.com/news/second-patient-death-reported-gene-200526242.html)
+- Jun 16 - [The Internet Had A Field Day Over Trump's Military Parade — Here Are All The Funniest Tweets](https://www.yahoo.com/news/internet-had-field-day-over-193328585.html)
+- Jun 16 - [Bitcoin's Record-Long Summer Lull: How Should You Trade It?](https://finance.yahoo.com/video/bitcoins-record-long-summer-lull-192944127.html)
+- Jun 16 - [Officers who cover their faces could be charged with a misdemeanor under California proposal](https://www.yahoo.com/news/officers-cover-faces-could-charged-192655269.html)
 - Jun 16 - [Canadian Indigenous leader says he was 'filled with rage' before 'intense' conversation with Trump](https://www.yahoo.com/news/canadian-indigenous-leader-says-filled-180103729.html)
-- Jun 16 - [10 arrested after child predator operation in Huntsville](https://www.yahoo.com/news/10-arrested-child-predator-operation-172056613.html)
-- Jun 16 - [2 Dead, 32 Injured After Bridge Collapses at Tourist Destination](https://www.yahoo.com/news/2-dead-bridge-collapses-tourist-171126690.html)
 <!-- feed end -->
