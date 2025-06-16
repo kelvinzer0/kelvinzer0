@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Trump Organization enters phone market with $499 Trump Mobile device](https://tech.yahoo.com/phones/articles/trump-organization-unveils-self-branded-121452747.html)
+- Jun 16 - [Wisconsin dairy farmer sues Trump administration claiming discrimination against white farmers](https://www.yahoo.com/news/wisconsin-dairy-farmer-sues-trump-131647229.html)
+- Jun 16 - [How the humble water gun became the symbol of Barcelona's anti-tourism movement](https://www.yahoo.com/news/humble-water-gun-became-symbol-122435092.html)
 - Jun 16 - [Flight to nowhere for 214 passengers on a British Airways Boeing 787 bound for India](https://www.yahoo.com/news/flight-nowhere-214-passengers-british-110407824.html)
-- Jun 16 - [Opinion - LA riot coverage shows the media’s Biden ‘miss’ wasn’t a miss at all — they just lie](https://www.yahoo.com/news/opinion-la-riot-coverage-shows-110000294.html)
 - Jun 16 - [UN nuclear agency warns of possible contamination inside Iran's Natanz site after Israeli strikes](https://www.yahoo.com/news/nuclear-agency-head-warns-radiological-104910676.html)
-- Jun 16 - [Billionaire Terry Smith, "the English Warren Buffett," Is Selling Meta Platforms and Microsoft and Buying This Stock That's Trouncing the Market in 2025](https://finance.yahoo.com/news/billionaire-terry-smith-english-warren-104500010.html)
+- Jun 16 - [Two powerhouse companies make game-changing breakthrough that could revolutionize electric vehicles: 'Unprecedented speed'](https://tech.yahoo.com/transportation/articles/two-powerhouse-companies-game-changing-103045108.html)
 <!-- feed end -->
