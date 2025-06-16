@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 15 - [Here's How Many Shares of Coca-Cola You Must Own to Get $5,000 in Yearly Dividends](https://finance.yahoo.com/news/heres-many-shares-coca-cola-222500692.html)
-- Jun 15 - [Israel is attacking Iran where the regime fears most](https://www.yahoo.com/news/israel-attacking-iran-where-regime-200217382.html)
-- Jun 15 - [Spaniards packing water guns blame impact of mass tourism for housing crunch](https://www.yahoo.com/news/spaniards-packing-water-guns-blame-185746009.html)
-- Jun 15 - [FAA Makes Telling Decision on Boeing 787s After Air India Crash](https://www.yahoo.com/news/faa-makes-telling-decision-boeing-175421429.html)
-- Jun 15 - [Royal Caribbean and Celebrity Cruises announce new reward benefits](https://www.yahoo.com/lifestyle/articles/royal-caribbean-celebrity-cruises-announce-173600494.html)
+- Jun 16 - [Trump directs ICE to expand deportations in Democratic-run cities, undeterred by protests](https://www.yahoo.com/news/trump-directs-ice-expand-deportations-012125584.html)
+- Jun 15 - [Friends say Minnesota shooting suspect was deeply religious and conservative](https://www.yahoo.com/news/friends-minnesota-shooting-suspect-deeply-235237872.html)
+- Jun 15 - [Over 9.9 Million Are Floored By This Tweet From A MAGA Voter Who Says Her Son Won't Talk To Her Anymore](https://www.yahoo.com/news/over-9-9-million-floored-222706310.html)
+- Jun 15 - [Iran rejects ceasefire negotiations while under Israeli attack, official says](https://www.yahoo.com/news/iran-rejects-ceasefire-negotiations-while-213024770.html)
+- Jun 15 - [IAF Destroys Iranian Aerial Tanker 1,400 miles From Israel, Farthest Strike Yet (Updated)](https://www.yahoo.com/news/iaf-destroys-iranian-aerial-tanker-171441285.html)
 <!-- feed end -->
