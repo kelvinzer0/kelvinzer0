@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Bitcoin buyer Metaplanet is now bigger than chipmaker Kioxia](https://finance.yahoo.com/news/bitcoin-buyer-metaplanet-now-bigger-071720814.html)
-- Jun 16 - [Metro Bank shares soar as investors welcome possible takeover approach](https://finance.yahoo.com/news/metro-bank-shares-soar-investors-082127745.html)
-- Jun 16 - [Valedictorian told to stay home after making pro-Palestinian remarks in grad speech](https://www.yahoo.com/news/valedictorian-told-stay-home-making-080000297.html)
-- Jun 16 - [Israel furious as France shuts four weapons stands at Paris Airshow](https://finance.yahoo.com/news/organisers-shut-four-main-israeli-075410567.html)
-- Jun 16 - [Very Possible This Iranian Regime Could Collapse, NUFDI's Khansarinia Says](https://finance.yahoo.com/video/very-possible-iranian-regime-could-064651783.html)
+- Jun 16 - [Why rare earth minerals are so crucial to US-China trade deal](https://finance.yahoo.com/video/why-rare-earth-minerals-crucial-100043747.html)
+- Jun 16 - [Trump Sent Them To Hell. Now He's Erasing Them Altogether.](https://www.yahoo.com/news/trump-sent-them-hell-now-094515370.html)
+- Jun 16 - [George Conway Burns 'Loon' Trump With A Scathing New Nickname After Parade Flop](https://www.yahoo.com/news/george-conway-burns-loon-trump-090832950.html)
+- Jun 16 - [Philp: Authorities deliberately covered up grooming gangs](https://www.yahoo.com/news/philp-authorities-deliberately-covered-grooming-085523077.html)
+- Jun 16 - [Israel furious as France shuts four weapons stands at Paris Airshow](https://www.yahoo.com/news/organisers-shut-four-main-israeli-075410567.html)
 <!-- feed end -->
