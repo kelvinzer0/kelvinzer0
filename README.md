@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Trump says must expand efforts to deport people illegally in US](https://www.yahoo.com/news/trump-says-must-expand-efforts-010203784.html)
-- Jun 16 - [Stock market today: Dow, S&P 500, Nasdaq futures gain, oil rises with Israel-Iran strikes in focus](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-gain-oil-rises-with-israel-iran-strikes-in-focus-003704764.html)
-- Jun 16 - [Dozens of heavily armed ICE agents swarm popular L.A. County swap meet](https://www.yahoo.com/news/dozens-heavily-armed-ice-agents-001847985.html)
-- Jun 15 - [Friends say Minnesota shooting suspect was deeply religious and conservative](https://www.yahoo.com/news/friends-minnesota-shooting-suspect-deeply-235237872.html)
-- Jun 15 - [The Silent Symptom Most People Don't Realize Could Be a Dementia Sign, According to Neurologists](https://www.yahoo.com/news/silent-symptom-most-people-dont-212500887.html)
+- Jun 16 - [Australian accused of mushroom murders engaged in 'sinister deception', court hears](https://www.yahoo.com/news/australian-accused-mushroom-murders-engaged-052349123.html)
+- Jun 16 - [US pushes Vietnam to decouple from Chinese tech, sources say](https://finance.yahoo.com/news/us-pushes-vietnam-decouple-chinese-051418010.html)
+- Jun 16 - [Innovent on Seizing 'DeepSeek Moment' for Biotech](https://finance.yahoo.com/video/innovent-seizing-deepseek-moment-biotech-050924085.html)
+- Jun 16 - [Ali Khamenei: ruthless defender of Iran’s revolution with few good options left](https://www.yahoo.com/news/ali-khamenei-ruthless-defender-iran-040038556.html)
+- Jun 16 - [Iran’s intelligence chief killed in Israeli strike](https://www.yahoo.com/news/iran-intelligence-chief-killed-israeli-025606941.html)
 <!-- feed end -->
