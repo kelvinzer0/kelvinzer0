@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Norwegian monarch visits polar Svalbard as interest in Arctic grows](https://www.yahoo.com/news/norwegian-monarch-visits-polar-svalbard-081624730.html)
-- Jun 16 - [Australian police officer shot dead at rural property](https://www.yahoo.com/news/australian-police-officer-shot-dead-051220671.html)
-- Jun 16 - ['Openly Admitting': Critics Rip Trump For 'Dehumanizing' Sunday Night Announcement](https://www.yahoo.com/news/openly-admitting-critics-rip-trump-065145080.html)
-- Jun 16 - [US pushes Vietnam to decouple from Chinese tech, sources say](https://finance.yahoo.com/news/us-pushes-vietnam-decouple-chinese-051418010.html)
-- Jun 16 - [Innovent on Seizing 'DeepSeek Moment' for Biotech](https://finance.yahoo.com/video/innovent-seizing-deepseek-moment-biotech-050924085.html)
+- Jun 16 - [Bitcoin buyer Metaplanet is now bigger than chipmaker Kioxia](https://finance.yahoo.com/news/bitcoin-buyer-metaplanet-now-bigger-071720814.html)
+- Jun 16 - [Metro Bank shares soar as investors welcome possible takeover approach](https://finance.yahoo.com/news/metro-bank-shares-soar-investors-082127745.html)
+- Jun 16 - [Valedictorian told to stay home after making pro-Palestinian remarks in grad speech](https://www.yahoo.com/news/valedictorian-told-stay-home-making-080000297.html)
+- Jun 16 - [Israel furious as France shuts four weapons stands at Paris Airshow](https://finance.yahoo.com/news/organisers-shut-four-main-israeli-075410567.html)
+- Jun 16 - [Very Possible This Iranian Regime Could Collapse, NUFDI's Khansarinia Says](https://finance.yahoo.com/video/very-possible-iranian-regime-could-064651783.html)
 <!-- feed end -->
