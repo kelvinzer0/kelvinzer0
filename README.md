@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Renewable energy remains cheapest power builds as new gas plants get pricier](https://finance.yahoo.com/news/renewable-energy-remains-cheapest-power-203954801.html)
+- Jun 16 - [Judge rules some NIH grant cuts illegal, saying he's never seen such discrimination in 40 years](https://www.yahoo.com/news/judge-rules-nih-grant-cuts-220420532.html)
+- Jun 16 - [US Senate Republicans change Trump tax-cut bill, setting conflict with House](https://www.yahoo.com/news/us-senate-republicans-unveil-proposed-211109212.html)
 - Jun 16 - [The Trumps Are Launching *Checks Notes* Gold, Trump-Themed Smartphones, And Unfortunately, You Read This Headline Right](https://www.yahoo.com/entertainment/articles/trumps-launching-checks-notes-gold-203153117.html)
-- Jun 16 - [Iran’s broadcasters become the news on a day of mayhem](https://www.yahoo.com/news/iran-broadcasters-become-news-day-202325467.html)
 - Jun 16 - [NAACP won't invite Trump to its national convention. He will be 1st president excluded in 116 years](https://www.yahoo.com/news/naacp-wont-invite-trump-national-200951985.html)
-- Jun 16 - [Armada Of USAF Tankers Just Deployed East Over Atlantic Spurring Speculation (Updated)](https://www.yahoo.com/news/armada-usaf-tankers-just-deployed-095747420.html)
+- Jun 16 - [Spectrum service in Los Angeles fully restored after ‘criminal act of vandalism’](https://www.yahoo.com/news/spectrum-los-angeles-fully-restored-200651506.html)
 <!-- feed end -->
