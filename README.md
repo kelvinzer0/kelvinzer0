@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 16 - [Buildings destroyed in central Israel following new wave of missiles launched from Iran](https://www.yahoo.com/news/buildings-destroyed-central-israel-following-030304276.html)
-- Jun 16 - [Australia's Albanese says he will press AUKUS, Indo Pacific security in Trump meeting](https://www.yahoo.com/news/australias-albanese-says-press-aukus-025424084.html)
+- Jun 16 - [What Israel’s targeting of Iranian oil infrastructure means for global energy security](https://www.yahoo.com/news/israel-targeting-iranian-oil-infrastructure-030236278.html)
 - Jun 16 - [Trump directs ICE to expand deportations in Democratic-run cities, undeterred by protests](https://www.yahoo.com/news/trump-directs-ice-expand-deportations-012125584.html)
 - Jun 16 - [Trump says must expand efforts to deport people illegally in US](https://www.yahoo.com/news/trump-says-must-expand-efforts-010203784.html)
 - Jun 16 - [Dozens of heavily armed ICE agents swarm popular L.A. County swap meet](https://www.yahoo.com/news/dozens-heavily-armed-ice-agents-001847985.html)
+- Jun 15 - [Friends say Minnesota shooting suspect was deeply religious and conservative](https://www.yahoo.com/news/friends-minnesota-shooting-suspect-deeply-235237872.html)
 <!-- feed end -->
