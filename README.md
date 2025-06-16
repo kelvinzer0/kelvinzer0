@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 16 - [Nuclear agency head warns of radiological and chemical contamination inside Iran’s main nuclear site](https://www.yahoo.com/news/nuclear-agency-head-warns-radiological-104910676.html)
 - Jun 16 - [Why rare earth minerals are so crucial to US-China trade deal](https://finance.yahoo.com/video/why-rare-earth-minerals-crucial-100043747.html)
-- Jun 16 - [Trump Sent Them To Hell. Now He's Erasing Them Altogether.](https://www.yahoo.com/news/trump-sent-them-hell-now-094515370.html)
-- Jun 16 - [George Conway Burns 'Loon' Trump With A Scathing New Nickname After Parade Flop](https://www.yahoo.com/news/george-conway-burns-loon-trump-090832950.html)
-- Jun 16 - [Philp: Authorities deliberately covered up grooming gangs](https://www.yahoo.com/news/philp-authorities-deliberately-covered-grooming-085523077.html)
-- Jun 16 - [Israel furious as France shuts four weapons stands at Paris Airshow](https://www.yahoo.com/news/organisers-shut-four-main-israeli-075410567.html)
+- Jun 16 - [Armada Of USAF Tankers Just Deployed East Over Atlantic Spurring Speculation](https://www.yahoo.com/news/armada-usaf-tankers-just-deployed-095747420.html)
+- Jun 16 - [AP Top Stories June 16](https://www.yahoo.com/news/ap-top-stories-june-16-095146696.html)
+- Jun 16 - [The Ukrainian soldier's best chance against Russia's advanced unjammable drones is as low-tech as it gets](https://www.yahoo.com/news/ukrainian-soldiers-best-chance-against-094801176.html)
 <!-- feed end -->
