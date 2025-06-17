@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [America has sunk to new lows fueled by partisan extremism: Chris Cuomo | CUOMO](https://www.yahoo.com/news/america-sunk-lows-fueled-partisan-004400327.html)
 - Jun 16 - [Jury finds MyPillow founder defamed former employee for a leading voting equipment company](https://www.yahoo.com/news/jury-finds-mypillow-founder-defamed-224647502.html)
-- Jun 16 - [2 Unstoppable Dow Dividend Stocks to Buy and Hold Forever](https://finance.yahoo.com/news/2-unstoppable-dow-dividend-stocks-221500925.html)
-- Jun 16 - [Why American Express Stock Bumped Higher on Monday](https://finance.yahoo.com/news/why-american-express-stock-bumped-221458324.html)
+- Jun 16 - [Lottery Winner Has Hours Left to Claim $1.4M Prize and There's No Way to Identify Who Bought It](https://www.yahoo.com/news/lottery-winner-hours-left-claim-205519505.html)
+- Jun 16 - [Exclusive: Congressman Tim Moore failed to properly disclose hundreds of thousands of dollars worth of personal stock purchases made around Trump’s ‘Liberation Day’ in a potential STOCK Act violation](https://www.yahoo.com/news/exclusive-congressman-tim-moore-failed-204454458.html)
 - Jun 16 - [NAACP won't invite Trump to its national convention. He will be 1st president excluded in 116 years](https://www.yahoo.com/news/naacp-wont-invite-trump-national-200951985.html)
-- Jun 16 - [Armada Of USAF Tankers Just Deployed East Over Atlantic Spurring Speculation (Updated)](https://www.yahoo.com/news/armada-usaf-tankers-just-deployed-095747420.html)
 <!-- feed end -->
