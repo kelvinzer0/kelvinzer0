@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Why Are People Smuggling Cocoa Beans out of Ivory Coast?](https://finance.yahoo.com/video/why-people-smuggling-cocoa-beans-080259139.html)
+- Jun 17 - [What Happens to Equities If the Strait of Hormuz Closes?](https://finance.yahoo.com/video/happens-equities-strait-hormuz-closes-085353907.html)
+- Jun 17 - [Bank of England expected to hold interest rates as oil prices rise and UK growth falters](https://uk.finance.yahoo.com/news/bank-england-interest-rates-050044412.html)
 - Jun 17 - [Chinese automakers build significant leads in zero-emission vehicle market, research finds](https://finance.yahoo.com/news/chinese-automakers-build-significant-leads-040542085.html)
-- Jun 17 - [Boardman residents frustrated with messes left by fiber optic cable companies](https://www.yahoo.com/news/boardman-residents-frustrated-messes-left-021239129.html)
+- Jun 17 - [‘He’s right there’: Bystander flags man with rifle to police at ‘No Kings’ protest](https://www.yahoo.com/news/bystander-flags-man-rifle-police-005939650.html)
 - Jun 17 - [Insider interview with ex-Tesla manager reveals it could soon be 'game over' for Elon Musk's Tesla: 'I don't think that there's anything he can do'](https://finance.yahoo.com/news/insider-interview-ex-tesla-manager-004500031.html)
-- Jun 16 - [Avoid this ‘fancy’ seasoning to protect yourself from heart disease and stroke: cardiologist](https://health.yahoo.com/articles/avoid-fancy-seasoning-protect-yourself-234139744.html)
 <!-- feed end -->
