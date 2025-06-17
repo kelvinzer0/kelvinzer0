@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Kraft Heinz plans to remove all synthetic dyes in US products](https://finance.yahoo.com/video/kraft-heinz-plans-remove-synthetic-151052899.html)
-- Jun 17 - [‘Dark fleet’ tanker collision sparks fire near Strait of Hormuz](https://www.yahoo.com/news/dark-fleet-tanker-collision-sparks-144948229.html)
-- Jun 17 - [Greenpeace concerned as oil tankers on fire in Gulf of Oman](https://www.yahoo.com/news/greenpeace-concerned-oil-tankers-fire-144434805.html)
-- Jun 17 - ['Brutal and inhuman:' Islamophobia on the rise in Germany, groups say](https://www.yahoo.com/news/brutal-inhuman-islamophobia-rise-germany-144432619.html)
-- Jun 17 - [Editas Medicine Is Great. Here's Why You Shouldn't Buy It.](https://finance.yahoo.com/news/editas-medicine-great-heres-why-140700716.html)
+- Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658067.html)
+- Jun 17 - [One US bomb could destroy Iran’s nuclear sites. Israel may not need it](https://www.yahoo.com/news/one-us-bomb-could-destroy-154823323.html)
+- Jun 17 - [R Kelly rushed to hospital after overdosing in prison, lawyers say](https://www.yahoo.com/news/r-kelly-rushed-hospital-overdosing-154642013.html)
+- Jun 17 - [Trump raged at Hegseth over birthday parade where military had too much fun: ‘He’s p***ed off at the soldiers’](https://www.yahoo.com/news/trump-raged-hegseth-over-birthday-140800064.html)
+- Jun 17 - [Dutch government recommends children under 15 stay off TikTok and Instagram](https://www.yahoo.com/news/dutch-government-recommends-children-under-144717407.html)
 <!-- feed end -->
