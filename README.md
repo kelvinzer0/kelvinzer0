@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Bonnaroo cancellation prompts social media backlash, petition for 100% refunds](https://www.yahoo.com/entertainment/articles/bonnaroo-cancellation-prompts-social-media-211224656.html)
+- Jun 17 - [Fed meeting, housing data, initial jobless claims: What to Watch](https://finance.yahoo.com/video/fed-meeting-housing-data-initial-230000022.html)
+- Jun 17 - [DHS Secretary Kristi Noem Taken to D.C. Hospital in Ambulance](https://www.yahoo.com/news/dhs-secretary-kristi-noem-taken-220310427.html)
 - Jun 17 - [Houston man, 65, loses $500K life savings in elder scam — now he doesn’t know if he’ll ever be able to retire](https://www.yahoo.com/lifestyle/articles/houston-man-65-loses-500k-203100004.html)
-- Jun 17 - [Iran confronts Trump with toughest choice yet](https://www.yahoo.com/news/iran-confronts-trump-toughest-choice-192725803.html)
-- Jun 17 - [China sends mystery transport planes into Iran](https://www.yahoo.com/news/china-sends-mystery-transport-planes-170428323.html)
-- Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658850.html)
+- Jun 17 - [Surprise witness in Idaho student murders says she 'saw Bryan there' on deadly night](https://www.yahoo.com/news/surprise-witness-idaho-student-murders-200029706.html)
+- Jun 17 - [Alex Jones accused of trying to shield assets as Sandy Hook families seek payment on $1B judgment](https://www.yahoo.com/news/alex-jones-accused-trying-shield-194647256.html)
 <!-- feed end -->
