@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Fed Stuck With 'Torn' Dual Mandate, Economist Slok Says](https://finance.yahoo.com/video/fed-stuck-torn-dual-mandate-101221388.html)
-- Jun 17 - [Downtown's latest high-rise just staged a groundbreaking. But what's going on across the street?](https://finance.yahoo.com/news/downtowns-latest-high-rise-just-100450930.html)
-- Jun 17 - [Built inside a mountain and hardened against bunker-busting bombs. Here’s what we know about Iran’s Fordow nuclear site](https://www.yahoo.com/news/built-inside-mountain-hardened-against-100134271.html)
-- Jun 17 - [Mortgage and refinance interest rates today, June 17, 2025: A small change as the Fed meeting looms](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-june-17-2025-100001178.html)
+- Jun 17 - [Eric Dane says he's 'resilient' and 'very hopeful' amid ALS diagnosis](https://www.yahoo.com/entertainment/articles/eric-dane-says-hes-resilient-121441993.html)
+- Jun 17 - [Big Deal: Amazon Prime Day Will Last for 4 Days Starting July 8](https://www.yahoo.com/news/big-deal-amazon-prime-day-121012806.html)
+- Jun 17 - [These 2 Top Industry-Leading Stocks Just Declared Dividend Raises](https://finance.yahoo.com/news/2-top-industry-leading-stocks-100300172.html)
 - Jun 17 - [Iran leader Khamenei sees his inner circle hollowed out by Israel](https://www.yahoo.com/news/iran-leader-khamenei-sees-inner-092435510.html)
+- Jun 17 - [Taiwan seals Ukraine combat-tested drone software deal to help deter China](https://www.yahoo.com/news/taiwan-seals-ukraine-combat-tested-071727423.html)
 <!-- feed end -->
