@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Eric Dane says he's 'resilient' and 'very hopeful' amid ALS diagnosis](https://www.yahoo.com/entertainment/articles/eric-dane-says-hes-resilient-121441993.html)
-- Jun 17 - [Big Deal: Amazon Prime Day Will Last for 4 Days Starting July 8](https://www.yahoo.com/news/big-deal-amazon-prime-day-121012806.html)
-- Jun 17 - [These 2 Top Industry-Leading Stocks Just Declared Dividend Raises](https://finance.yahoo.com/news/2-top-industry-leading-stocks-100300172.html)
-- Jun 17 - [Iran leader Khamenei sees his inner circle hollowed out by Israel](https://www.yahoo.com/news/iran-leader-khamenei-sees-inner-092435510.html)
-- Jun 17 - [Taiwan seals Ukraine combat-tested drone software deal to help deter China](https://www.yahoo.com/news/taiwan-seals-ukraine-combat-tested-071727423.html)
+- Jun 17 - [Trump says he won't call Minnesota Gov. Walz after lawmaker shootings because it would 'waste time'](https://www.yahoo.com/news/trump-says-wont-call-minnesota-114745339.html)
+- Jun 17 - [Underground US facility could unlock nearly limitless energy source: 'Something that's never been done before'](https://www.yahoo.com/news/underground-us-facility-could-unlock-111512039.html)
+- Jun 17 - [As Trump shatters ethics norms with a Qatari jet and a $499 smartphone, experts lament Biden’s ‘failure’ to pass reforms](https://www.yahoo.com/news/trump-shatters-ethics-norms-qatari-110003330.html)
+- Jun 17 - [What to know about bunker-buster bombs and Iran's Fordo nuclear facility](https://www.yahoo.com/news/know-bunker-buster-bombs-irans-101253020.html)
+- Jun 17 - [Built inside a mountain and hardened against bunker-busting bombs. Here’s what we know about Iran’s Fordow nuclear site](https://www.yahoo.com/news/built-inside-mountain-hardened-against-100134271.html)
 <!-- feed end -->
