@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658067.html)
-- Jun 17 - [One US bomb could destroy Iran’s nuclear sites. Israel may not need it](https://www.yahoo.com/news/one-us-bomb-could-destroy-154823323.html)
-- Jun 17 - [R Kelly rushed to hospital after overdosing in prison, lawyers say](https://www.yahoo.com/news/r-kelly-rushed-hospital-overdosing-154642013.html)
+- Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658850.html)
 - Jun 17 - [Trump raged at Hegseth over birthday parade where military had too much fun: ‘He’s p***ed off at the soldiers’](https://www.yahoo.com/news/trump-raged-hegseth-over-birthday-140800064.html)
-- Jun 17 - [Dutch government recommends children under 15 stay off TikTok and Instagram](https://www.yahoo.com/news/dutch-government-recommends-children-under-144717407.html)
+- Jun 17 - [‘The response on the right has been absolutely deranged’: Tim Miller reacts to Minnesota shootings](https://www.yahoo.com/news/response-absolutely-deranged-tim-miller-141825957.html)
+- Jun 17 - ["You got a billion dollars and you can't get a custom car?" - Cuttino Mobley says Yao drives a Range Rover he barely fits in](https://sports.yahoo.com/article/got-billion-dollars-cant-custom-132700669.html)
+- Jun 17 - [Archaeologists Found a 1,600-Year-Old Roman Artifact With Shockingly Intact Details](https://www.yahoo.com/news/archaeologists-found-1-600-old-120000193.html)
 <!-- feed end -->
