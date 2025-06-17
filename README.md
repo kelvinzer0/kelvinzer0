@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [Karen Read awaits fate as jury begins second full day of deliberations](https://www.yahoo.com/news/karen-read-awaits-fate-jury-131410448.html)
+- Jun 17 - [US May Retail Sales Decline by Most This Year](https://finance.yahoo.com/video/us-may-retail-sales-decline-125328516.html)
 - Jun 17 - [Trump says he won't call Minnesota Gov. Walz after lawmaker shootings because it would 'waste time'](https://www.yahoo.com/news/trump-says-wont-call-minnesota-114745339.html)
-- Jun 17 - [Underground US facility could unlock nearly limitless energy source: 'Something that's never been done before'](https://www.yahoo.com/news/underground-us-facility-could-unlock-111512039.html)
+- Jun 17 - [China completes monumental task using declassified US documents: 'We mastered every technique in the literature — then pushed further'](https://www.yahoo.com/news/china-completes-monumental-task-using-110056982.html)
 - Jun 17 - [As Trump shatters ethics norms with a Qatari jet and a $499 smartphone, experts lament Biden’s ‘failure’ to pass reforms](https://www.yahoo.com/news/trump-shatters-ethics-norms-qatari-110003330.html)
-- Jun 17 - [What to know about bunker-buster bombs and Iran's Fordo nuclear facility](https://www.yahoo.com/news/know-bunker-buster-bombs-irans-101253020.html)
-- Jun 17 - [Built inside a mountain and hardened against bunker-busting bombs. Here’s what we know about Iran’s Fordow nuclear site](https://www.yahoo.com/news/built-inside-mountain-hardened-against-100134271.html)
 <!-- feed end -->
