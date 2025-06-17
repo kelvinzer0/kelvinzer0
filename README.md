@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [US judge blocks Defense Department from slashing federal research funding](https://www.yahoo.com/news/us-judge-blocks-defense-department-202222706.html)
 - Jun 17 - [Alex Jones accused of trying to shield assets as Sandy Hook families seek payment on $1B judgment](https://www.yahoo.com/news/alex-jones-accused-trying-shield-194647256.html)
-- Jun 17 - [Trump raged at Hegseth over birthday parade where military had too much fun: ‘He’s p***ed off at the soldiers’](https://www.yahoo.com/news/trump-raged-hegseth-over-birthday-140800064.html)
-- Jun 17 - [Photos show crowds of desperate Palestinians struggling to get food](https://www.yahoo.com/news/photos-show-crowds-desperate-palestinians-165132872.html)
-- Jun 17 - [Popular burger chain to open a new location in Arizona. Here's everything we know](https://finance.yahoo.com/news/popular-burger-chain-open-location-160923414.html)
-- Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658850.html)
+- Jun 17 - [Investing in the AI Buildout](https://finance.yahoo.com/video/investing-ai-buildout-194148922.html)
+- Jun 17 - [100 MPH Winds Could Hit Two U.S. States on June 17](https://www.yahoo.com/news/100-mph-winds-could-hit-172907978.html)
+- Jun 17 - [China sends mystery transport planes into Iran](https://www.yahoo.com/news/china-sends-mystery-transport-planes-170428323.html)
 <!-- feed end -->
