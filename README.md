@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [US judge blocks Defense Department from slashing federal research funding](https://www.yahoo.com/news/us-judge-blocks-defense-department-202222706.html)
-- Jun 17 - [Alex Jones accused of trying to shield assets as Sandy Hook families seek payment on $1B judgment](https://www.yahoo.com/news/alex-jones-accused-trying-shield-194647256.html)
-- Jun 17 - [Investing in the AI Buildout](https://finance.yahoo.com/video/investing-ai-buildout-194148922.html)
-- Jun 17 - [100 MPH Winds Could Hit Two U.S. States on June 17](https://www.yahoo.com/news/100-mph-winds-could-hit-172907978.html)
+- Jun 17 - [Bonnaroo cancellation prompts social media backlash, petition for 100% refunds](https://www.yahoo.com/entertainment/articles/bonnaroo-cancellation-prompts-social-media-211224656.html)
+- Jun 17 - [Houston man, 65, loses $500K life savings in elder scam — now he doesn’t know if he’ll ever be able to retire](https://www.yahoo.com/lifestyle/articles/houston-man-65-loses-500k-203100004.html)
+- Jun 17 - [Iran confronts Trump with toughest choice yet](https://www.yahoo.com/news/iran-confronts-trump-toughest-choice-192725803.html)
 - Jun 17 - [China sends mystery transport planes into Iran](https://www.yahoo.com/news/china-sends-mystery-transport-planes-170428323.html)
+- Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658850.html)
 <!-- feed end -->
