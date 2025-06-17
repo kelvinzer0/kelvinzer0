@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [When an Air India flight crashed into a medical campus, surviving doctors rushed to save lives](https://www.yahoo.com/news/air-india-flight-crashed-medical-035712490.html)
-- Jun 17 - [‘He’s right there’: Bystander flags man with rifle to police at ‘No Kings’ protest](https://www.yahoo.com/news/bystander-flags-man-rifle-police-005939650.html)
 - Jun 17 - [Insider interview with ex-Tesla manager reveals it could soon be 'game over' for Elon Musk's Tesla: 'I don't think that there's anything he can do'](https://finance.yahoo.com/news/insider-interview-ex-tesla-manager-004500031.html)
 - Jun 16 - [Jury finds MyPillow founder defamed former employee for a leading voting equipment company](https://www.yahoo.com/news/jury-finds-mypillow-founder-defamed-224647502.html)
-- Jun 16 - [Air Force's Bunker-Buster Bomb Could Take Out Iran Nuclear Facility, But Israel Hints at Other Options](https://www.yahoo.com/news/air-forces-bunker-buster-bomb-220548085.html)
+- Jun 16 - [‘Comply now, complain later,’ GRPD chief warns bystanders after viral video](https://www.yahoo.com/news/comply-now-complain-later-grpd-221044214.html)
+- Jun 16 - [Judge rules some NIH grant cuts illegal, saying he's never seen such discrimination in 40 years](https://www.yahoo.com/news/judge-rules-nih-grant-cuts-220420532.html)
+- Jun 16 - [ICE detains Utah college student after brief traffic stop, raising questions](https://www.yahoo.com/news/ice-detains-utah-college-student-213502534.html)
 <!-- feed end -->
