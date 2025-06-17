@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [This Florida county got ranked best in the state for places to live. Do you agree?](https://www.yahoo.com/news/florida-county-got-ranked-best-165037227.html)
+- Jun 17 - [Brad Lander, NYC comptroller and mayoral candidate, is arrested at immigration court](https://www.yahoo.com/news/brad-lander-nyc-comptroller-mayoral-163630348.html)
 - Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658850.html)
-- Jun 17 - [Trump raged at Hegseth over birthday parade where military had too much fun: ‘He’s p***ed off at the soldiers’](https://www.yahoo.com/news/trump-raged-hegseth-over-birthday-140800064.html)
-- Jun 17 - [‘The response on the right has been absolutely deranged’: Tim Miller reacts to Minnesota shootings](https://www.yahoo.com/news/response-absolutely-deranged-tim-miller-141825957.html)
-- Jun 17 - ["You got a billion dollars and you can't get a custom car?" - Cuttino Mobley says Yao drives a Range Rover he barely fits in](https://sports.yahoo.com/article/got-billion-dollars-cant-custom-132700669.html)
-- Jun 17 - [Archaeologists Found a 1,600-Year-Old Roman Artifact With Shockingly Intact Details](https://www.yahoo.com/news/archaeologists-found-1-600-old-120000193.html)
+- Jun 17 - [WATCH: ‘Dark fleet’ tanker collision sparks fire near Strait of Hormuz](https://www.yahoo.com/news/dark-fleet-tanker-collision-sparks-144948229.html)
+- Jun 17 - [Why anti-tourism protests are spreading across Europe](https://www.yahoo.com/news/why-anti-tourism-protests-spreading-141245472.html)
 <!-- feed end -->
