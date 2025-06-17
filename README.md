@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [America has sunk to new lows fueled by partisan extremism: Chris Cuomo | CUOMO](https://www.yahoo.com/news/america-sunk-lows-fueled-partisan-004400327.html)
+- Jun 17 - [‘He’s right there’: Bystander flags man with rifle to police at ‘No Kings’ protest](https://www.yahoo.com/news/bystander-flags-man-rifle-police-005939650.html)
+- Jun 17 - [Insider interview with ex-Tesla manager reveals it could soon be 'game over' for Elon Musk's Tesla: 'I don't think that there's anything he can do'](https://finance.yahoo.com/news/insider-interview-ex-tesla-manager-004500031.html)
+- Jun 16 - [The stock market's secret weapon: Insatiable demand from American retirement accounts](https://finance.yahoo.com/news/stock-markets-secret-weapon-insatiable-233829513.html)
 - Jun 16 - [Jury finds MyPillow founder defamed former employee for a leading voting equipment company](https://www.yahoo.com/news/jury-finds-mypillow-founder-defamed-224647502.html)
-- Jun 16 - [Lottery Winner Has Hours Left to Claim $1.4M Prize and There's No Way to Identify Who Bought It](https://www.yahoo.com/news/lottery-winner-hours-left-claim-205519505.html)
-- Jun 16 - [Exclusive: Congressman Tim Moore failed to properly disclose hundreds of thousands of dollars worth of personal stock purchases made around Trump’s ‘Liberation Day’ in a potential STOCK Act violation](https://www.yahoo.com/news/exclusive-congressman-tim-moore-failed-204454458.html)
-- Jun 16 - [NAACP won't invite Trump to its national convention. He will be 1st president excluded in 116 years](https://www.yahoo.com/news/naacp-wont-invite-trump-national-200951985.html)
+- Jun 16 - [Judge rules some NIH grant cuts illegal, saying he's never seen such discrimination in 40 years](https://www.yahoo.com/news/judge-rules-nih-grant-cuts-220420532.html)
 <!-- feed end -->
