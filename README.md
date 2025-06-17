@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 17 - [When an Air India flight crashed into a medical campus, surviving doctors rushed to save lives](https://www.yahoo.com/news/air-india-flight-crashed-medical-035712490.html)
 - Jun 17 - [‘He’s right there’: Bystander flags man with rifle to police at ‘No Kings’ protest](https://www.yahoo.com/news/bystander-flags-man-rifle-police-005939650.html)
 - Jun 17 - [Insider interview with ex-Tesla manager reveals it could soon be 'game over' for Elon Musk's Tesla: 'I don't think that there's anything he can do'](https://finance.yahoo.com/news/insider-interview-ex-tesla-manager-004500031.html)
-- Jun 16 - [The stock market's secret weapon: Insatiable demand from American retirement accounts](https://finance.yahoo.com/news/stock-markets-secret-weapon-insatiable-233829513.html)
 - Jun 16 - [Jury finds MyPillow founder defamed former employee for a leading voting equipment company](https://www.yahoo.com/news/jury-finds-mypillow-founder-defamed-224647502.html)
-- Jun 16 - [Judge rules some NIH grant cuts illegal, saying he's never seen such discrimination in 40 years](https://www.yahoo.com/news/judge-rules-nih-grant-cuts-220420532.html)
+- Jun 16 - [Air Force's Bunker-Buster Bomb Could Take Out Iran Nuclear Facility, But Israel Hints at Other Options](https://www.yahoo.com/news/air-forces-bunker-buster-bomb-220548085.html)
 <!-- feed end -->
