@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [This Florida county got ranked best in the state for places to live. Do you agree?](https://www.yahoo.com/news/florida-county-got-ranked-best-165037227.html)
-- Jun 17 - [Brad Lander, NYC comptroller and mayoral candidate, is arrested at immigration court](https://www.yahoo.com/news/brad-lander-nyc-comptroller-mayoral-163630348.html)
+- Jun 17 - [PayPal to Add Stablecoin on Stellar Network](https://finance.yahoo.com/video/paypal-add-stablecoin-stellar-network-184317175.html)
+- Jun 17 - [5 Reasons the Middle Class Isn’t Planning for Long-Term Care Insurance](https://finance.yahoo.com/news/5-reasons-middle-class-aren-200011221.html)
+- Jun 17 - [Another of Mohamed Hadid’s Failed Mansion Projects Heads to Auction Block—a Year After Developer Filed for Bankruptcy](https://www.yahoo.com/lifestyle/articles/another-mohamed-hadid-failed-mansion-173907038.html)
+- Jun 17 - [Photos show crowds of desperate Palestinians struggling to get food](https://www.yahoo.com/news/photos-show-crowds-desperate-palestinians-165132872.html)
 - Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658850.html)
-- Jun 17 - [WATCH: ‘Dark fleet’ tanker collision sparks fire near Strait of Hormuz](https://www.yahoo.com/news/dark-fleet-tanker-collision-sparks-144948229.html)
-- Jun 17 - [Why anti-tourism protests are spreading across Europe](https://www.yahoo.com/news/why-anti-tourism-protests-spreading-141245472.html)
 <!-- feed end -->
