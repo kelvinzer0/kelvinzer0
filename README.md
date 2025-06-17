@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [PayPal to Add Stablecoin on Stellar Network](https://finance.yahoo.com/video/paypal-add-stablecoin-stellar-network-184317175.html)
-- Jun 17 - [5 Reasons the Middle Class Isn’t Planning for Long-Term Care Insurance](https://finance.yahoo.com/news/5-reasons-middle-class-aren-200011221.html)
-- Jun 17 - [Another of Mohamed Hadid’s Failed Mansion Projects Heads to Auction Block—a Year After Developer Filed for Bankruptcy](https://www.yahoo.com/lifestyle/articles/another-mohamed-hadid-failed-mansion-173907038.html)
+- Jun 17 - [Alex Jones accused of trying to shield assets as Sandy Hook families seek payment on $1B judgment](https://www.yahoo.com/news/alex-jones-accused-trying-shield-194647256.html)
+- Jun 17 - [Trump raged at Hegseth over birthday parade where military had too much fun: ‘He’s p***ed off at the soldiers’](https://www.yahoo.com/news/trump-raged-hegseth-over-birthday-140800064.html)
 - Jun 17 - [Photos show crowds of desperate Palestinians struggling to get food](https://www.yahoo.com/news/photos-show-crowds-desperate-palestinians-165132872.html)
+- Jun 17 - [Popular burger chain to open a new location in Arizona. Here's everything we know](https://finance.yahoo.com/news/popular-burger-chain-open-location-160923414.html)
 - Jun 17 - [Trump Mobile pulls coverage map after ‘Gulf of Mexico’ label sparks chatter online](https://www.yahoo.com/news/trump-mobile-pulls-coverage-map-160658850.html)
 <!-- feed end -->
