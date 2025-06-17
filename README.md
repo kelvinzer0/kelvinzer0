@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [Karen Read awaits fate as jury begins second full day of deliberations](https://www.yahoo.com/news/karen-read-awaits-fate-jury-131410448.html)
-- Jun 17 - [US May Retail Sales Decline by Most This Year](https://finance.yahoo.com/video/us-may-retail-sales-decline-125328516.html)
-- Jun 17 - [Trump says he won't call Minnesota Gov. Walz after lawmaker shootings because it would 'waste time'](https://www.yahoo.com/news/trump-says-wont-call-minnesota-114745339.html)
-- Jun 17 - [China completes monumental task using declassified US documents: 'We mastered every technique in the literature — then pushed further'](https://www.yahoo.com/news/china-completes-monumental-task-using-110056982.html)
-- Jun 17 - [As Trump shatters ethics norms with a Qatari jet and a $499 smartphone, experts lament Biden’s ‘failure’ to pass reforms](https://www.yahoo.com/news/trump-shatters-ethics-norms-qatari-110003330.html)
+- Jun 17 - [Kraft Heinz plans to remove all synthetic dyes in US products](https://finance.yahoo.com/video/kraft-heinz-plans-remove-synthetic-151052899.html)
+- Jun 17 - [‘Dark fleet’ tanker collision sparks fire near Strait of Hormuz](https://www.yahoo.com/news/dark-fleet-tanker-collision-sparks-144948229.html)
+- Jun 17 - [Greenpeace concerned as oil tankers on fire in Gulf of Oman](https://www.yahoo.com/news/greenpeace-concerned-oil-tankers-fire-144434805.html)
+- Jun 17 - ['Brutal and inhuman:' Islamophobia on the rise in Germany, groups say](https://www.yahoo.com/news/brutal-inhuman-islamophobia-rise-germany-144432619.html)
+- Jun 17 - [Editas Medicine Is Great. Here's Why You Shouldn't Buy It.](https://finance.yahoo.com/news/editas-medicine-great-heres-why-140700716.html)
 <!-- feed end -->
