@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 17 - [OpenAI relationship with Microsoft could turn sour: WSJ](https://finance.yahoo.com/video/openai-relationship-microsoft-could-turn-070535803.html)
-- Jun 17 - [Hunger crisis deepens in Haiti, a UN-declared famine hot spot](https://www.yahoo.com/news/hunger-crisis-deepens-haiti-un-064934367.html)
-- Jun 17 - [Vigil held in Minnesota for lawmakers and others shot on Saturday](https://www.yahoo.com/news/vigil-held-minnesota-lawmakers-others-064326110.html)
+- Jun 17 - [Why Are People Smuggling Cocoa Beans out of Ivory Coast?](https://finance.yahoo.com/video/why-people-smuggling-cocoa-beans-080259139.html)
 - Jun 17 - [Chinese automakers build significant leads in zero-emission vehicle market, research finds](https://finance.yahoo.com/news/chinese-automakers-build-significant-leads-040542085.html)
+- Jun 17 - [Boardman residents frustrated with messes left by fiber optic cable companies](https://www.yahoo.com/news/boardman-residents-frustrated-messes-left-021239129.html)
 - Jun 17 - [Insider interview with ex-Tesla manager reveals it could soon be 'game over' for Elon Musk's Tesla: 'I don't think that there's anything he can do'](https://finance.yahoo.com/news/insider-interview-ex-tesla-manager-004500031.html)
+- Jun 16 - [Avoid this ‘fancy’ seasoning to protect yourself from heart disease and stroke: cardiologist](https://health.yahoo.com/articles/avoid-fancy-seasoning-protect-yourself-234139744.html)
 <!-- feed end -->
