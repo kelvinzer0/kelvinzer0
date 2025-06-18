@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [32 Completely Unexplainable Things Literally Every Person Over The Age Of 40 Does Even If They Have Zero Clue They Do It](https://www.yahoo.com/lifestyle/articles/32-completely-unexplainable-things-literally-143835905.html)
-- Jun 18 - [Seahawks great and Amazon Prime analyst Richard Sherman charged with DUI over a year after 2024 arrest](https://sports.yahoo.com/nfl/article/seahawks-great-and-amazon-prime-analyst-richard-sherman-charged-with-dui-over-a-year-after-2024-arrest-133414224.html)
+- Jun 18 - [Married Teacher Cried When Cops Arrested Her — Then Came the Bombshell: Allegations She Assaulted Student 45 Times](https://www.yahoo.com/news/married-teacher-cried-cops-arrested-154924048.html)
+- Jun 18 - [The unlikely comeback of America’s most endangered songbird](https://www.yahoo.com/news/unlikely-comeback-america-most-endangered-154214725.html)
+- Jun 18 - [Blackstone's James Expects More Deal Flow Amid Volatility](https://finance.yahoo.com/video/blackstones-james-expects-more-deal-145938540.html)
+- Jun 18 - [Iran's Supreme Leader Issues New Grave Threat to Trump, U.S.](https://www.yahoo.com/news/irans-supreme-leader-issues-grave-133230750.html)
 - Jun 18 - [Henry Ruggs, former Raiders first-round pick, apologizes to family of woman he killed in 2021 car crash](https://sports.yahoo.com/nfl/article/henry-ruggs-former-raiders-first-round-pick-apologizes-to-family-of-woman-he-killed-in-2021-car-crash-123704897.html)
-- Jun 18 - [Mark Cuban Floats Bold Healthcare Plan: 'Zero Premiums To Insurance Companies' With A Cash-Pay Revolution](https://finance.yahoo.com/news/mark-cuban-floats-bold-healthcare-113007050.html)
-- Jun 18 - [Hackers linked to Israel just emptied Iran’s largest exchange](https://finance.yahoo.com/news/suspected-israeli-group-hacks-48-105227656.html)
 <!-- feed end -->
