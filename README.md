@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Incredulous Tucker Carlson Has Shouting Match With Ted Cruz Over Basic Iran Facts: ‘You’re Calling for the Overthrow’ | Video](https://www.yahoo.com/news/incredulous-tucker-carlson-shouting-match-024612212.html)
+- Jun 18 - [How the Air India crash investigation is unfolding](https://www.yahoo.com/news/air-india-crash-investigation-unfolding-000211609.html)
 - Jun 18 - [Sam Altman says Meta offered $100 million bonuses to OpenAI employees](https://finance.yahoo.com/news/sam-altman-says-meta-offered-013520011.html)
+- Jun 17 - [Anne Burrell Found 'Unconscious and Unresponsive,' Pronounced Dead at Scene: Police](https://www.yahoo.com/entertainment/articles/anne-burrell-found-unconscious-unresponsive-233547533.html)
 - Jun 17 - ['Have you no decency?!' Republican backs down when confronted for minimizing murder of Dem lawmaker](https://www.yahoo.com/news/no-decency-republican-backs-down-233222041.html)
-- Jun 17 - [DHS Secretary Kristi Noem Taken to D.C. Hospital in Ambulance](https://www.yahoo.com/news/dhs-secretary-kristi-noem-taken-220310427.html)
-- Jun 17 - [Authorities Issue High Alert After Volcanic Eruption](https://www.yahoo.com/news/authorities-issue-high-alert-volcanic-212305731.html)
-- Jun 17 - [Alex Jones accused of trying to shield assets as Sandy Hook families seek payment on $1B judgment](https://www.yahoo.com/news/alex-jones-accused-trying-shield-194647256.html)
 <!-- feed end -->
