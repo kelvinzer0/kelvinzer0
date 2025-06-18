@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Japan records trade deficit as exports suffer from Trump's tariffs](https://finance.yahoo.com/news/japan-records-trade-deficit-exports-044943332.html)
 - Jun 18 - [Incredulous Tucker Carlson Has Shouting Match With Ted Cruz Over Basic Iran Facts: ‘You’re Calling for the Overthrow’ | Video](https://www.yahoo.com/news/incredulous-tucker-carlson-shouting-match-024612212.html)
-- Jun 18 - [How the Air India crash investigation is unfolding](https://www.yahoo.com/news/air-india-crash-investigation-unfolding-000211609.html)
 - Jun 18 - [Sam Altman says Meta offered $100 million bonuses to OpenAI employees](https://finance.yahoo.com/news/sam-altman-says-meta-offered-013520011.html)
-- Jun 17 - [Anne Burrell Found 'Unconscious and Unresponsive,' Pronounced Dead at Scene: Police](https://www.yahoo.com/entertainment/articles/anne-burrell-found-unconscious-unresponsive-233547533.html)
 - Jun 17 - ['Have you no decency?!' Republican backs down when confronted for minimizing murder of Dem lawmaker](https://www.yahoo.com/news/no-decency-republican-backs-down-233222041.html)
+- Jun 17 - [Bill Gates Once Scoffed, 'Spend All Day With A Guy Who Just Picks Stocks?'—Before Discovering That The 'Stock Picker' Had A Mastermind's Blueprint For Winning In Business](https://finance.yahoo.com/news/bill-gates-once-scoffed-spend-233112511.html)
 <!-- feed end -->
