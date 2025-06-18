@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Police say a German man engaged in cybergrooming and pressured a US teen to kill himself](https://www.yahoo.com/news/police-german-man-engaged-cybergrooming-165149478.html)
+- Jun 18 - [Hypersonic missiles are stirring fears in the Iran-Israel conflict. Here's why](https://www.yahoo.com/news/hypersonic-missiles-stirring-fears-iran-163454221.html)
 - Jun 18 - [Married Teacher Cried When Cops Arrested Her — Then Came the Bombshell: Allegations She Assaulted Student 45 Times](https://www.yahoo.com/news/married-teacher-cried-cops-arrested-154924048.html)
-- Jun 18 - [The unlikely comeback of America’s most endangered songbird](https://www.yahoo.com/news/unlikely-comeback-america-most-endangered-154214725.html)
-- Jun 18 - [Blackstone's James Expects More Deal Flow Amid Volatility](https://finance.yahoo.com/video/blackstones-james-expects-more-deal-145938540.html)
-- Jun 18 - [Iran's Supreme Leader Issues New Grave Threat to Trump, U.S.](https://www.yahoo.com/news/irans-supreme-leader-issues-grave-133230750.html)
-- Jun 18 - [Henry Ruggs, former Raiders first-round pick, apologizes to family of woman he killed in 2021 car crash](https://sports.yahoo.com/nfl/article/henry-ruggs-former-raiders-first-round-pick-apologizes-to-family-of-woman-he-killed-in-2021-car-crash-123704897.html)
+- Jun 18 - [Kennedy's new US vaccine panel to discuss measles shot for children](https://www.yahoo.com/news/cdcs-vaccine-advisory-committee-vote-151705959.html)
+- Jun 18 - [Intel appoints engineering hires as part of CEO Tan's turnaround strategy](https://finance.yahoo.com/news/intel-appoints-engineering-hires-part-133147088.html)
 <!-- feed end -->
