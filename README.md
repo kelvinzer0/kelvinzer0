@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Citizen or not, if you get pulled over by law enforcement in Arizona, here's what to do](https://www.yahoo.com/news/citizen-not-pulled-over-law-120158553.html)
-- Jun 18 - [Russia warns US not to help Israel militarily against Iran](https://www.yahoo.com/news/russia-warns-us-not-help-104753775.html)
-- Jun 18 - [Former NFLer Robert Griffin III was distraught when he ‘only’ got $6.9M of $14M signing bonus — what happened](https://finance.yahoo.com/news/former-nfler-robert-griffin-iii-101700670.html)
+- Jun 18 - [Residents devastated as highly toxic plant rapidly spreads through nearly three-quarters of the nation: 'Caused entire communities to be displaced'](https://www.yahoo.com/news/residents-devastated-highly-toxic-plant-110052189.html)
+- Jun 18 - [Scientists make mind-blowing discovery after studying material that only exists exists for billionths of a second: 'Previously unimaginable'](https://www.yahoo.com/news/scientists-mind-blowing-discovery-studying-110002681.html)
+- Jun 18 - [Russia tells US not to strike Iran, warns of nuclear catastrophe](https://www.yahoo.com/news/russia-warns-us-not-help-104753775.html)
+- Jun 18 - [Mortgage and refinance interest rates today, June 18, 2025: 15- and 30-year terms sneak lower as Fed decides](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-june-18-2025-100051485.html)
 - Jun 18 - [Lowe's CEO says young workers should stay away from the corporate office and close to the cash register](https://www.yahoo.com/news/lowes-ceo-says-young-workers-094501196.html)
-- Jun 18 - [Boeing 787’s emergency-power system likely active before Air India crash, WSJ reports](https://www.yahoo.com/news/boeing-787-emergency-power-system-074237088.html)
 <!-- feed end -->
