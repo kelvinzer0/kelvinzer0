@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Exclusive-US to drop guidance to limit alcohol to one or two drinks per day, sources say](https://www.yahoo.com/news/exclusive-us-drop-guidance-limit-100739156.html)
-- Jun 18 - [After June Strawberry Moon, when is the next full moon? What to know about July’s Buck Moon](https://www.yahoo.com/news/june-strawberry-moon-next-full-100147859.html)
+- Jun 18 - [Citizen or not, if you get pulled over by law enforcement in Arizona, here's what to do](https://www.yahoo.com/news/citizen-not-pulled-over-law-120158553.html)
+- Jun 18 - [Russia warns US not to help Israel militarily against Iran](https://www.yahoo.com/news/russia-warns-us-not-help-104753775.html)
+- Jun 18 - [Former NFLer Robert Griffin III was distraught when he ‘only’ got $6.9M of $14M signing bonus — what happened](https://finance.yahoo.com/news/former-nfler-robert-griffin-iii-101700670.html)
+- Jun 18 - [Lowe's CEO says young workers should stay away from the corporate office and close to the cash register](https://www.yahoo.com/news/lowes-ceo-says-young-workers-094501196.html)
 - Jun 18 - [Boeing 787’s emergency-power system likely active before Air India crash, WSJ reports](https://www.yahoo.com/news/boeing-787-emergency-power-system-074237088.html)
-- Jun 18 - [Incredulous Tucker Carlson Has Shouting Match With Ted Cruz Over Basic Iran Facts: ‘You’re Calling for the Overthrow’ | Video](https://www.yahoo.com/news/incredulous-tucker-carlson-shouting-match-024612212.html)
-- Jun 18 - [Sam Altman says Meta offered $100 million bonuses to OpenAI employees](https://finance.yahoo.com/news/sam-altman-says-meta-offered-013520011.html)
 <!-- feed end -->
