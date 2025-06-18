@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [This All-in-One Business Platform Is Like Salesforce Meets WordPress](https://tech.yahoo.com/business/articles/one-business-platform-salesforce-meets-210000688.html)
+- Jun 18 - [Brazil declares itself bird flu free and aims to resume exports](https://www.yahoo.com/news/brazil-declares-itself-bird-flu-230331332.html)
+- Jun 18 - [2 Breakout Growth Stocks You Can Buy and Hold for the Next Decade](https://finance.yahoo.com/news/2-breakout-growth-stocks-buy-220500031.html)
+- Jun 18 - [The Earth could be soon flung out of orbit or into the sun all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
 - Jun 18 - [Unpacking rumor Iranian state TV said, 'Tonight, a great surprise will occur, one that the world will remember for centuries'](https://www.yahoo.com/news/unpacking-rumor-iranian-state-tv-194800110.html)
-- Jun 18 - [Desperate Zuckerberg Apparently Offering OpenAI Staffers $100 Million Bonuses to Come Save His Failing AI Efforts](https://finance.yahoo.com/news/desperate-zuckerberg-apparently-offering-openai-181732903.html)
-- Jun 18 - [Unless the Trump family secretly built a U.S. factory, industry experts say the $500 made-in-America smartphone is a fantasy](https://tech.yahoo.com/phones/articles/unless-trump-family-secretly-built-172044723.html)
-- Jun 18 - [RFK Jr weighs review of vaccines citing aluminum use, Bloomberg News reports](https://www.yahoo.com/news/rfk-jr-weighs-review-vaccines-170408984.html)
+- Jun 18 - [Air India makes announcement about international service after deadly plane crash](https://www.yahoo.com/news/air-india-reduces-international-15-193200855.html)
 <!-- feed end -->
