@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Police say a German man engaged in cybergrooming and pressured a US teen to kill himself](https://www.yahoo.com/news/police-german-man-engaged-cybergrooming-165149478.html)
+- Jun 18 - [RFK Jr weighs review of vaccines citing aluminum use, Bloomberg News reports](https://www.yahoo.com/news/rfk-jr-weighs-review-vaccines-170408984.html)
+- Jun 18 - [A single high school class can boost a teen's lifetime wealth by $100K, but most kids aren't taking it](https://finance.yahoo.com/news/single-high-school-class-boost-170300115.html)
+- Jun 18 - [Baby Boomers aren't the 'solution' to the housing crisis](https://finance.yahoo.com/video/baby-boomers-arent-solution-housing-164250402.html)
 - Jun 18 - [Hypersonic missiles are stirring fears in the Iran-Israel conflict. Here's why](https://www.yahoo.com/news/hypersonic-missiles-stirring-fears-iran-163454221.html)
-- Jun 18 - [Married Teacher Cried When Cops Arrested Her — Then Came the Bombshell: Allegations She Assaulted Student 45 Times](https://www.yahoo.com/news/married-teacher-cried-cops-arrested-154924048.html)
-- Jun 18 - [Kennedy's new US vaccine panel to discuss measles shot for children](https://www.yahoo.com/news/cdcs-vaccine-advisory-committee-vote-151705959.html)
-- Jun 18 - [Intel appoints engineering hires as part of CEO Tan's turnaround strategy](https://finance.yahoo.com/news/intel-appoints-engineering-hires-part-133147088.html)
+- Jun 18 - [Hartford woman who graduated high school unable to read or write offers to settle lawsuit](https://www.yahoo.com/news/hartford-woman-graduated-high-school-153802968.html)
 <!-- feed end -->
