@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [This All-in-One Business Platform Is Like Salesforce Meets WordPress](https://tech.yahoo.com/business/articles/one-business-platform-salesforce-meets-210000688.html)
 - Jun 18 - [Unpacking rumor Iranian state TV said, 'Tonight, a great surprise will occur, one that the world will remember for centuries'](https://www.yahoo.com/news/unpacking-rumor-iranian-state-tv-194800110.html)
+- Jun 18 - [Desperate Zuckerberg Apparently Offering OpenAI Staffers $100 Million Bonuses to Come Save His Failing AI Efforts](https://finance.yahoo.com/news/desperate-zuckerberg-apparently-offering-openai-181732903.html)
 - Jun 18 - [Unless the Trump family secretly built a U.S. factory, industry experts say the $500 made-in-America smartphone is a fantasy](https://tech.yahoo.com/phones/articles/unless-trump-family-secretly-built-172044723.html)
-- Jun 18 - [Satellite image captures decades-old US-made F-5 jets at an Iranian airbase, offering a snapshot of Tehran's vintage air force](https://www.yahoo.com/news/satellite-image-captures-decades-old-171240362.html)
 - Jun 18 - [RFK Jr weighs review of vaccines citing aluminum use, Bloomberg News reports](https://www.yahoo.com/news/rfk-jr-weighs-review-vaccines-170408984.html)
-- Jun 18 - [Hypersonic missiles are stirring fears in the Iran-Israel conflict. Here's why](https://www.yahoo.com/news/hypersonic-missiles-stirring-fears-iran-163454221.html)
 <!-- feed end -->
