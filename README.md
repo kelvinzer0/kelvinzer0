@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Wife of Russian oligarch asks UK court to jail him over unpaid legal fees](https://www.yahoo.com/news/wife-russian-oligarch-asks-uk-132314700.html)
+- Jun 18 - [32 Completely Unexplainable Things Literally Every Person Over The Age Of 40 Does Even If They Have Zero Clue They Do It](https://www.yahoo.com/lifestyle/articles/32-completely-unexplainable-things-literally-143835905.html)
+- Jun 18 - [Seahawks great and Amazon Prime analyst Richard Sherman charged with DUI over a year after 2024 arrest](https://sports.yahoo.com/nfl/article/seahawks-great-and-amazon-prime-analyst-richard-sherman-charged-with-dui-over-a-year-after-2024-arrest-133414224.html)
 - Jun 18 - [Henry Ruggs, former Raiders first-round pick, apologizes to family of woman he killed in 2021 car crash](https://sports.yahoo.com/nfl/article/henry-ruggs-former-raiders-first-round-pick-apologizes-to-family-of-woman-he-killed-in-2021-car-crash-123704897.html)
-- Jun 18 - [Spokane man surprised by $140K tax bill after he withdrew cash from 401(k) — what Ramsey Show hosts say to do](https://finance.yahoo.com/news/spokane-man-surprised-140k-tax-121300842.html)
-- Jun 18 - [Residents devastated as highly toxic plant rapidly spreads through nearly three-quarters of the nation: 'Caused entire communities to be displaced'](https://www.yahoo.com/news/residents-devastated-highly-toxic-plant-110052189.html)
-- Jun 18 - [Researchers make disturbing discovery after analyzing hundreds of dolphin autopsies: 'A nightmare to get rid of'](https://www.yahoo.com/news/researchers-disturbing-discovery-analyzing-hundreds-110002150.html)
+- Jun 18 - [Mark Cuban Floats Bold Healthcare Plan: 'Zero Premiums To Insurance Companies' With A Cash-Pay Revolution](https://finance.yahoo.com/news/mark-cuban-floats-bold-healthcare-113007050.html)
+- Jun 18 - [Hackers linked to Israel just emptied Iran’s largest exchange](https://finance.yahoo.com/news/suspected-israeli-group-hacks-48-105227656.html)
 <!-- feed end -->
