@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Groq's Albin on Asia Business Strategy](https://finance.yahoo.com/video/groqs-albin-asia-business-strategy-081014063.html)
+- Jun 18 - [BlackRock: Conflict Escalation Could Impact Growth](https://finance.yahoo.com/video/blackrock-conflict-escalation-could-impact-084251244.html)
 - Jun 18 - [How the Air India crash investigation is unfolding](https://www.yahoo.com/news/air-india-crash-investigation-unfolding-000211609.html)
+- Jun 18 - [Boeing 787’s emergency-power system likely active before Air India crash, WSJ reports](https://www.yahoo.com/news/boeing-787-emergency-power-system-074237088.html)
 - Jun 18 - [New Israeli strikes hit Tehran as Iran warns that U.S. involvement would risk 'all-out war'](https://www.yahoo.com/news/israeli-strikes-killed-nearly-600-030726430.html)
 - Jun 18 - [Incredulous Tucker Carlson Has Shouting Match With Ted Cruz Over Basic Iran Facts: ‘You’re Calling for the Overthrow’ | Video](https://www.yahoo.com/news/incredulous-tucker-carlson-shouting-match-024612212.html)
-- Jun 18 - [Sam Altman says Meta offered $100 million bonuses to OpenAI employees](https://finance.yahoo.com/news/sam-altman-says-meta-offered-013520011.html)
 <!-- feed end -->
