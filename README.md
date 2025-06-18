@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [How the Air India crash investigation is unfolding](https://www.yahoo.com/news/air-india-crash-investigation-unfolding-000211609.html)
-- Jun 18 - [Bodies arrive at Gaza hospital after witnesses and officials say dozens killed while waiting for aid](https://www.yahoo.com/news/bodies-arrive-gaza-hospital-witnesses-012655111.html)
-- Jun 17 - [Marijuana use dramatically increases risk of dying from heart attacks and stroke, large study finds](https://www.yahoo.com/news/marijuana-doubles-risk-dying-heart-223003966.html)
+- Jun 18 - [Sam Altman says Meta offered $100 million bonuses to OpenAI employees](https://finance.yahoo.com/news/sam-altman-says-meta-offered-013520011.html)
 - Jun 17 - ['Have you no decency?!' Republican backs down when confronted for minimizing murder of Dem lawmaker](https://www.yahoo.com/news/no-decency-republican-backs-down-233222041.html)
 - Jun 17 - [DHS Secretary Kristi Noem Taken to D.C. Hospital in Ambulance](https://www.yahoo.com/news/dhs-secretary-kristi-noem-taken-220310427.html)
+- Jun 17 - [Authorities Issue High Alert After Volcanic Eruption](https://www.yahoo.com/news/authorities-issue-high-alert-volcanic-212305731.html)
+- Jun 17 - [Alex Jones accused of trying to shield assets as Sandy Hook families seek payment on $1B judgment](https://www.yahoo.com/news/alex-jones-accused-trying-shield-194647256.html)
 <!-- feed end -->
