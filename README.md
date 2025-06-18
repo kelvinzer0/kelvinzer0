@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Japan records trade deficit as exports suffer from Trump's tariffs](https://finance.yahoo.com/news/japan-records-trade-deficit-exports-044943332.html)
 - Jun 18 - [Incredulous Tucker Carlson Has Shouting Match With Ted Cruz Over Basic Iran Facts: ‘You’re Calling for the Overthrow’ | Video](https://www.yahoo.com/news/incredulous-tucker-carlson-shouting-match-024612212.html)
 - Jun 18 - [Sam Altman says Meta offered $100 million bonuses to OpenAI employees](https://finance.yahoo.com/news/sam-altman-says-meta-offered-013520011.html)
 - Jun 17 - ['Have you no decency?!' Republican backs down when confronted for minimizing murder of Dem lawmaker](https://www.yahoo.com/news/no-decency-republican-backs-down-233222041.html)
-- Jun 17 - [Bill Gates Once Scoffed, 'Spend All Day With A Guy Who Just Picks Stocks?'—Before Discovering That The 'Stock Picker' Had A Mastermind's Blueprint For Winning In Business](https://finance.yahoo.com/news/bill-gates-once-scoffed-spend-233112511.html)
+- Jun 17 - [BLM warns of ‘aggressive’ mountain goats along Oregon river](https://www.yahoo.com/news/blm-warns-aggressive-mountain-goats-220512974.html)
+- Jun 17 - [Houston man, 65, loses $500K life savings in elder scam — now he doesn’t know if he’ll ever be able to retire](https://www.yahoo.com/lifestyle/articles/houston-man-65-loses-500k-203100004.html)
 <!-- feed end -->
