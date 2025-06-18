@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 18 - [Thousands march in Buenos Aires as ex-president Kirchner starts house arrest](https://www.yahoo.com/news/thousands-march-buenos-aires-ex-183634516.html)
+- Jun 18 - [Fed Holds Rates Steady Again, Still Sees Two Cuts This Year](https://finance.yahoo.com/video/fed-holds-rates-steady-again-181902552.html)
+- Jun 18 - [Satellite image captures decades-old US-made F-5 jets at an Iranian airbase, offering a snapshot of Tehran's vintage air force](https://www.yahoo.com/news/satellite-image-captures-decades-old-171240362.html)
 - Jun 18 - [RFK Jr weighs review of vaccines citing aluminum use, Bloomberg News reports](https://www.yahoo.com/news/rfk-jr-weighs-review-vaccines-170408984.html)
-- Jun 18 - [A single high school class can boost a teen's lifetime wealth by $100K, but most kids aren't taking it](https://finance.yahoo.com/news/single-high-school-class-boost-170300115.html)
-- Jun 18 - [Baby Boomers aren't the 'solution' to the housing crisis](https://finance.yahoo.com/video/baby-boomers-arent-solution-housing-164250402.html)
 - Jun 18 - [Hypersonic missiles are stirring fears in the Iran-Israel conflict. Here's why](https://www.yahoo.com/news/hypersonic-missiles-stirring-fears-iran-163454221.html)
-- Jun 18 - [Hartford woman who graduated high school unable to read or write offers to settle lawsuit](https://www.yahoo.com/news/hartford-woman-graduated-high-school-153802968.html)
 <!-- feed end -->
