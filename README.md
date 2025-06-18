@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Incredulous Tucker Carlson Has Shouting Match With Ted Cruz Over Basic Iran Facts: ‘You’re Calling for the Overthrow’ | Video](https://www.yahoo.com/news/incredulous-tucker-carlson-shouting-match-024612212.html)
+- Jun 18 - [How the Air India crash investigation is unfolding](https://www.yahoo.com/news/air-india-crash-investigation-unfolding-000211609.html)
+- Jun 18 - [Hawaii, worldwide love pouring in for Dakota Briley’s recovery](https://www.yahoo.com/news/hawaii-worldwide-love-pouring-dakota-035859234.html)
 - Jun 18 - [Sam Altman says Meta offered $100 million bonuses to OpenAI employees](https://finance.yahoo.com/news/sam-altman-says-meta-offered-013520011.html)
 - Jun 17 - ['Have you no decency?!' Republican backs down when confronted for minimizing murder of Dem lawmaker](https://www.yahoo.com/news/no-decency-republican-backs-down-233222041.html)
-- Jun 17 - [BLM warns of ‘aggressive’ mountain goats along Oregon river](https://www.yahoo.com/news/blm-warns-aggressive-mountain-goats-220512974.html)
-- Jun 17 - [Houston man, 65, loses $500K life savings in elder scam — now he doesn’t know if he’ll ever be able to retire](https://www.yahoo.com/lifestyle/articles/houston-man-65-loses-500k-203100004.html)
+- Jun 17 - [Pewaukee teen beach fight leads to village concerns for the summer](https://www.yahoo.com/news/pewaukee-teen-beach-fight-leads-225138190.html)
 <!-- feed end -->
