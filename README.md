@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Telegram CEO Pavel Durov plans to leave fortune to his 100-plus children](https://www.yahoo.com/entertainment/articles/telegram-ceo-pavel-durov-plans-193133031.html)
-- Jun 19 - [IonQ (NYSE:IONQ) Announces Quantum Breakthrough in Protein Folding and Computation](https://finance.yahoo.com/news/ionq-nyse-ionq-announces-quantum-174133604.html)
-- Jun 19 - [15 AI stocks to watch outside of the Magnificent 7](https://finance.yahoo.com/video/15-ai-stocks-watch-outside-170037221.html)
+- Jun 19 - [Images show OBX rental home on fire](https://www.yahoo.com/news/images-show-obx-rental-home-164527509.html)
+- Jun 19 - [FDR's grandson discusses Social Security, Medicare go-broke dates being moved up](https://www.yahoo.com/news/fdrs-grandson-discusses-social-security-164513560.html)
 - Jun 19 - [Iran held direct talks with US amid intensifying conflict with Israel, diplomats say](https://www.yahoo.com/news/iran-held-direct-talks-us-152324285.html)
+- Jun 19 - [Pregnant US citizen detained by Border Patrol agents: ‘We didn’t do anything wrong’](https://www.yahoo.com/news/pregnant-us-citizen-detained-border-144914584.html)
 - Jun 19 - [Trump Lashes Out at Fox News Over Devastating New Poll](https://www.yahoo.com/news/trump-lashes-fox-news-over-142025626.html)
 <!-- feed end -->
