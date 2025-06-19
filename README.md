@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Microsoft prepared to abandon high-stakes talks with OpenAI: FT](https://finance.yahoo.com/video/microsoft-prepared-abandon-high-stakes-103724980.html)
-- Jun 19 - [China floods Brazil with cheap EVs triggering backlash](https://finance.yahoo.com/news/china-floods-brazil-cheap-evs-100225024.html)
-- Jun 19 - [The Earth could be soon flung out of orbit or into the sun - all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
-- Jun 19 - [Ukraine has a problem no one is talking about – young women are leaving in droves](https://www.yahoo.com/news/ukraine-problem-no-one-talking-050000392.html)
-- Jun 19 - [US will strike North Korea if South attacked with nukes, South's spy chief nominee says](https://www.yahoo.com/news/south-korea-spy-chief-nominee-030226996.html)
+- Jun 19 - [Miss Wales finalist who won £6m Omaze house still waiting to move in three months later](https://www.yahoo.com/news/winner-6m-omaze-house-still-123426713.html)
+- Jun 19 - [After flying with 40 different airlines, one consistently stands out as my favorite](https://www.yahoo.com/lifestyle/articles/flying-40-different-airlines-one-112401998.html)
+- Jun 19 - [Israel reports 'direct hit' on hospital by Iranian missile](https://www.yahoo.com/news/israel-reports-direct-hit-hospital-111741681.html)
+- Jun 19 - [Ohio man says he lost $27K after a scammer came to his house — here’s his warning](https://www.yahoo.com/news/ohio-man-says-lost-27k-103400182.html)
+- Jun 19 - [Eyewitness video shows moment SpaceX’s Starship 36 explodes](https://www.yahoo.com/news/eyewitness-video-shows-moment-spacex-103102026.html)
 <!-- feed end -->
