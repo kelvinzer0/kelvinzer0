@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 19 - [The Earth could be soon flung out of orbit or into the sun - all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
 - Jun 19 - [Ukraine has a problem no one is talking about – young women are leaving in droves](https://www.yahoo.com/news/ukraine-problem-no-one-talking-050000392.html)
-- Jun 19 - [Iranian missile hits main hospital in southern Israel as strikes wound dozens](https://www.yahoo.com/news/israel-military-warns-people-evacuate-014450438.html)
-- Jun 18 - [Putin says he does not want to discuss the possible Israeli-U.S. killing of Iran's supreme leader](https://www.yahoo.com/news/regime-change-tehran-putin-says-214534350.html)
-- Jun 18 - [President Trump Announces Special Change To White House](https://www.yahoo.com/news/president-trump-announces-special-change-214045114.html)
-- Jun 18 - [Unpacking rumor Iranian state TV said, 'Tonight, a great surprise will occur, one that the world will remember for centuries'](https://www.yahoo.com/news/unpacking-rumor-iranian-state-tv-194800110.html)
+- Jun 19 - [Metro Detroit experiences damage amid tornado, severe weather](https://www.yahoo.com/news/metro-detroit-experiences-damage-amid-024059755.html)
+- Jun 19 - [Iranian strike damages a hospital as latest missile barrage wounds dozens in Israel](https://www.yahoo.com/news/israel-military-warns-people-evacuate-014450438.html)
+- Jun 18 - [Putin cautions Germany over any Taurus missile supplies to Ukraine](https://www.yahoo.com/news/putin-cautions-germany-over-taurus-232644461.html)
 <!-- feed end -->
