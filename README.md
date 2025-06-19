@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Brazil declares itself bird flu free and aims to resume exports](https://www.yahoo.com/news/brazil-declares-itself-bird-flu-230331332.html)
-- Jun 18 - [2 Breakout Growth Stocks You Can Buy and Hold for the Next Decade](https://finance.yahoo.com/news/2-breakout-growth-stocks-buy-220500031.html)
-- Jun 18 - [The Earth could be soon flung out of orbit or into the sun all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
+- Jun 18 - [Putin says he does not want to discuss the possible Israeli-U.S. killing of Iran's supreme leader](https://www.yahoo.com/news/regime-change-tehran-putin-says-214534350.html)
+- Jun 18 - [Fire chief says illegal fireworks caused massive explosion on Whidbey Island](https://www.yahoo.com/news/fire-chief-says-illegal-fireworks-205551081.html)
 - Jun 18 - [Unpacking rumor Iranian state TV said, 'Tonight, a great surprise will occur, one that the world will remember for centuries'](https://www.yahoo.com/news/unpacking-rumor-iranian-state-tv-194800110.html)
 - Jun 18 - [Air India makes announcement about international service after deadly plane crash](https://www.yahoo.com/news/air-india-reduces-international-15-193200855.html)
+- Jun 18 - [Scientists Produced a Particle of Light That Simultaneously Accessed 37 Different Dimensions](https://www.yahoo.com/news/scientists-produced-particle-light-simultaneously-184900672.html)
 <!-- feed end -->
