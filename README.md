@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [We need to take the cost and complexity out of going electric to supercharge EVs](https://finance.yahoo.com/news/cost-complexity-going-electric-supercharge-141837167.html)
+- Jun 19 - [I'm Literally Fighting Back Tears Looking At These 29 Pictures That Are Pretty Much Physically Impossible Not To Laugh At](https://www.yahoo.com/entertainment/articles/im-literally-fighting-back-tears-154046711.html)
+- Jun 19 - [Trump Lashes Out at Fox News Over Devastating New Poll](https://www.yahoo.com/news/trump-lashes-fox-news-over-142025626.html)
+- Jun 19 - [Scientists Just Proved That All Life on Earth Follows One Simple Rule](https://www.yahoo.com/news/scientists-just-proved-life-earth-133000407.html)
 - Jun 19 - [Elon Musk’s stunning three-word reaction to SpaceX Starship exploding in fireball](https://www.yahoo.com/news/elon-musk-stunning-three-word-130304536.html)
 - Jun 19 - [Planespotters gather at airbase as jets arrive](https://www.yahoo.com/news/planespotters-gather-airbase-jets-arrive-125656405.html)
-- Jun 19 - [Iran's Arak heavy water reactor, hit by an Israeli airstrike, was part of Tehran's nuclear deal](https://www.yahoo.com/news/irans-arak-heavy-water-reactor-112332679.html)
-- Jun 19 - [Israeli scientists reel after Iranian missile strikes premier research institute](https://www.yahoo.com/news/israeli-scientists-reel-iranian-missile-111544015.html)
 <!-- feed end -->
