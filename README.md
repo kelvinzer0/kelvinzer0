@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Russia warns US against 'military intervention' in Iran-Israel war](https://www.yahoo.com/news/russia-warns-us-against-military-120753689.html)
-- Jun 19 - [US Prepares for Possible Strike on Iran](https://finance.yahoo.com/video/us-prepares-possible-strike-iran-133409202.html)
+- Jun 19 - [We need to take the cost and complexity out of going electric to supercharge EVs](https://finance.yahoo.com/news/cost-complexity-going-electric-supercharge-141837167.html)
 - Jun 19 - [Elon Musk’s stunning three-word reaction to SpaceX Starship exploding in fireball](https://www.yahoo.com/news/elon-musk-stunning-three-word-130304536.html)
-- Jun 19 - [VinFast’s first dealership in California set to start operations this month](https://finance.yahoo.com/news/vinfast-first-dealership-california-set-123425617.html)
-- Jun 19 - [Large sinkhole flips vehicle on Central Pennsylvania roadway](https://www.yahoo.com/news/large-sinkhole-flips-vehicle-central-115304251.html)
+- Jun 19 - [Planespotters gather at airbase as jets arrive](https://www.yahoo.com/news/planespotters-gather-airbase-jets-arrive-125656405.html)
+- Jun 19 - [Iran's Arak heavy water reactor, hit by an Israeli airstrike, was part of Tehran's nuclear deal](https://www.yahoo.com/news/irans-arak-heavy-water-reactor-112332679.html)
+- Jun 19 - [Israeli scientists reel after Iranian missile strikes premier research institute](https://www.yahoo.com/news/israeli-scientists-reel-iranian-missile-111544015.html)
 <!-- feed end -->
