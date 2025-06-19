@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Miss Wales finalist who won £6m Omaze house still waiting to move in three months later](https://www.yahoo.com/news/winner-6m-omaze-house-still-123426713.html)
-- Jun 19 - [After flying with 40 different airlines, one consistently stands out as my favorite](https://www.yahoo.com/lifestyle/articles/flying-40-different-airlines-one-112401998.html)
-- Jun 19 - [Israel reports 'direct hit' on hospital by Iranian missile](https://www.yahoo.com/news/israel-reports-direct-hit-hospital-111741681.html)
-- Jun 19 - [Ohio man says he lost $27K after a scammer came to his house — here’s his warning](https://www.yahoo.com/news/ohio-man-says-lost-27k-103400182.html)
-- Jun 19 - [Eyewitness video shows moment SpaceX’s Starship 36 explodes](https://www.yahoo.com/news/eyewitness-video-shows-moment-spacex-103102026.html)
+- Jun 19 - [Exclusive-Air India warned for flying Airbus planes with unchecked escape slides](https://finance.yahoo.com/news/exclusive-air-india-warned-flying-113353848.html)
+- Jun 19 - [Dog quarantined after dangerous encounter in its own backyard — here's how it points to a larger issue](https://www.yahoo.com/news/dog-quarantined-dangerous-encounter-own-103038325.html)
+- Jun 19 - [Builders hit with backlash after shocking act in public park: 'It's beyond unacceptable'](https://www.yahoo.com/news/builders-hit-backlash-shocking-act-101530394.html)
+- Jun 19 - [Why I Keep Buying This 5.8%-Yielding Dividend Stock and Expect to Buy Even More Shares in the Future](https://finance.yahoo.com/news/why-keep-buying-5-8-101400940.html)
+- Jun 19 - [China floods Brazil with cheap EVs triggering backlash](https://finance.yahoo.com/news/china-floods-brazil-cheap-evs-100225024.html)
 <!-- feed end -->
