@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 18 - [Putin says he does not want to discuss the possible Israeli-U.S. killing of Iran's supreme leader](https://www.yahoo.com/news/regime-change-tehran-putin-says-214534350.html)
-- Jun 18 - [Fire chief says illegal fireworks caused massive explosion on Whidbey Island](https://www.yahoo.com/news/fire-chief-says-illegal-fireworks-205551081.html)
-- Jun 18 - [Unpacking rumor Iranian state TV said, 'Tonight, a great surprise will occur, one that the world will remember for centuries'](https://www.yahoo.com/news/unpacking-rumor-iranian-state-tv-194800110.html)
-- Jun 18 - [Air India makes announcement about international service after deadly plane crash](https://www.yahoo.com/news/air-india-reduces-international-15-193200855.html)
-- Jun 18 - [Scientists Produced a Particle of Light That Simultaneously Accessed 37 Different Dimensions](https://www.yahoo.com/news/scientists-produced-particle-light-simultaneously-184900672.html)
+- Jun 19 - [GPS Jamming in Strait of Hormuz is Challenging, Shell CEO Says](https://finance.yahoo.com/video/gps-jamming-strait-hormuz-challenging-022110339.html)
+- Jun 19 - [UPDATE: I-75 reopens after downed power lines cause hours-long closure](https://www.yahoo.com/news/downed-power-lines-close-interstate-000820218.html)
+- Jun 19 - [Israel’s military warns people to evacuate the area around Iran’s Arak heavy water reactor](https://www.yahoo.com/news/israel-military-warns-people-evacuate-014450438.html)
+- Jun 18 - [The Earth could be soon flung out of orbit or into the sun all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
+- Jun 18 - [‘Dragon Man’ DNA revelation puts a face to a mysterious group of ancient humans](https://www.yahoo.com/news/skull-found-well-defied-classification-153153059.html)
 <!-- feed end -->
