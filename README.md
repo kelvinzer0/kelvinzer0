@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [The Earth could be soon flung out of orbit or into the sun - all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
+- Jun 19 - [Honda-backed Helm.ai unveils vision system for self-driving cars](https://finance.yahoo.com/news/honda-backed-helm-ai-unveils-100605957.html)
+- Jun 19 - [Good Chance BOE to Speed Up Cuts Later This Year: Stehn](https://finance.yahoo.com/video/good-chance-boe-speed-cuts-091505198.html)
+- Jun 19 - [Hurricane Erick At Category 4 Intensity Nears Mexico Landfall With Life-Threatening Flooding, High Winds](https://www.yahoo.com/news/hurricane-erick-category-4-intensity-090500308.html)
 - Jun 19 - [Ukraine has a problem no one is talking about – young women are leaving in droves](https://www.yahoo.com/news/ukraine-problem-no-one-talking-050000392.html)
 - Jun 19 - [Metro Detroit experiences damage amid tornado, severe weather](https://www.yahoo.com/news/metro-detroit-experiences-damage-amid-024059755.html)
-- Jun 19 - [Iranian strike damages a hospital as latest missile barrage wounds dozens in Israel](https://www.yahoo.com/news/israel-military-warns-people-evacuate-014450438.html)
-- Jun 18 - [Putin cautions Germany over any Taurus missile supplies to Ukraine](https://www.yahoo.com/news/putin-cautions-germany-over-taurus-232644461.html)
 <!-- feed end -->
