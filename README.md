@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Our Galaxy's Monster Black Hole Is Spinning Almost as Fast as Physics Allows](https://www.yahoo.com/news/galaxys-monster-black-hole-spinning-033451599.html)
-- Jun 18 - [The Earth could be soon flung out of orbit or into the sun all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
-- Jun 18 - [Unpacking rumor Iranian state TV said, 'Tonight, a great surprise will occur, one that the world will remember for centuries'](https://www.yahoo.com/news/unpacking-rumor-iranian-state-tv-194800110.html)
-- Jun 18 - [Air India makes announcement about international service after deadly plane crash](https://www.yahoo.com/news/air-india-reduces-international-15-193200855.html)
-- Jun 18 - [Scientists Produced a Particle of Light That Simultaneously Accessed 37 Different Dimensions](https://www.yahoo.com/news/scientists-produced-particle-light-simultaneously-184900672.html)
+- Jun 19 - [UPDATE: I-75 reopens after downed power lines cause hours-long closure](https://www.yahoo.com/news/downed-power-lines-close-interstate-000820218.html)
+- Jun 19 - [Israeli hospital suffers 'extensive damage' from Iranian missile strike](https://www.yahoo.com/news/israel-military-warns-people-evacuate-014450438.html)
+- Jun 18 - [Oklahoma man could soon be deported for a crime committed decades ago](https://www.yahoo.com/news/oklahoma-man-could-soon-deported-230324404.html)
+- Jun 18 - [Putin says he does not want to discuss the possible Israeli-U.S. killing of Iran's supreme leader](https://www.yahoo.com/news/regime-change-tehran-putin-says-214534350.html)
+- Jun 18 - [President Trump Announces Special Change To White House](https://www.yahoo.com/news/president-trump-announces-special-change-214045114.html)
 <!-- feed end -->
