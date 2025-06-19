@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [FDR's grandson discusses Social Security, Medicare go-broke dates being moved up](https://www.yahoo.com/news/fdrs-grandson-discusses-social-security-164513560.html)
+- Jun 19 - [Telegram CEO Pavel Durov plans to leave fortune to his 100-plus children](https://www.yahoo.com/entertainment/articles/telegram-ceo-pavel-durov-plans-193133031.html)
+- Jun 19 - [IonQ (NYSE:IONQ) Announces Quantum Breakthrough in Protein Folding and Computation](https://finance.yahoo.com/news/ionq-nyse-ionq-announces-quantum-174133604.html)
+- Jun 19 - [15 AI stocks to watch outside of the Magnificent 7](https://finance.yahoo.com/video/15-ai-stocks-watch-outside-170037221.html)
+- Jun 19 - [Iran held direct talks with US amid intensifying conflict with Israel, diplomats say](https://www.yahoo.com/news/iran-held-direct-talks-us-152324285.html)
 - Jun 19 - [Trump Lashes Out at Fox News Over Devastating New Poll](https://www.yahoo.com/news/trump-lashes-fox-news-over-142025626.html)
-- Jun 19 - [Scientists Just Proved That All Life on Earth Follows One Simple Rule](https://www.yahoo.com/news/scientists-just-proved-life-earth-133000407.html)
-- Jun 19 - [Planespotters gather at airbase as jets arrive](https://www.yahoo.com/news/planespotters-gather-airbase-jets-arrive-125656405.html)
-- Jun 19 - [People Are Confused—If Houses Aren't Selling, Why Aren't Prices Dropping? 'That's Insane,' One Buyer Says](https://finance.yahoo.com/news/people-confused-houses-arent-selling-123003082.html)
 <!-- feed end -->
