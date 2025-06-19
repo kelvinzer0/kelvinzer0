@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Images show OBX rental home on fire](https://www.yahoo.com/news/images-show-obx-rental-home-164527509.html)
+- Jun 19 - [The Earth could be soon flung out of orbit or into the sun - all thanks to a passing star](https://www.yahoo.com/news/earth-could-soon-flung-orbit-213447670.html)
+- Jun 19 - [Florida man’s fateful decision to hide under truck from storm has tragic consequences](https://www.yahoo.com/news/florida-man-fateful-decision-hide-180712073.html)
 - Jun 19 - [FDR's grandson discusses Social Security, Medicare go-broke dates being moved up](https://www.yahoo.com/news/fdrs-grandson-discusses-social-security-164513560.html)
-- Jun 19 - [Iran held direct talks with US amid intensifying conflict with Israel, diplomats say](https://www.yahoo.com/news/iran-held-direct-talks-us-152324285.html)
-- Jun 19 - [Pregnant US citizen detained by Border Patrol agents: ‘We didn’t do anything wrong’](https://www.yahoo.com/news/pregnant-us-citizen-detained-border-144914584.html)
+- Jun 19 - [White House Fumes at ‘Ugly’ Sculpture Mocking ‘Dictator’ Trump’s Birthday Parade](https://www.yahoo.com/news/white-house-fumes-ugly-sculpture-153031619.html)
 - Jun 19 - [Trump Lashes Out at Fox News Over Devastating New Poll](https://www.yahoo.com/news/trump-lashes-fox-news-over-142025626.html)
 <!-- feed end -->
