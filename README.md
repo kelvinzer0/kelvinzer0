@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [I'm Literally Fighting Back Tears Looking At These 29 Pictures That Are Pretty Much Physically Impossible Not To Laugh At](https://www.yahoo.com/entertainment/articles/im-literally-fighting-back-tears-154046711.html)
+- Jun 19 - [15 AI stocks to watch outside of the Magnificent 7](https://finance.yahoo.com/video/15-ai-stocks-watch-outside-170037221.html)
+- Jun 19 - [Spain's top court orders Franco family to hand back Romanesque statues](https://www.yahoo.com/news/spains-top-court-orders-franco-160710536.html)
 - Jun 19 - [Trump Lashes Out at Fox News Over Devastating New Poll](https://www.yahoo.com/news/trump-lashes-fox-news-over-142025626.html)
 - Jun 19 - [Scientists Just Proved That All Life on Earth Follows One Simple Rule](https://www.yahoo.com/news/scientists-just-proved-life-earth-133000407.html)
 - Jun 19 - [Elon Musk’s stunning three-word reaction to SpaceX Starship exploding in fireball](https://www.yahoo.com/news/elon-musk-stunning-three-word-130304536.html)
-- Jun 19 - [Planespotters gather at airbase as jets arrive](https://www.yahoo.com/news/planespotters-gather-airbase-jets-arrive-125656405.html)
 <!-- feed end -->
