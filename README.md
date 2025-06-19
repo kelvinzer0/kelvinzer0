@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Exclusive-Air India warned for flying Airbus planes with unchecked escape slides](https://finance.yahoo.com/news/exclusive-air-india-warned-flying-113353848.html)
-- Jun 19 - [Dog quarantined after dangerous encounter in its own backyard — here's how it points to a larger issue](https://www.yahoo.com/news/dog-quarantined-dangerous-encounter-own-103038325.html)
-- Jun 19 - [Builders hit with backlash after shocking act in public park: 'It's beyond unacceptable'](https://www.yahoo.com/news/builders-hit-backlash-shocking-act-101530394.html)
-- Jun 19 - [Why I Keep Buying This 5.8%-Yielding Dividend Stock and Expect to Buy Even More Shares in the Future](https://finance.yahoo.com/news/why-keep-buying-5-8-101400940.html)
-- Jun 19 - [China floods Brazil with cheap EVs triggering backlash](https://finance.yahoo.com/news/china-floods-brazil-cheap-evs-100225024.html)
+- Jun 19 - [Russia warns US against 'military intervention' in Iran-Israel war](https://www.yahoo.com/news/russia-warns-us-against-military-120753689.html)
+- Jun 19 - [US Prepares for Possible Strike on Iran](https://finance.yahoo.com/video/us-prepares-possible-strike-iran-133409202.html)
+- Jun 19 - [Elon Musk’s stunning three-word reaction to SpaceX Starship exploding in fireball](https://www.yahoo.com/news/elon-musk-stunning-three-word-130304536.html)
+- Jun 19 - [VinFast’s first dealership in California set to start operations this month](https://finance.yahoo.com/news/vinfast-first-dealership-california-set-123425617.html)
+- Jun 19 - [Large sinkhole flips vehicle on Central Pennsylvania roadway](https://www.yahoo.com/news/large-sinkhole-flips-vehicle-central-115304251.html)
 <!-- feed end -->
