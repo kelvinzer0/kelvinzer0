@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Russian defense ministry confirms release of Russian servicemen as part of prisoner exchange deal with Ukraine](https://www.yahoo.com/news/russian-defense-ministry-confirms-release-180110961.html)
-- Jun 19 - [This ad hits a nerve because it's true](https://www.yahoo.com/news/ad-hits-nerve-because-true-173007589.html)
-- Jun 19 - [Iran held direct talks with US amid intensifying conflict with Israel, diplomats say](https://www.yahoo.com/news/iran-held-direct-talks-us-152324285.html)
+- Jun 19 - [FDR's grandson discusses Social Security, Medicare go-broke dates being moved up](https://www.yahoo.com/news/fdrs-grandson-discusses-social-security-164513560.html)
 - Jun 19 - [Trump Lashes Out at Fox News Over Devastating New Poll](https://www.yahoo.com/news/trump-lashes-fox-news-over-142025626.html)
+- Jun 19 - [Scientists Just Proved That All Life on Earth Follows One Simple Rule](https://www.yahoo.com/news/scientists-just-proved-life-earth-133000407.html)
 - Jun 19 - [Planespotters gather at airbase as jets arrive](https://www.yahoo.com/news/planespotters-gather-airbase-jets-arrive-125656405.html)
+- Jun 19 - [People Are Confused—If Houses Aren't Selling, Why Aren't Prices Dropping? 'That's Insane,' One Buyer Says](https://finance.yahoo.com/news/people-confused-houses-arent-selling-123003082.html)
 <!-- feed end -->
