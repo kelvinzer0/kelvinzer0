@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Iranian missile slams into the main hospital in southern Israel, causing extensive damage](https://www.yahoo.com/news/iranian-missile-slams-main-hospital-062605209.html)
 - Jun 19 - [Ukraine has a problem no one is talking about – young women are leaving in droves](https://www.yahoo.com/news/ukraine-problem-no-one-talking-050000392.html)
-- Jun 19 - [US will strike North Korea if South attacked with nukes, South's spy chief nominee says](https://www.yahoo.com/news/south-korea-spy-chief-nominee-030226996.html)
 - Jun 19 - [Iranian missile hits main hospital in southern Israel as strikes wound dozens](https://www.yahoo.com/news/israel-military-warns-people-evacuate-014450438.html)
-- Jun 19 - [Mulvaney warns of safety concerns over White House’s new flagpoles](https://www.yahoo.com/news/mulvaney-warns-safety-concerns-over-011654098.html)
+- Jun 18 - [Putin says he does not want to discuss the possible Israeli-U.S. killing of Iran's supreme leader](https://www.yahoo.com/news/regime-change-tehran-putin-says-214534350.html)
+- Jun 18 - [President Trump Announces Special Change To White House](https://www.yahoo.com/news/president-trump-announces-special-change-214045114.html)
+- Jun 18 - [Unpacking rumor Iranian state TV said, 'Tonight, a great surprise will occur, one that the world will remember for centuries'](https://www.yahoo.com/news/unpacking-rumor-iranian-state-tv-194800110.html)
 <!-- feed end -->
