@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [UPDATE: I-75 reopens after downed power lines cause hours-long closure](https://www.yahoo.com/news/downed-power-lines-close-interstate-000820218.html)
-- Jun 19 - [Israeli hospital suffers 'extensive damage' from Iranian missile strike](https://www.yahoo.com/news/israel-military-warns-people-evacuate-014450438.html)
+- Jun 19 - [GSMA's Badrinath on China's Telecom Sector Outlook](https://finance.yahoo.com/video/gsmas-badrinath-chinas-telecom-sector-053347961.html)
+- Jun 19 - [US will strike North Korea if South attacked with nukes, South's spy chief nominee says](https://www.yahoo.com/news/south-korea-spy-chief-nominee-030226996.html)
 - Jun 18 - [Oklahoma man could soon be deported for a crime committed decades ago](https://www.yahoo.com/news/oklahoma-man-could-soon-deported-230324404.html)
 - Jun 18 - [Putin says he does not want to discuss the possible Israeli-U.S. killing of Iran's supreme leader](https://www.yahoo.com/news/regime-change-tehran-putin-says-214534350.html)
 - Jun 18 - [President Trump Announces Special Change To White House](https://www.yahoo.com/news/president-trump-announces-special-change-214045114.html)
