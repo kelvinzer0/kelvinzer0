@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [SoftBank reportedly looking to launch a trillion-dollar AI and robotics industrial complex](https://finance.yahoo.com/news/softbank-reportedly-looking-launch-trillion-152206758.html)
-- Jun 20 - [US prepares action targeting allies’ chip plants in China, WSJ reports](https://finance.yahoo.com/news/us-prepares-action-targeting-allies-151732732.html)
-- Jun 20 - [Putin says Russia plans to deepen military-technical ties with 'friendly countries'](https://www.yahoo.com/news/putin-says-russia-plans-deepen-135842440.html)
-- Jun 20 - [Authorities Searching Volcanic Lake for 34 Missing Gamblers as Suspect Hints it Contains Over 100 Bodies](https://www.yahoo.com/news/authorities-searching-volcanic-lake-34-122330190.html)
-- Jun 20 - [Walmart Makes Sudden Self-Checkout Decision After Alarming Police Data](https://www.yahoo.com/news/walmart-makes-sudden-self-checkout-075754868.html)
+- Jun 20 - [How this startup is helping publishers profit from AI scraping](https://finance.yahoo.com/video/startup-helping-publishers-profit-ai-170000967.html)
+- Jun 20 - [Trump calls for special prosecutor to investigate 2020 election, reviving longstanding grievance](https://www.yahoo.com/news/trump-calls-special-prosecutor-investigate-160624135.html)
+- Jun 20 - [Putin says 'the whole of Ukraine is ours' in theory, may take city of Sumy](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-160421733.html)
+- Jun 20 - [Ex-assistant to Sean 'Diddy' Combs says job included buying drugs, setting up sex parties](https://www.yahoo.com/news/ex-assistant-sean-diddy-combs-153822551.html)
+- Jun 20 - [She Spent Years Paying Off $300,000 In Student Debt. Now That It's Gone, This Doctor Wants To Quit Her $190,000 Job](https://finance.yahoo.com/news/she-spent-years-paying-off-134534524.html)
 <!-- feed end -->
