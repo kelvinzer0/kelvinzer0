@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 19 - [Controversial Telegram Co-Founder Says He'll Leave $17 Billion Fortune to His 106 Children](https://www.yahoo.com/entertainment/articles/controversial-telegram-co-founder-says-221752882.html)
-- Jun 19 - [UPDATE: Rancho Fire in Cottonwood grows to over 150 acres. Evacuation orders in place](https://www.yahoo.com/news/rancho-fire-cottonwood-triggers-evacuations-212055733.html)
+- Jun 20 - [Trump criticizes ‘non-working holidays’ on Juneteenth](https://www.yahoo.com/news/trump-criticizes-non-working-holidays-004137845.html)
+- Jun 19 - [CNN visits impact sites in Tehran as Israel and Iran continue to trade strikes](https://www.yahoo.com/news/cnn-visits-impact-sites-tehran-233448203.html)
+- Jun 19 - [20-year-old northern Wisconsin man hospitalized after being ejected from corvette during crash](https://www.yahoo.com/news/20-old-northern-wisconsin-man-212624058.html)
+- Jun 19 - [Legendary Chicago Restaurant Has 'Abruptly’ Closed for Good](https://www.yahoo.com/news/legendary-chicago-restaurant-abruptly-closed-211126524.html)
 - Jun 19 - [Trump is silent about Juneteenth on a day he previously honored as president](https://www.yahoo.com/news/trump-silent-juneteenth-day-previously-204451149.html)
-- Jun 19 - [White House Fumes at ‘Ugly’ Sculpture Mocking ‘Dictator’ Trump’s Birthday Parade](https://www.yahoo.com/news/white-house-fumes-ugly-sculpture-153031619.html)
-- Jun 19 - [Italian Man, 80, Drives Down Rome's Spanish Steps; Has Car Removed From Historic Monument by Crane](https://www.yahoo.com/entertainment/videos/italian-man-80-drives-down-152801158.html)
 <!-- feed end -->
