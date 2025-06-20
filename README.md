@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Putin says Russia plans to deepen military-technical ties with 'friendly countries'](https://www.yahoo.com/news/putin-says-russia-plans-deepen-135842440.html)
-- Jun 20 - [It's Official: Scientists Confirmed What's Inside Our Moon](https://www.yahoo.com/news/official-scientists-confirmed-whats-inside-130050108.html)
-- Jun 20 - [Drinking water map shows where toxic ‘forever chemicals’ are found in the UK](https://www.yahoo.com/news/drinking-water-pfas-forever-chemicals-map-uk-125431281.html)
-- Jun 20 - [Russia launches drone attacks on Odesa and Kharkiv, Ukraine officials say](https://www.yahoo.com/news/russia-launches-drone-attacks-odesa-112213832.html)
+- Jun 20 - [Meta's big AI hiring push](https://finance.yahoo.com/video/metas-big-ai-hiring-push-145855745.html)
+- Jun 20 - [Authorities Searching Volcanic Lake for 34 Missing Gamblers as Suspect Hints it Contains Over 100 Bodies](https://www.yahoo.com/news/authorities-searching-volcanic-lake-34-122330190.html)
 - Jun 20 - [Mortgage and refinance interest rates today, June 20, 2025: Rates trending lower](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-june-20-2025-100043606.html)
+- Jun 20 - [Walmart Makes Sudden Self-Checkout Decision After Alarming Police Data](https://www.yahoo.com/news/walmart-makes-sudden-self-checkout-075754868.html)
+- Jun 20 - [Xi and Putin present united front over Israel-Iran crisis, in veiled message to Trump](https://www.yahoo.com/news/xi-putin-present-united-front-072742825.html)
 <!-- feed end -->
