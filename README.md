@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Xi and Putin present united front over Israel-Iran crisis, in veiled message to Trump](https://www.yahoo.com/news/xi-putin-present-united-front-072742825.html)
 - Jun 20 - [Iran Races to Get Its Oil Out Into the World](https://finance.yahoo.com/video/iran-races-oil-world-070452617.html)
+- Jun 20 - [New information on Norfolk sailor’s death, name of suspect revealed](https://www.yahoo.com/news/information-norfolk-sailor-death-name-021252412.html)
 - Jun 20 - [Musk slams influential Trump adviser: ‘He’s a snake’](https://www.yahoo.com/news/musk-slams-influential-trump-adviser-015600506.html)
-- Jun 20 - [Trump says number of 'non-working holidays' in America 'must change' in Juneteenth social media post](https://www.yahoo.com/news/trump-says-number-non-working-012410215.html)
 - Jun 19 - [Conservatives Turn On GOP Senator Over Plan To Sell Off Millions Of Acres Of Public Land](https://www.yahoo.com/news/conservatives-turn-gop-senator-over-231801550.html)
-- Jun 19 - [Trump is silent about Juneteenth on a day he previously honored as president](https://www.yahoo.com/news/trump-silent-juneteenth-day-previously-204451149.html)
 <!-- feed end -->
