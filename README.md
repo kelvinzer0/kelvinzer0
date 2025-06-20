@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Telegram boss says he has fathered more than 100 children](https://www.yahoo.com/entertainment/articles/tech-billionaire-says-fathered-more-041311980.html)
 - Jun 20 - [Musk slams influential Trump adviser: ‘He’s a snake’](https://www.yahoo.com/news/musk-slams-influential-trump-adviser-015600506.html)
 - Jun 20 - [Trump says number of 'non-working holidays' in America 'must change' in Juneteenth social media post](https://www.yahoo.com/news/trump-says-number-non-working-012410215.html)
+- Jun 19 - [Security footage shows dog's dramatic showdown with full-sized bear inside California home](https://www.yahoo.com/news/security-footage-shows-dogs-dramatic-233938840.html)
+- Jun 19 - [Nineteen US colleges are among the best global universities, US News says](https://www.yahoo.com/news/nineteen-us-colleges-among-best-205546672.html)
 - Jun 19 - [Trump is silent about Juneteenth on a day he previously honored as president](https://www.yahoo.com/news/trump-silent-juneteenth-day-previously-204451149.html)
-- Jun 19 - [Man Dies In 'Horrible' Accident In Central Park At 43](https://www.yahoo.com/news/man-dies-horrible-accident-central-203314496.html)
 <!-- feed end -->
