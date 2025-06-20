@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Ukrainian girl, 7, who flew to Israel for cancer cure killed by Iranian strike](https://www.yahoo.com/news/ukrainian-girl-7-rare-cancer-055001107.html)
-- Jun 20 - [Crowds flock to Brighton as UK issues amber heat alert](https://www.yahoo.com/news/crowds-flock-brighton-uk-issues-054502584.html)
-- Jun 20 - [Musk slams influential Trump adviser: ‘He’s a snake’](https://www.yahoo.com/news/musk-slams-influential-trump-adviser-015600506.html)
-- Jun 20 - [Trump says number of 'non-working holidays' in America 'must change' in Juneteenth social media post](https://www.yahoo.com/news/trump-says-number-non-working-012410215.html)
-- Jun 19 - [Trump is silent about Juneteenth on a day he previously honored as president](https://www.yahoo.com/news/trump-silent-juneteenth-day-previously-204451149.html)
+- Jun 20 - [Down 18%, Is Home Depot Stock a Buy on the Dip?](https://finance.yahoo.com/news/down-18-home-depot-stock-074100746.html)
+- Jun 20 - [Search for 34 missing cockfighting gamblers points to volcanic lake](https://www.yahoo.com/news/search-34-missing-cockfighting-gamblers-072015679.html)
+- Jun 20 - [Iran Races to Get Its Oil Out Into the World](https://finance.yahoo.com/video/iran-races-oil-world-070452628.html)
+- Jun 20 - [Sig Sauer, faced with lawsuits over a popular pistol, gets protection in New Hampshire](https://www.yahoo.com/news/sig-sauer-faced-lawsuits-over-040610738.html)
+- Jun 20 - [In-N-Out Burger Being Sued for $3.2 Million](https://www.yahoo.com/news/n-burger-being-sued-3-031956148.html)
 <!-- feed end -->
