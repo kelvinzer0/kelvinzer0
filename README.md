@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Trump criticizes ‘non-working holidays’ on Juneteenth](https://www.yahoo.com/news/trump-criticizes-non-working-holidays-004137845.html)
-- Jun 19 - [CNN visits impact sites in Tehran as Israel and Iran continue to trade strikes](https://www.yahoo.com/news/cnn-visits-impact-sites-tehran-233448203.html)
-- Jun 19 - [20-year-old northern Wisconsin man hospitalized after being ejected from corvette during crash](https://www.yahoo.com/news/20-old-northern-wisconsin-man-212624058.html)
-- Jun 19 - [Legendary Chicago Restaurant Has 'Abruptly’ Closed for Good](https://www.yahoo.com/news/legendary-chicago-restaurant-abruptly-closed-211126524.html)
+- Jun 20 - [Erick weakens after landfall in southern Mexico as a Category 3 hurricane](https://www.yahoo.com/news/erick-weakens-landfall-southern-mexico-025642105.html)
+- Jun 20 - [Musk slams influential Trump adviser: ‘He’s a snake’](https://www.yahoo.com/news/musk-slams-influential-trump-adviser-015600506.html)
 - Jun 19 - [Trump is silent about Juneteenth on a day he previously honored as president](https://www.yahoo.com/news/trump-silent-juneteenth-day-previously-204451149.html)
+- Jun 19 - [Man Dies In 'Horrible' Accident In Central Park At 43](https://www.yahoo.com/news/man-dies-horrible-accident-central-203314496.html)
+- Jun 19 - [Earthquake reported Thursday in Northeast Ohio](https://www.yahoo.com/news/earthquake-reported-thursday-northeast-ohio-182810839.html)
 <!-- feed end -->
