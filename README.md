@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Husband re-arrested in the death of Suzanne Morphew, whose remains were found after 3-year search](https://www.yahoo.com/news/husband-colorado-woman-whose-remains-204235171.html)
-- Jun 20 - [Don't expect to see Tesla robotaxis everywhere just yet](https://finance.yahoo.com/video/dont-expect-see-tesla-robotaxis-204045535.html)
-- Jun 20 - [Verdict against a pardoned Capitol rioter is only a partial victory for a police officer's widow](https://www.yahoo.com/news/verdict-against-pardoned-capitol-rioter-195439531.html)
+- Jun 20 - [An insurance firm is ordered to pay $44M in a lawsuit filed by a man freed from prison in Missouri](https://www.yahoo.com/news/insurance-firm-ordered-pay-44m-213306865.html)
+- Jun 20 - [Biotech industry faces off: US vs. China](https://finance.yahoo.com/video/biotech-industry-faces-off-us-212130657.html)
 - Jun 20 - [Most Dangerous College Town in U.S. Named in New Study](https://www.yahoo.com/news/most-dangerous-college-town-u-191315912.html)
-- Jun 20 - [Latest Starship Explosion Drastically Decreases SpaceX's Chances of Reaching Mars Without Having to Wait Years](https://www.yahoo.com/news/latest-starship-explosion-drastically-decreases-182231186.html)
+- Jun 20 - [Arkansas woman found safe one year after disappearance](https://www.yahoo.com/news/arkansas-woman-found-safe-one-174446350.html)
+- Jun 20 - [Plane Passenger Goes Viral for Video Showing Her Pulling Hair, Spitting on Fellow Flyer Over Seat Dispute](https://www.yahoo.com/entertainment/videos/plane-passenger-goes-viral-video-172001633.html)
 <!-- feed end -->
