@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Ukrainian girl, 7, who flew to Israel for cancer cure killed by Iranian strike](https://www.yahoo.com/news/ukrainian-girl-7-rare-cancer-055001107.html)
+- Jun 20 - [Crowds flock to Brighton as UK issues amber heat alert](https://www.yahoo.com/news/crowds-flock-brighton-uk-issues-054502584.html)
 - Jun 20 - [Musk slams influential Trump adviser: ‘He’s a snake’](https://www.yahoo.com/news/musk-slams-influential-trump-adviser-015600506.html)
 - Jun 20 - [Trump says number of 'non-working holidays' in America 'must change' in Juneteenth social media post](https://www.yahoo.com/news/trump-says-number-non-working-012410215.html)
-- Jun 19 - [Security footage shows dog's dramatic showdown with full-sized bear inside California home](https://www.yahoo.com/news/security-footage-shows-dogs-dramatic-233938840.html)
-- Jun 19 - [Nineteen US colleges are among the best global universities, US News says](https://www.yahoo.com/news/nineteen-us-colleges-among-best-205546672.html)
 - Jun 19 - [Trump is silent about Juneteenth on a day he previously honored as president](https://www.yahoo.com/news/trump-silent-juneteenth-day-previously-204451149.html)
 <!-- feed end -->
