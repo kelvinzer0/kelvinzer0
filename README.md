@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Drinking water map shows where toxic ‘forever chemicals’ are found in the UK](https://www.yahoo.com/news/drinking-water-pfas-forever-chemicals-map-uk-125431281.html)
 - Jun 20 - [We need to take the cost and complexity out of going electric to supercharge EV adoption](https://finance.yahoo.com/news/cost-complexity-going-electric-supercharge-141837167.html)
-- Jun 20 - [Candle Media’s CEO unpacks Disney’s next chapter](https://finance.yahoo.com/video/candle-media-ceo-unpacks-disney-120056274.html)
-- Jun 20 - [Russia launches drone attacks on Odesa and Kharkiv, Ukraine officials say](https://www.yahoo.com/news/russia-launches-drone-attacks-odesa-112213832.html)
-- Jun 20 - [On Juneteenth, Trump says the US has 'too many' holidays](https://www.yahoo.com/news/trump-says-number-non-working-012410215.html)
-- Jun 20 - [Walmart Makes Sudden Self-Checkout Decision After Alarming Police Data](https://www.yahoo.com/news/walmart-makes-sudden-self-checkout-075754868.html)
+- Jun 20 - [Xi and Putin present united front over Israel-Iran crisis, in veiled message to Trump](https://www.yahoo.com/news/xi-putin-present-united-front-072742825.html)
+- Jun 20 - [Under attack from Israel, Iran's supreme leader faces a stark choice](https://www.yahoo.com/news/things-know-irans-supreme-leader-050943608.html)
+- Jun 20 - [Sig Sauer, faced with lawsuits over a popular pistol, gets protection in New Hampshire](https://www.yahoo.com/news/sig-sauer-faced-lawsuits-over-040610738.html)
 <!-- feed end -->
