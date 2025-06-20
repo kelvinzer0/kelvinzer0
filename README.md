@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 20 - [How this startup is helping publishers profit from AI scraping](https://finance.yahoo.com/video/startup-helping-publishers-profit-ai-170000967.html)
 - Jun 20 - [Trump calls for special prosecutor to investigate 2020 election, reviving longstanding grievance](https://www.yahoo.com/news/trump-calls-special-prosecutor-investigate-160624135.html)
-- Jun 20 - [Putin says 'the whole of Ukraine is ours' in theory, may take city of Sumy](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-160421733.html)
+- Jun 20 - [Putin quips that the 'the whole of Ukraine is ours'- in theory](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-160421733.html)
 - Jun 20 - [Ex-assistant to Sean 'Diddy' Combs says job included buying drugs, setting up sex parties](https://www.yahoo.com/news/ex-assistant-sean-diddy-combs-153822551.html)
-- Jun 20 - [She Spent Years Paying Off $300,000 In Student Debt. Now That It's Gone, This Doctor Wants To Quit Her $190,000 Job](https://finance.yahoo.com/news/she-spent-years-paying-off-134534524.html)
+- Jun 20 - [US prepares action targeting allies’ chip plants in China, WSJ reports](https://finance.yahoo.com/news/us-prepares-action-targeting-allies-151732732.html)
 <!-- feed end -->
