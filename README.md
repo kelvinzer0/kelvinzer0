@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 20 - [Teen escapes Metro PD custody, caught after manhunt](https://www.yahoo.com/news/teen-escapes-metro-pd-custody-103910003.html)
+- Jun 20 - [Tourists cool off by Paris fountains in France's heatwave](https://www.yahoo.com/news/tourists-cool-off-paris-fountains-102100081.html)
+- Jun 20 - [On Juneteenth, Trump says the US has 'too many' holidays](https://www.yahoo.com/news/trump-says-number-non-working-012410215.html)
+- Jun 20 - [Walmart Makes Sudden Self-Checkout Decision After Alarming Police Data](https://www.yahoo.com/news/walmart-makes-sudden-self-checkout-075754868.html)
 - Jun 20 - [Xi and Putin present united front over Israel-Iran crisis, in veiled message to Trump](https://www.yahoo.com/news/xi-putin-present-united-front-072742825.html)
-- Jun 20 - [Iran Races to Get Its Oil Out Into the World](https://finance.yahoo.com/video/iran-races-oil-world-070452617.html)
-- Jun 20 - [New information on Norfolk sailor’s death, name of suspect revealed](https://www.yahoo.com/news/information-norfolk-sailor-death-name-021252412.html)
-- Jun 20 - [Musk slams influential Trump adviser: ‘He’s a snake’](https://www.yahoo.com/news/musk-slams-influential-trump-adviser-015600506.html)
-- Jun 19 - [Conservatives Turn On GOP Senator Over Plan To Sell Off Millions Of Acres Of Public Land](https://www.yahoo.com/news/conservatives-turn-gop-senator-over-231801550.html)
 <!-- feed end -->
