@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [An ex-college basketball player testifies that Sean 'Diddy' Combs got 'extremely creative' on drugs](https://www.yahoo.com/entertainment/articles/ex-college-basketball-player-testifies-165817103.html)
-- Jun 20 - [4 arrested at Lake Lanier after cocaine stash, CO2 canisters found in woods](https://www.yahoo.com/news/4-arrested-lake-lanier-cocaine-165455568.html)
-- Jun 20 - [Trump calls for special prosecutor to investigate 2020 election, reviving longstanding grievance](https://www.yahoo.com/news/trump-calls-special-prosecutor-investigate-160624135.html)
-- Jun 20 - [Putin quips that the 'the whole of Ukraine is ours'- in theory](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-160421733.html)
-- Jun 20 - [In a scathing dissent, Justice Jackson says the Supreme Court gives the impression it favors 'moneyed interests'](https://www.yahoo.com/news/scathing-dissent-justice-jackson-says-155907233.html)
+- Jun 20 - [Husband re-arrested in the death of Suzanne Morphew, whose remains were found after 3-year search](https://www.yahoo.com/news/husband-colorado-woman-whose-remains-204235171.html)
+- Jun 20 - [Don't expect to see Tesla robotaxis everywhere just yet](https://finance.yahoo.com/video/dont-expect-see-tesla-robotaxis-204045535.html)
+- Jun 20 - [Verdict against a pardoned Capitol rioter is only a partial victory for a police officer's widow](https://www.yahoo.com/news/verdict-against-pardoned-capitol-rioter-195439531.html)
+- Jun 20 - [Most Dangerous College Town in U.S. Named in New Study](https://www.yahoo.com/news/most-dangerous-college-town-u-191315912.html)
+- Jun 20 - [Latest Starship Explosion Drastically Decreases SpaceX's Chances of Reaching Mars Without Having to Wait Years](https://www.yahoo.com/news/latest-starship-explosion-drastically-decreases-182231186.html)
 <!-- feed end -->
