@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [An insurance firm is ordered to pay $44M in a lawsuit filed by a man freed from prison in Missouri](https://www.yahoo.com/news/insurance-firm-ordered-pay-44m-213306865.html)
-- Jun 20 - [Biotech industry faces off: US vs. China](https://finance.yahoo.com/video/biotech-industry-faces-off-us-212130657.html)
-- Jun 20 - [Most Dangerous College Town in U.S. Named in New Study](https://www.yahoo.com/news/most-dangerous-college-town-u-191315912.html)
-- Jun 20 - [Arkansas woman found safe one year after disappearance](https://www.yahoo.com/news/arkansas-woman-found-safe-one-174446350.html)
-- Jun 20 - [Plane Passenger Goes Viral for Video Showing Her Pulling Hair, Spitting on Fellow Flyer Over Seat Dispute](https://www.yahoo.com/entertainment/videos/plane-passenger-goes-viral-video-172001633.html)
+- Jun 20 - [Powell comments, consumer confidence, PCE: What to Watch](https://finance.yahoo.com/video/powell-comments-consumer-confidence-pce-230000073.html)
+- Jun 20 - [1 Magnificent High-Yield Dividend Stock Down 20% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-high-yield-dividend-220500762.html)
+- Jun 20 - [Move to unseat Mike Lee gains steam after Utah senator’s tweets mock Minnesota political shootings](https://www.yahoo.com/news/move-unseat-mike-lee-gains-210920221.html)
+- Jun 20 - [Verdict against a pardoned Capitol rioter is only a partial victory for a police officer's widow](https://www.yahoo.com/news/verdict-against-pardoned-capitol-rioter-195439531.html)
+- Jun 20 - [Major Supermarket Chain Confirms 60 Stores Will Close–Here's When](https://www.yahoo.com/news/major-supermarket-chain-confirms-60-185706749.html)
 <!-- feed end -->
