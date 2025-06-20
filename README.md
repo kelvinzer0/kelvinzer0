@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Teen escapes Metro PD custody, caught after manhunt](https://www.yahoo.com/news/teen-escapes-metro-pd-custody-103910003.html)
-- Jun 20 - [Tourists cool off by Paris fountains in France's heatwave](https://www.yahoo.com/news/tourists-cool-off-paris-fountains-102100081.html)
+- Jun 20 - [We need to take the cost and complexity out of going electric to supercharge EV adoption](https://finance.yahoo.com/news/cost-complexity-going-electric-supercharge-141837167.html)
+- Jun 20 - [Candle Media’s CEO unpacks Disney’s next chapter](https://finance.yahoo.com/video/candle-media-ceo-unpacks-disney-120056274.html)
+- Jun 20 - [Russia launches drone attacks on Odesa and Kharkiv, Ukraine officials say](https://www.yahoo.com/news/russia-launches-drone-attacks-odesa-112213832.html)
 - Jun 20 - [On Juneteenth, Trump says the US has 'too many' holidays](https://www.yahoo.com/news/trump-says-number-non-working-012410215.html)
 - Jun 20 - [Walmart Makes Sudden Self-Checkout Decision After Alarming Police Data](https://www.yahoo.com/news/walmart-makes-sudden-self-checkout-075754868.html)
-- Jun 20 - [Xi and Putin present united front over Israel-Iran crisis, in veiled message to Trump](https://www.yahoo.com/news/xi-putin-present-united-front-072742825.html)
 <!-- feed end -->
