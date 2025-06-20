@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Ardian's Mark Benedett on Democratizing Private Equity](https://finance.yahoo.com/video/ardians-mark-benedett-democratizing-private-183502009.html)
-- Jun 20 - [How this startup is helping publishers profit from AI scraping](https://finance.yahoo.com/video/startup-helping-publishers-profit-ai-170000967.html)
+- Jun 20 - [An ex-college basketball player testifies that Sean 'Diddy' Combs got 'extremely creative' on drugs](https://www.yahoo.com/entertainment/articles/ex-college-basketball-player-testifies-165817103.html)
 - Jun 20 - [4 arrested at Lake Lanier after cocaine stash, CO2 canisters found in woods](https://www.yahoo.com/news/4-arrested-lake-lanier-cocaine-165455568.html)
 - Jun 20 - [Trump calls for special prosecutor to investigate 2020 election, reviving longstanding grievance](https://www.yahoo.com/news/trump-calls-special-prosecutor-investigate-160624135.html)
 - Jun 20 - [Putin quips that the 'the whole of Ukraine is ours'- in theory](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-160421733.html)
+- Jun 20 - [In a scathing dissent, Justice Jackson says the Supreme Court gives the impression it favors 'moneyed interests'](https://www.yahoo.com/news/scathing-dissent-justice-jackson-says-155907233.html)
 <!-- feed end -->
