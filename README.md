@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Iranians fleeing country describe life under bombs and no internet](https://www.yahoo.com/news/iranians-fleeing-country-describe-life-145535689.html)
+- Jun 21 - [French scientists discover new blood type in Guadeloupe woman](https://www.yahoo.com/news/french-scientists-discover-blood-type-155003525.html)
 - Jun 21 - [After a senator's posts about the Minnesota shootings, his incensed colleagues refused to let it go](https://www.yahoo.com/news/senators-posts-minnesota-shootings-incensed-140907710.html)
-- Jun 21 - [Exclusive-Senior Iranian official: European proposals in Geneva unrealistic](https://www.yahoo.com/news/exclusive-senior-iranian-official-european-134226627.html)
-- Jun 21 - [El Paso, Southern New Mexico at risk of flash flooding during upcoming Monsoon storms](https://www.yahoo.com/news/el-paso-southern-mexico-risk-121217054.html)
+- Jun 21 - [Mark Cuban Says Were He To Become President For A Day, He Would Make These Two Simple Moves To Overhaul US Healthcare](https://finance.yahoo.com/news/mark-cuban-says-were-become-104742299.html)
 - Jun 21 - [Researchers make alarming discovery after analyzing stomach of deep-sea fish that washed ashore on US coast: 'They are not picky eaters'](https://www.yahoo.com/news/researchers-alarming-discovery-analyzing-stomach-103052372.html)
+- Jun 21 - [A company on Russia's doorstep that sent its war robots to Ukraine got a crash course in what soldiers need](https://www.yahoo.com/news/company-russias-doorstep-sent-war-095002293.html)
 <!-- feed end -->
