@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Israel strikes Iran’s Isfahan nuclear site, buildings on fire in Tel Aviv](https://www.yahoo.com/news/israel-strikes-iran-isfahan-nuclear-125248575.html)
-- Jun 21 - [My sister and her husband died within days of each other. Their banks won’t let me access their safe-deposit boxes. What now?](https://finance.yahoo.com/news/sister-her-husband-died-within-105900206.html)
-- Jun 21 - [Houston homeowners say they were blindsided by fees in the thousands from an HOA they didn’t even know existed](https://www.yahoo.com/news/houston-homeowners-were-blindsided-fees-103100626.html)
-- Jun 21 - [Experts celebrate as trail cameras capture once-in-a-lifetime photograph of 'forgotten' creature: 'The feeling was unbelievable'](https://www.yahoo.com/news/experts-celebrate-trail-cameras-capture-103057879.html)
+- Jun 21 - [Iranians fleeing country describe life under bombs and no internet](https://www.yahoo.com/news/iranians-fleeing-country-describe-life-145535689.html)
+- Jun 21 - [After a senator's posts about the Minnesota shootings, his incensed colleagues refused to let it go](https://www.yahoo.com/news/senators-posts-minnesota-shootings-incensed-140907710.html)
+- Jun 21 - [Exclusive-Senior Iranian official: European proposals in Geneva unrealistic](https://www.yahoo.com/news/exclusive-senior-iranian-official-european-134226627.html)
+- Jun 21 - [El Paso, Southern New Mexico at risk of flash flooding during upcoming Monsoon storms](https://www.yahoo.com/news/el-paso-southern-mexico-risk-121217054.html)
 - Jun 21 - [Researchers make alarming discovery after analyzing stomach of deep-sea fish that washed ashore on US coast: 'They are not picky eaters'](https://www.yahoo.com/news/researchers-alarming-discovery-analyzing-stomach-103052372.html)
 <!-- feed end -->
