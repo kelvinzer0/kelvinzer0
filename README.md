@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Ex-Texas US Rep. Blake Farenthold, who left office amid harassment allegations, dies at 63](https://www.yahoo.com/news/ex-texas-us-rep-blake-185300841.html)
+- Jun 21 - [Russia says ready to supply LNG to Mexico](https://finance.yahoo.com/news/russia-says-ready-supply-lng-210926602.html)
+- Jun 21 - [Mark Cuban Says He Turned Down Kamala Harris’ Offer to Be Considered for VP: ‘I’m Not Very Good as a No. 2’ | Video](https://www.yahoo.com/news/mark-cuban-says-turned-down-202507257.html)
 - Jun 21 - [GOP's food stamp plan is found to violate Senate rules. It's the latest setback for Trump's big bill](https://www.yahoo.com/news/gops-food-stamp-plan-found-175136133.html)
-- Jun 21 - [N.Y. School Employee, 22, Arrested After Allegedly Sending Nude Photographs to a 14-Year-Old Boy: Police](https://www.yahoo.com/news/n-y-school-employee-22-174913413.html)
+- Jun 21 - [53-year-old man in Wisconsin hospitalized for life-threatening injuries after being trapped under farm equipment](https://www.yahoo.com/news/53-old-man-wisconsin-hospitalized-163918683.html)
 - Jun 21 - [Putin says 'the whole of Ukraine is ours'](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-163811252.html)
-- Jun 21 - [New Photos Show Latest as White House Rose Garden Is Bulldozed, Paved Over as Part of President Donald Trump's Renovation Plan](https://www.yahoo.com/news/photos-show-latest-white-house-162703251.html)
 <!-- feed end -->
