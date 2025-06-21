@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Israel says it killed veteran Iran commander as both sides attack](https://www.yahoo.com/news/iran-israel-launch-attacks-tehran-015832749.html)
+- Jun 21 - [Israeli military says it killed two Iranian Revolutionary Guard commanders](https://www.yahoo.com/news/israeli-defense-minister-says-military-060148750.html)
+- Jun 21 - [We asked experts whether ICE agents can arrest people without warrants or not. Here's what we learned](https://www.yahoo.com/news/asked-experts-whether-ice-agents-013000221.html)
+- Jun 21 - [Strange signals detected from Antarctic ice seem to defy laws of physics. Scientists are searching for an answer](https://www.yahoo.com/news/hunt-ghostly-particles-found-strange-215333548.html)
+- Jun 21 - ["It's The Trifecta Of Bad": Dentists Are Sharing The Things They Would Avoid Doing To Their Teeth At All Costs](https://health.yahoo.com/articles/trifecta-bad-dentists-sharing-things-003102456.html)
 - Jun 20 - [Top Iranian Nuclear Scientists Killed By Secret Israeli Weapon: Report](https://www.yahoo.com/news/top-iranian-nuclear-scientists-killed-225846643.html)
-- Jun 20 - [Trump administration suspends enforcement of Biden-era farmworker rule](https://www.yahoo.com/news/trump-administration-says-suspending-enforcement-220722920.html)
-- Jun 20 - [Police sound alarm on dangerous 'jugging' robbery trend sweeping across America](https://www.yahoo.com/news/police-sound-alarm-dangerous-jugging-211520025.html)
-- Jun 20 - [Newsom Denied Day In Court In Latest Trump Battle Over Troops In LA As Judge Punts: “You Are Going To Tell Me What To Do,” He Informs DOJ & State Lawyers](https://www.yahoo.com/news/newsom-denied-day-court-latest-193801339.html)
 <!-- feed end -->
