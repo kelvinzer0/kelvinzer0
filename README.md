@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 20 - [Powell comments, consumer confidence, PCE: What to Watch](https://finance.yahoo.com/video/powell-comments-consumer-confidence-pce-230000073.html)
-- Jun 20 - [1 Magnificent High-Yield Dividend Stock Down 20% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-high-yield-dividend-220500762.html)
-- Jun 20 - [Move to unseat Mike Lee gains steam after Utah senator’s tweets mock Minnesota political shootings](https://www.yahoo.com/news/move-unseat-mike-lee-gains-210920221.html)
-- Jun 20 - [Verdict against a pardoned Capitol rioter is only a partial victory for a police officer's widow](https://www.yahoo.com/news/verdict-against-pardoned-capitol-rioter-195439531.html)
+- Jun 20 - [Top Iranian Nuclear Scientists Killed By Secret Israeli Weapon: Report](https://www.yahoo.com/news/top-iranian-nuclear-scientists-killed-225846643.html)
+- Jun 20 - [Trump administration suspends enforcement of Biden-era farmworker rule](https://www.yahoo.com/news/trump-administration-says-suspending-enforcement-220722920.html)
+- Jun 20 - [Trump administration makes sweeping changes to ObamaCare, ends ‘Dreamer’ coverage](https://www.yahoo.com/news/trump-administration-makes-sweeping-changes-215510506.html)
 - Jun 20 - [Major Supermarket Chain Confirms 60 Stores Will Close–Here's When](https://www.yahoo.com/news/major-supermarket-chain-confirms-60-185706749.html)
+- Jun 20 - [Arkansas woman found safe one year after disappearance](https://www.yahoo.com/news/arkansas-woman-found-safe-one-174446350.html)
 <!-- feed end -->
