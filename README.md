@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Watchdog finds ‘rampant abuse’ of remote work among federal employees during Biden administration](https://www.yahoo.com/news/watchdog-finds-rampant-abuse-remote-164606116.html)
-- Jun 21 - [Warren Buffett Sure Looks Like He Knows Something Is Going to Happen](https://finance.yahoo.com/news/warren-buffett-sure-looks-knows-163400425.html)
+- Jun 21 - [Ex-Texas US Rep. Blake Farenthold, who left office amid harassment allegations, dies at 63](https://www.yahoo.com/news/ex-texas-us-rep-blake-185300841.html)
+- Jun 21 - [Putin says 'the whole of Ukraine is ours'](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-163811252.html)
 - Jun 21 - [New Photos Show Latest as White House Rose Garden Is Bulldozed, Paved Over as Part of President Donald Trump's Renovation Plan](https://www.yahoo.com/news/photos-show-latest-white-house-162703251.html)
 - Jun 21 - [Ford Apparently Doesn’t Care About Engines Anymore](https://autos.yahoo.com/ford-apparently-doesn-t-care-160000579.html)
-- Jun 21 - [French scientists discover new blood type in Guadeloupe woman](https://www.yahoo.com/news/french-scientists-discover-blood-type-155003525.html)
+- Jun 21 - [Oops, Scientists May Have Severely Miscalculated How Many Humans Are on Earth](https://www.yahoo.com/news/oops-scientists-may-severely-miscalculated-153800975.html)
 <!-- feed end -->
