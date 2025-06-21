@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Russia says ready to supply LNG to Mexico](https://finance.yahoo.com/news/russia-says-ready-supply-lng-210926602.html)
 - Jun 21 - [Mark Cuban Says He Turned Down Kamala Harris’ Offer to Be Considered for VP: ‘I’m Not Very Good as a No. 2’ | Video](https://www.yahoo.com/news/mark-cuban-says-turned-down-202507257.html)
 - Jun 21 - [GOP's food stamp plan is found to violate Senate rules. It's the latest setback for Trump's big bill](https://www.yahoo.com/news/gops-food-stamp-plan-found-175136133.html)
-- Jun 21 - [53-year-old man in Wisconsin hospitalized for life-threatening injuries after being trapped under farm equipment](https://www.yahoo.com/news/53-old-man-wisconsin-hospitalized-163918683.html)
+- Jun 21 - [Former Ohio State football player Kirk Barton charged in deadly Dublin crash](https://www.yahoo.com/news/former-ohio-state-football-player-174131814.html)
+- Jun 21 - [Grandfather's simple changes reversed pre-diabetes diagnosis that left him 'petrified'](https://www.yahoo.com/news/grandfathers-simple-changes-reversed-pre-165905183.html)
 - Jun 21 - [Putin says 'the whole of Ukraine is ours'](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-163811252.html)
 <!-- feed end -->
