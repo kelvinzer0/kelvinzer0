@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Israel says it killed veteran Iran commander as both sides attack](https://www.yahoo.com/news/iran-israel-launch-attacks-tehran-015832749.html)
-- Jun 21 - [Strange signals detected from Antarctic ice seem to defy laws of physics. Scientists are searching for an answer](https://www.yahoo.com/news/hunt-ghostly-particles-found-strange-215333548.html)
-- Jun 21 - ["It's The Trifecta Of Bad": Dentists Are Sharing The Things They Would Avoid Doing To Their Teeth At All Costs](https://health.yahoo.com/articles/trifecta-bad-dentists-sharing-things-003102456.html)
-- Jun 20 - [Top Iranian Nuclear Scientists Killed By Secret Israeli Weapon: Report](https://www.yahoo.com/news/top-iranian-nuclear-scientists-killed-225846643.html)
-- Jun 20 - [Secretive Russian-Made Mi-17 Helicopter Makes Unusual Appearance In Tucson](https://www.yahoo.com/news/secretive-russian-made-mi-17-222523768.html)
+- Jun 21 - [Mark Cuban Says Were He To Become President For A Day, He Would Make These Two Simple Moves To Overhaul US Healthcare](https://finance.yahoo.com/news/mark-cuban-says-were-become-104742299.html)
+- Jun 21 - [10 Monster Stocks to Hold for the Next 10 Years](https://finance.yahoo.com/news/10-monster-stocks-hold-next-102000846.html)
+- Jun 21 - [Mortgage and refinance interest rates today, June 21, 2025: 30-year home loan rates dip slightly](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-june-21-2025-100039505.html)
+- Jun 21 - [The Ultimate Growth Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/ultimate-growth-stock-buy-1-093500343.html)
+- Jun 21 - [India's watchdog warns Air India for breaching pilots' flight duty timings](https://finance.yahoo.com/news/indias-watchdog-warns-air-india-092501054.html)
 <!-- feed end -->
