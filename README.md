@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Tesla vs. Waymo: What is the difference between the vehicles?](https://finance.yahoo.com/video/tesla-vs-waymo-difference-between-120003596.html)
-- Jun 21 - [Luxury superyacht is partially resurfaced 10 months after sinking off Sicily](https://www.yahoo.com/news/luxury-superyacht-partially-resurfaced-10-111514740.html)
-- Jun 21 - [Unemployment claims in California declined last week](https://www.yahoo.com/news/unemployment-claims-california-declined-last-110125348.html)
 - Jun 21 - [Harvard hired a researcher to uncover its ties to slavery. He says the results cost him his job: ‘We found too many slaves’](https://www.yahoo.com/news/harvard-hired-researcher-uncover-ties-110007958.html)
+- Jun 21 - [Researchers make alarming discovery after analyzing stomach of deep-sea fish that washed ashore on US coast: 'They are not picky eaters'](https://www.yahoo.com/news/researchers-alarming-discovery-analyzing-stomach-103052372.html)
 - Jun 21 - [A company on Russia's doorstep that sent its war robots to Ukraine got a crash course in what soldiers need](https://www.yahoo.com/news/company-russias-doorstep-sent-war-095002293.html)
+- Jun 21 - [India's watchdog warns Air India for breaching pilots' flight duty timings](https://finance.yahoo.com/news/indias-watchdog-warns-air-india-092501054.html)
+- Jun 21 - [India says it will never restore Indus water treaty with Pakistan](https://www.yahoo.com/news/india-says-never-restore-indus-075630556.html)
 <!-- feed end -->
