@@ -62,6 +62,6 @@ https://kelvinzer0.github.io
 - Jun 20 - [Top Iranian Nuclear Scientists Killed By Secret Israeli Weapon: Report](https://www.yahoo.com/news/top-iranian-nuclear-scientists-killed-225846643.html)
 - Jun 20 - [Trump administration suspends enforcement of Biden-era farmworker rule](https://www.yahoo.com/news/trump-administration-says-suspending-enforcement-220722920.html)
 - Jun 20 - [Trump administration makes sweeping changes to ObamaCare, ends ‘Dreamer’ coverage](https://www.yahoo.com/news/trump-administration-makes-sweeping-changes-215510506.html)
-- Jun 20 - [Major Supermarket Chain Confirms 60 Stores Will Close–Here's When](https://www.yahoo.com/news/major-supermarket-chain-confirms-60-185706749.html)
-- Jun 20 - [Arkansas woman found safe one year after disappearance](https://www.yahoo.com/news/arkansas-woman-found-safe-one-174446350.html)
+- Jun 20 - [Japan scraps US meeting after Washington demands more defense spending -FT](https://www.yahoo.com/news/japan-scraps-us-meeting-washington-213421652.html)
+- Jun 20 - [Man whose parents were kidnapped after $245M Bitcoin theft has pleaded guilty to federal charges](https://www.yahoo.com/news/man-whose-parents-were-kidnapped-211942855.html)
 <!-- feed end -->
