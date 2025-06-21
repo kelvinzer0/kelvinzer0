@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [UBS Sees Sluggish Growth for Conagra Brands, Inc. (CAG) in FY26](https://finance.yahoo.com/news/ubs-sees-sluggish-growth-conagra-193902257.html)
+- Jun 21 - [Las Vegas casino dealers quietly being laid off amid decline in tourism — what’s behind the slump in Sin City](https://www.yahoo.com/news/las-vegas-casino-dealers-quietly-190000380.html)
 - Jun 21 - [Ex-Texas US Rep. Blake Farenthold, who left office amid harassment allegations, dies at 63](https://www.yahoo.com/news/ex-texas-us-rep-blake-185300841.html)
-- Jun 21 - [Putin says 'the whole of Ukraine is ours'](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-163811252.html)
-- Jun 21 - [New Photos Show Latest as White House Rose Garden Is Bulldozed, Paved Over as Part of President Donald Trump's Renovation Plan](https://www.yahoo.com/news/photos-show-latest-white-house-162703251.html)
-- Jun 21 - [Ford Apparently Doesn’t Care About Engines Anymore](https://autos.yahoo.com/ford-apparently-doesn-t-care-160000579.html)
-- Jun 21 - [Oops, Scientists May Have Severely Miscalculated How Many Humans Are on Earth](https://www.yahoo.com/news/oops-scientists-may-severely-miscalculated-153800975.html)
+- Jun 21 - [Driver Accused of the Hit-and-Run Death of Hamptons“ ”Realtor Sara Burack Says She Thought She Hit a Traffic Cone](https://www.yahoo.com/news/driver-accused-hit-run-death-184333970.html)
+- Jun 21 - [GOP's food stamp plan is found to violate Senate rules. It's the latest setback for Trump's big bill](https://www.yahoo.com/news/gops-food-stamp-plan-found-175136133.html)
 <!-- feed end -->
