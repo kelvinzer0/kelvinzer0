@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Israeli military says it killed two Iranian Revolutionary Guard commanders](https://www.yahoo.com/news/israeli-defense-minister-says-military-060148750.html)
-- Jun 21 - [We asked experts whether ICE agents can arrest people without warrants or not. Here's what we learned](https://www.yahoo.com/news/asked-experts-whether-ice-agents-013000221.html)
+- Jun 21 - [Israel says it killed veteran Iran commander as both sides attack](https://www.yahoo.com/news/iran-israel-launch-attacks-tehran-015832749.html)
 - Jun 21 - [Strange signals detected from Antarctic ice seem to defy laws of physics. Scientists are searching for an answer](https://www.yahoo.com/news/hunt-ghostly-particles-found-strange-215333548.html)
 - Jun 21 - ["It's The Trifecta Of Bad": Dentists Are Sharing The Things They Would Avoid Doing To Their Teeth At All Costs](https://health.yahoo.com/articles/trifecta-bad-dentists-sharing-things-003102456.html)
 - Jun 20 - [Top Iranian Nuclear Scientists Killed By Secret Israeli Weapon: Report](https://www.yahoo.com/news/top-iranian-nuclear-scientists-killed-225846643.html)
+- Jun 20 - [Secretive Russian-Made Mi-17 Helicopter Makes Unusual Appearance In Tucson](https://www.yahoo.com/news/secretive-russian-made-mi-17-222523768.html)
 <!-- feed end -->
