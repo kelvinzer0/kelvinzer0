@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Mark Cuban Says Were He To Become President For A Day, He Would Make These Two Simple Moves To Overhaul US Healthcare](https://finance.yahoo.com/news/mark-cuban-says-were-become-104742299.html)
-- Jun 21 - [10 Monster Stocks to Hold for the Next 10 Years](https://finance.yahoo.com/news/10-monster-stocks-hold-next-102000846.html)
-- Jun 21 - [Mortgage and refinance interest rates today, June 21, 2025: 30-year home loan rates dip slightly](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-june-21-2025-100039505.html)
-- Jun 21 - [The Ultimate Growth Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/ultimate-growth-stock-buy-1-093500343.html)
-- Jun 21 - [India's watchdog warns Air India for breaching pilots' flight duty timings](https://finance.yahoo.com/news/indias-watchdog-warns-air-india-092501054.html)
+- Jun 21 - [Tesla vs. Waymo: What is the difference between the vehicles?](https://finance.yahoo.com/video/tesla-vs-waymo-difference-between-120003596.html)
+- Jun 21 - [Luxury superyacht is partially resurfaced 10 months after sinking off Sicily](https://www.yahoo.com/news/luxury-superyacht-partially-resurfaced-10-111514740.html)
+- Jun 21 - [Unemployment claims in California declined last week](https://www.yahoo.com/news/unemployment-claims-california-declined-last-110125348.html)
+- Jun 21 - [Harvard hired a researcher to uncover its ties to slavery. He says the results cost him his job: ‘We found too many slaves’](https://www.yahoo.com/news/harvard-hired-researcher-uncover-ties-110007958.html)
+- Jun 21 - [A company on Russia's doorstep that sent its war robots to Ukraine got a crash course in what soldiers need](https://www.yahoo.com/news/company-russias-doorstep-sent-war-095002293.html)
 <!-- feed end -->
