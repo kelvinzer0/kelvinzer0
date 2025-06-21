@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Harvard hired a researcher to uncover its ties to slavery. He says the results cost him his job: ‘We found too many slaves’](https://www.yahoo.com/news/harvard-hired-researcher-uncover-ties-110007958.html)
+- Jun 21 - [Israel strikes Iran’s Isfahan nuclear site, buildings on fire in Tel Aviv](https://www.yahoo.com/news/israel-strikes-iran-isfahan-nuclear-125248575.html)
+- Jun 21 - [My sister and her husband died within days of each other. Their banks won’t let me access their safe-deposit boxes. What now?](https://finance.yahoo.com/news/sister-her-husband-died-within-105900206.html)
+- Jun 21 - [Houston homeowners say they were blindsided by fees in the thousands from an HOA they didn’t even know existed](https://www.yahoo.com/news/houston-homeowners-were-blindsided-fees-103100626.html)
+- Jun 21 - [Experts celebrate as trail cameras capture once-in-a-lifetime photograph of 'forgotten' creature: 'The feeling was unbelievable'](https://www.yahoo.com/news/experts-celebrate-trail-cameras-capture-103057879.html)
 - Jun 21 - [Researchers make alarming discovery after analyzing stomach of deep-sea fish that washed ashore on US coast: 'They are not picky eaters'](https://www.yahoo.com/news/researchers-alarming-discovery-analyzing-stomach-103052372.html)
-- Jun 21 - [A company on Russia's doorstep that sent its war robots to Ukraine got a crash course in what soldiers need](https://www.yahoo.com/news/company-russias-doorstep-sent-war-095002293.html)
-- Jun 21 - [India's watchdog warns Air India for breaching pilots' flight duty timings](https://finance.yahoo.com/news/indias-watchdog-warns-air-india-092501054.html)
-- Jun 21 - [India says it will never restore Indus water treaty with Pakistan](https://www.yahoo.com/news/india-says-never-restore-indus-075630556.html)
 <!-- feed end -->
