@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Strange signals detected from Antarctic ice seem to defy laws of physics. Scientists are searching for an answer](https://www.yahoo.com/news/hunt-ghostly-particles-found-strange-215333548.html)
+- Jun 21 - [Israel says it killed veteran Iran commander as both sides attack](https://www.yahoo.com/news/iran-israel-launch-attacks-tehran-015832749.html)
 - Jun 20 - [Top Iranian Nuclear Scientists Killed By Secret Israeli Weapon: Report](https://www.yahoo.com/news/top-iranian-nuclear-scientists-killed-225846643.html)
 - Jun 20 - [Trump administration suspends enforcement of Biden-era farmworker rule](https://www.yahoo.com/news/trump-administration-says-suspending-enforcement-220722920.html)
-- Jun 20 - [Japan scraps US meeting after Washington demands more defense spending, FT reports](https://www.yahoo.com/news/japan-scraps-us-meeting-washington-213421652.html)
 - Jun 20 - [Police sound alarm on dangerous 'jugging' robbery trend sweeping across America](https://www.yahoo.com/news/police-sound-alarm-dangerous-jugging-211520025.html)
+- Jun 20 - [Newsom Denied Day In Court In Latest Trump Battle Over Troops In LA As Judge Punts: “You Are Going To Tell Me What To Do,” He Informs DOJ & State Lawyers](https://www.yahoo.com/news/newsom-denied-day-court-latest-193801339.html)
 <!-- feed end -->
