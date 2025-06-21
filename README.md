@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 21 - [Strange signals detected from Antarctic ice seem to defy laws of physics. Scientists are searching for an answer](https://www.yahoo.com/news/hunt-ghostly-particles-found-strange-215333548.html)
-- Jun 21 - ["It's The Trifecta Of Bad": Dentists Are Sharing The Things They Would Avoid Doing To Their Teeth At All Costs](https://health.yahoo.com/articles/trifecta-bad-dentists-sharing-things-003102456.html)
+- Jun 21 - [Chief Rabbi: I’m witnessing first hand Iran’s attempt to eliminate Jews](https://www.yahoo.com/news/chief-rabbi-m-witnessing-first-050000064.html)
+- Jun 20 - [Top Iranian Nuclear Scientists Killed By Secret Israeli Weapon: Report](https://www.yahoo.com/news/top-iranian-nuclear-scientists-killed-225846643.html)
 - Jun 20 - [Trump administration suspends enforcement of Biden-era farmworker rule](https://www.yahoo.com/news/trump-administration-says-suspending-enforcement-220722920.html)
 - Jun 20 - [Trump administration makes sweeping changes to ObamaCare, ends ‘Dreamer’ coverage](https://www.yahoo.com/news/trump-administration-makes-sweeping-changes-215510506.html)
 - Jun 20 - [Japan scraps US meeting after Washington demands more defense spending -FT](https://www.yahoo.com/news/japan-scraps-us-meeting-washington-213421652.html)
