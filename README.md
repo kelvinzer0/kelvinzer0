@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 21 - [Watchdog finds ‘rampant abuse’ of remote work among federal employees during Biden administration](https://www.yahoo.com/news/watchdog-finds-rampant-abuse-remote-164606116.html)
+- Jun 21 - [Warren Buffett Sure Looks Like He Knows Something Is Going to Happen](https://finance.yahoo.com/news/warren-buffett-sure-looks-knows-163400425.html)
 - Jun 21 - [New Photos Show Latest as White House Rose Garden Is Bulldozed, Paved Over as Part of President Donald Trump's Renovation Plan](https://www.yahoo.com/news/photos-show-latest-white-house-162703251.html)
+- Jun 21 - [Ford Apparently Doesn’t Care About Engines Anymore](https://autos.yahoo.com/ford-apparently-doesn-t-care-160000579.html)
 - Jun 21 - [French scientists discover new blood type in Guadeloupe woman](https://www.yahoo.com/news/french-scientists-discover-blood-type-155003525.html)
-- Jun 21 - [Iranians fleeing country describe life under bombs and no internet](https://www.yahoo.com/news/iranians-fleeing-country-describe-life-145535689.html)
-- Jun 21 - [After a senator's posts about the Minnesota shootings, his incensed colleagues refused to let it go](https://www.yahoo.com/news/senators-posts-minnesota-shootings-incensed-140907710.html)
-- Jun 21 - [El Paso, Southern New Mexico at risk of flash flooding during upcoming Monsoon storms](https://www.yahoo.com/news/el-paso-southern-mexico-risk-121217054.html)
 <!-- feed end -->
