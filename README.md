@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Trump wins immediate praise from Republicans in Congress after announcing strikes on Iran](https://www.yahoo.com/news/trump-wins-immediate-praise-republicans-012542207.html)
+- Jun 22 - [Trump ignites debate on presidential authority with Iran strikes and wins praise from Republicans](https://www.yahoo.com/news/trump-wins-immediate-praise-republicans-012542207.html)
 - Jun 22 - [Investors react to US attack on Iran nuclear sites](https://finance.yahoo.com/news/investors-react-us-attack-iran-004412712.html)
+- Jun 21 - [Man wins nearly half a million dollars on a Northern California casino slot machine](https://www.yahoo.com/news/man-wins-nearly-half-million-215324302.html)
 - Jun 21 - [Chocolate Recalled Nationwide Due to Potential 'Life-Threatening Allergic Reaction': Here's What You Need to Know](https://www.yahoo.com/news/chocolate-recalled-nationwide-due-potential-214414454.html)
-- Jun 21 - [Newlywed couple's honeymoon in US Virgin Islands ends with her ICE detention](https://www.yahoo.com/news/newlywed-couples-honeymoon-ends-her-213554401.html)
 - Jun 21 - [Mark Cuban Says He Turned Down Kamala Harris’ Offer to Be Considered for VP: ‘I’m Not Very Good as a No. 2’ | Video](https://www.yahoo.com/news/mark-cuban-says-turned-down-202507257.html)
 <!-- feed end -->
