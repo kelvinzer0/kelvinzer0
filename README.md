@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [More Than a Dozen Young Women Hospitalized Following Syringe Attack at Popular Music Festival](https://www.yahoo.com/news/more-dozen-young-women-hospitalized-153611329.html)
-- Jun 22 - [Iran's top security body to decide on Hormuz closure, Press TV reports](https://www.yahoo.com/news/irans-top-security-body-decide-153514569.html)
+- Jun 22 - [French police probe fake Disneyland 'marriage' with nine-year-old](https://www.yahoo.com/news/french-police-probe-fake-disneyland-180120064.html)
+- Jun 22 - [Former BET CEO on Paramount deal, media landscape, BET's future](https://finance.yahoo.com/video/former-bet-ceo-paramount-deal-180000659.html)
 - Jun 22 - [Satellite Images Undermine Trump’s Claim Iran’s Atomic Sites Destroyed](https://finance.yahoo.com/news/bombing-iran-nuclear-sites-complicates-132948201.html)
-- Jun 22 - [US urges China to dissuade Iran from closing Strait of Hormuz](https://www.yahoo.com/news/us-urges-china-dissuade-iran-150807968.html)
-- Jun 22 - [Ex-ambassador to Russia: Putin, Xi will celebrate Trump’s ‘preemptive war’ in Iran](https://www.yahoo.com/news/ex-ambassador-russia-putin-xi-131614861.html)
+- Jun 22 - [Spain agrees with NATO to skip 5% defence spending target](https://finance.yahoo.com/news/spain-agrees-nato-skip-5-165843540.html)
+- Jun 22 - [The Oregonian’s Therese Bottomly talks the future of the paper in changing times](https://www.yahoo.com/news/oregonian-therese-bottomly-talks-future-164500078.html)
 <!-- feed end -->
