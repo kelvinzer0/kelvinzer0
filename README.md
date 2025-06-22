@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [‘When In Doubt, Zoom Out’: This Investing Strategy Could Earn You $1 Million](https://finance.yahoo.com/news/doubt-zoom-investing-strategy-could-180907293.html)
+- Jun 22 - [Washington tells Trump after Iran strikes: No more ‘forever war’](https://www.yahoo.com/news/washington-tells-trump-iran-strikes-195026654.html)
+- Jun 22 - [Heartbreaking Video Shows 20-Year-Old Texas Woman's Final Moments Shortly Before She Went Missing on a Jet Ski](https://www.yahoo.com/news/heartbreaking-video-shows-20-old-193730954.html)
+- Jun 22 - [Urgent alarm issued after ‘mother of all data breaches’ sees 16 billion passwords exposed — do this ASAP](https://www.yahoo.com/news/urgent-alarm-issued-mother-data-183500259.html)
 - Jun 22 - [Digging into the rumor Iranian state TV said, 'There is a surprise tonight that the world will remember for centuries'](https://www.yahoo.com/news/digging-rumor-iranian-state-tv-180000540.html)
-- Jun 22 - [Former BET CEO on Paramount deal, media landscape, BET's future](https://finance.yahoo.com/video/former-bet-ceo-paramount-deal-180000659.html)
-- Jun 22 - [Iran government moves to block major oil, gas route](https://www.yahoo.com/news/iran-government-moves-block-major-170314774.html)
-- Jun 22 - [Spain agrees with NATO to skip 5% defence spending target](https://finance.yahoo.com/news/spain-agrees-nato-skip-5-165843540.html)
+- Jun 22 - [Iran approves closure of Strait of Hormuz, a vital oil and gas route](https://www.yahoo.com/news/iran-government-moves-block-major-170314774.html)
 <!-- feed end -->
