@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Iranian missile fired after US strikes causes heavy damage but few injuries in Tel Aviv](https://www.yahoo.com/news/iranian-missile-fired-us-strikes-144528954.html)
-- Jun 22 - [Kidney dialysis industry accused of maximizing profits over patients](https://www.yahoo.com/news/kidney-dialysis-industry-accused-maximizing-132302368.html)
-- Jun 22 - [Pentagon officials reveal new details about U.S. strikes on Iran's nuclear sites](https://www.yahoo.com/news/pentagon-officials-reveal-details-u-125918688.html)
-- Jun 22 - [Mitch McConnell weighs in on U.S. strikes in Iran](https://www.yahoo.com/news/mitch-mcconnell-weighs-u-strikes-125814898.html)
-- Jun 22 - [US strikes on Iran nuclear sites are real-life test of hard power's limits](https://www.yahoo.com/news/us-strikes-iran-nuclear-sites-121925139.html)
+- Jun 22 - [More Than a Dozen Young Women Hospitalized Following Syringe Attack at Popular Music Festival](https://www.yahoo.com/news/more-dozen-young-women-hospitalized-153611329.html)
+- Jun 22 - [Iran's top security body to decide on Hormuz closure, Press TV reports](https://www.yahoo.com/news/irans-top-security-body-decide-153514569.html)
+- Jun 22 - [Satellite Images Undermine Trump’s Claim Iran’s Atomic Sites Destroyed](https://finance.yahoo.com/news/bombing-iran-nuclear-sites-complicates-132948201.html)
+- Jun 22 - [US urges China to dissuade Iran from closing Strait of Hormuz](https://www.yahoo.com/news/us-urges-china-dissuade-iran-150807968.html)
+- Jun 22 - [Ex-ambassador to Russia: Putin, Xi will celebrate Trump’s ‘preemptive war’ in Iran](https://www.yahoo.com/news/ex-ambassador-russia-putin-xi-131614861.html)
 <!-- feed end -->
