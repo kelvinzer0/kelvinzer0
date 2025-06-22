@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [FedEx, Micron, Nike, and more: Earnings to watch next week](https://finance.yahoo.com/video/fedex-micron-nike-more-earnings-120005114.html)
-- Jun 22 - [Scientists make jaw-dropping find at base of Antarctic glacier: 'May be greatly underestimated'](https://www.yahoo.com/news/scientists-jaw-dropping-antarctic-glacier-114534709.html)
-- Jun 22 - [Archaeologists Accidentally Found the Incredible Lost Remnants of America's First Soldiers](https://www.yahoo.com/news/archaeologists-accidentally-found-incredible-lost-110000235.html)
-- Jun 22 - [Senior Russian official says Trump has started new war on Iran that will strengthen Khamenei](https://www.yahoo.com/news/russias-medvedev-says-trump-started-094320255.html)
-- Jun 22 - ['Nothing left': Israelis wake to devastation after US attack on Iran](https://www.yahoo.com/news/nothing-left-israelis-wake-devastation-085001534.html)
+- Jun 22 - [Iranian missile fired after US strikes causes heavy damage but few injuries in Tel Aviv](https://www.yahoo.com/news/iranian-missile-fired-us-strikes-144528954.html)
+- Jun 22 - [Kidney dialysis industry accused of maximizing profits over patients](https://www.yahoo.com/news/kidney-dialysis-industry-accused-maximizing-132302368.html)
+- Jun 22 - [Pentagon officials reveal new details about U.S. strikes on Iran's nuclear sites](https://www.yahoo.com/news/pentagon-officials-reveal-details-u-125918688.html)
+- Jun 22 - [Mitch McConnell weighs in on U.S. strikes in Iran](https://www.yahoo.com/news/mitch-mcconnell-weighs-u-strikes-125814898.html)
+- Jun 22 - [US strikes on Iran nuclear sites are real-life test of hard power's limits](https://www.yahoo.com/news/us-strikes-iran-nuclear-sites-121925139.html)
 <!-- feed end -->
