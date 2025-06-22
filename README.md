@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Brit 'devastated' after being kicked out of Dubai for having face tattoos](https://www.yahoo.com/lifestyle/videos/brit-devastated-being-kicked-dubai-125449258.html)
+- Jun 22 - [3 Best Tech Stocks for the Second Half of 2025](https://finance.yahoo.com/news/3-best-tech-stocks-second-123000937.html)
 - Jun 22 - [US strikes on Iran nuclear sites are real-life test of hard power's limits](https://www.yahoo.com/news/us-strikes-iran-nuclear-sites-121925139.html)
-- Jun 22 - [FedEx, Micron, Nike, and more: Earnings to watch next week](https://finance.yahoo.com/video/fedex-micron-nike-more-earnings-120005114.html)
 - Jun 22 - [‘You don’t brag about wiping out 60‑70,000 people’: the men who dropped the atomic bombs on Hiroshima and Nagasaki](https://www.yahoo.com/news/don-t-brag-wiping-60-110037331.html)
-- Jun 22 - [Archaeologists Accidentally Found the Incredible Lost Remnants of America's First Soldiers](https://www.yahoo.com/news/archaeologists-accidentally-found-incredible-lost-110000235.html)
+- Jun 22 - [Roughly 600 employees being laid off in Blue Diamond Growers Sacramento flagship manufacturing plant closure](https://finance.yahoo.com/news/roughly-600-employees-being-laid-101700395.html)
+- Jun 22 - ['Nothing left': Israelis wake to devastation after US attack on Iran](https://www.yahoo.com/news/nothing-left-israelis-wake-devastation-085001534.html)
 <!-- feed end -->
