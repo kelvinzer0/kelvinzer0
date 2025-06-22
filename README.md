@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [French police probe fake Disneyland 'marriage' with nine-year-old](https://www.yahoo.com/news/french-police-probe-fake-disneyland-180120064.html)
+- Jun 22 - [‘When In Doubt, Zoom Out’: This Investing Strategy Could Earn You $1 Million](https://finance.yahoo.com/news/doubt-zoom-investing-strategy-could-180907293.html)
+- Jun 22 - [Digging into the rumor Iranian state TV said, 'There is a surprise tonight that the world will remember for centuries'](https://www.yahoo.com/news/digging-rumor-iranian-state-tv-180000540.html)
 - Jun 22 - [Former BET CEO on Paramount deal, media landscape, BET's future](https://finance.yahoo.com/video/former-bet-ceo-paramount-deal-180000659.html)
-- Jun 22 - [Satellite Images Undermine Trump’s Claim Iran’s Atomic Sites Destroyed](https://finance.yahoo.com/news/bombing-iran-nuclear-sites-complicates-132948201.html)
+- Jun 22 - [Iran government moves to block major oil, gas route](https://www.yahoo.com/news/iran-government-moves-block-major-170314774.html)
 - Jun 22 - [Spain agrees with NATO to skip 5% defence spending target](https://finance.yahoo.com/news/spain-agrees-nato-skip-5-165843540.html)
-- Jun 22 - [The Oregonian’s Therese Bottomly talks the future of the paper in changing times](https://www.yahoo.com/news/oregonian-therese-bottomly-talks-future-164500078.html)
 <!-- feed end -->
