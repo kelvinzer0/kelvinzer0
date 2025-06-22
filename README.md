@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Trump wins immediate praise from Republicans in Congress after announcing strikes on Iran](https://www.yahoo.com/news/trump-wins-immediate-praise-republicans-012542207.html)
+- Jun 22 - [Investors react to US attack on Iran nuclear sites](https://finance.yahoo.com/news/investors-react-us-attack-iran-004412712.html)
+- Jun 21 - [Chocolate Recalled Nationwide Due to Potential 'Life-Threatening Allergic Reaction': Here's What You Need to Know](https://www.yahoo.com/news/chocolate-recalled-nationwide-due-potential-214414454.html)
+- Jun 21 - [Newlywed couple's honeymoon in US Virgin Islands ends with her ICE detention](https://www.yahoo.com/news/newlywed-couples-honeymoon-ends-her-213554401.html)
 - Jun 21 - [Mark Cuban Says He Turned Down Kamala Harris’ Offer to Be Considered for VP: ‘I’m Not Very Good as a No. 2’ | Video](https://www.yahoo.com/news/mark-cuban-says-turned-down-202507257.html)
-- Jun 21 - [GOP's food stamp plan is found to violate Senate rules. It's the latest setback for Trump's big bill](https://www.yahoo.com/news/gops-food-stamp-plan-found-175136133.html)
-- Jun 21 - [Former Ohio State football player Kirk Barton charged in deadly Dublin crash](https://www.yahoo.com/news/former-ohio-state-football-player-174131814.html)
-- Jun 21 - [Grandfather's simple changes reversed pre-diabetes diagnosis that left him 'petrified'](https://www.yahoo.com/news/grandfathers-simple-changes-reversed-pre-165905183.html)
-- Jun 21 - [Putin says 'the whole of Ukraine is ours'](https://www.yahoo.com/news/putin-says-whole-ukraine-ours-163811252.html)
 <!-- feed end -->
