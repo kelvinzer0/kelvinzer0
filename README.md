@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [This is the ‘beginning of the end’ for Iran’s supreme leader. But what comes next?](https://www.yahoo.com/news/beginning-end-iran-supreme-leader-160238550.html)
-- Jun 22 - [The Stock Split Announcement All of Wall Street Is Waiting for Is Back on the Table -- and It's Not Netflix or Costco!](https://finance.yahoo.com/news/stock-split-announcement-wall-street-070600030.html)
-- Jun 22 - [Iranian missiles intercepted over Jerusalem after US attacks Iran nuclear sites](https://www.yahoo.com/news/iranian-missiles-intercepted-over-jerusalem-054605054.html)
-- Jun 22 - [Trump’s Strange God Talk Has People Concerned](https://www.yahoo.com/news/trump-strange-god-talk-people-054159506.html)
-- Jun 22 - [After Trump attacks Iran, what experts and officials fear for the American homeland](https://www.yahoo.com/news/trump-attacks-iran-experts-officials-053442559.html)
+- Jun 22 - [Brit 'devastated' after being kicked out of Dubai for having face tattoos](https://www.yahoo.com/lifestyle/videos/brit-devastated-being-kicked-dubai-125449258.html)
+- Jun 22 - [US strikes on Iran nuclear sites are real-life test of hard power's limits](https://www.yahoo.com/news/us-strikes-iran-nuclear-sites-121925139.html)
+- Jun 22 - [FedEx, Micron, Nike, and more: Earnings to watch next week](https://finance.yahoo.com/video/fedex-micron-nike-more-earnings-120005114.html)
+- Jun 22 - [‘You don’t brag about wiping out 60‑70,000 people’: the men who dropped the atomic bombs on Hiroshima and Nagasaki](https://www.yahoo.com/news/don-t-brag-wiping-60-110037331.html)
+- Jun 22 - [Archaeologists Accidentally Found the Incredible Lost Remnants of America's First Soldiers](https://www.yahoo.com/news/archaeologists-accidentally-found-incredible-lost-110000235.html)
 <!-- feed end -->
