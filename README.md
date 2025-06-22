@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Altoona warehouse offers Iowa importers temporary respite from tariff volatility](https://finance.yahoo.com/news/altoona-warehouse-offers-iowa-importers-100130899.html)
 - Jun 22 - [This is the ‘beginning of the end’ for Iran’s supreme leader. But what comes next?](https://www.yahoo.com/news/beginning-end-iran-supreme-leader-160238550.html)
-- Jun 22 - ['Nothing left': Israelis wake to devastation after US attack on Iran](https://www.yahoo.com/news/nothing-left-israelis-wake-devastation-085001534.html)
-- Jun 22 - [New Details Emerge in Iran Attack: U.S. Used Submarines, 6 'Bunker Buster' Bombs](https://www.yahoo.com/news/details-emerge-iran-attack-u-044249416.html)
-- Jun 22 - [Wordle hints today for #1,464: Clues and answer for Sunday, June 22](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1464-clues-and-answer-for-sunday-june-22-040120780.html)
+- Jun 22 - [The Stock Split Announcement All of Wall Street Is Waiting for Is Back on the Table -- and It's Not Netflix or Costco!](https://finance.yahoo.com/news/stock-split-announcement-wall-street-070600030.html)
+- Jun 22 - [Iranian missiles intercepted over Jerusalem after US attacks Iran nuclear sites](https://www.yahoo.com/news/iranian-missiles-intercepted-over-jerusalem-054605054.html)
+- Jun 22 - [Trump’s Strange God Talk Has People Concerned](https://www.yahoo.com/news/trump-strange-god-talk-people-054159506.html)
+- Jun 22 - [After Trump attacks Iran, what experts and officials fear for the American homeland](https://www.yahoo.com/news/trump-attacks-iran-experts-officials-053442559.html)
 <!-- feed end -->
