@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 22 - [Woman 'Finally' Built a Fence to Keep Her Neighbors' Kids Out — And Now the Neighbors Are Complaining](https://www.yahoo.com/lifestyle/articles/woman-finally-built-fence-keep-203000819.html)
 - Jun 22 - [Heartbreaking Video Shows 20-Year-Old Texas Woman's Final Moments Shortly Before She Went Missing on a Jet Ski](https://www.yahoo.com/news/heartbreaking-video-shows-20-old-193730954.html)
+- Jun 22 - [How the US bombarded Iranian nuclear sites without detection](https://www.yahoo.com/news/us-bombarded-iranian-nuclear-sites-192419993.html)
 - Jun 22 - [Urgent alarm issued after ‘mother of all data breaches’ sees 16 billion passwords exposed — do this ASAP](https://www.yahoo.com/news/urgent-alarm-issued-mother-data-183500259.html)
 - Jun 22 - [Digging into the rumor Iranian state TV said, 'There is a surprise tonight that the world will remember for centuries'](https://www.yahoo.com/news/digging-rumor-iranian-state-tv-180000540.html)
-- Jun 22 - [Iran approves closure of Strait of Hormuz, a vital oil and gas route](https://www.yahoo.com/news/iran-government-moves-block-major-170314774.html)
-- Jun 22 - [Florida Homeowner Says Neighbor Reported 8-Inch Grass 'Because It Looks Bad' — Now She's Facing A $5,000 Fine Despite No Rule On Height](https://finance.yahoo.com/news/florida-homeowner-says-neighbor-reported-170140566.html)
 <!-- feed end -->
