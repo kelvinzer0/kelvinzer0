@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Iranian missiles intercepted over Jerusalem after US attacks Iran nuclear sites](https://www.yahoo.com/news/iranian-missiles-intercepted-over-jerusalem-054605054.html)
-- Jun 22 - [After Trump attacks Iran, what experts and officials fear for the American homeland](https://www.yahoo.com/news/trump-attacks-iran-experts-officials-053442559.html)
 - Jun 22 - [White House photos show rare look inside the Situation Room as Trump authorizes strikes in Iran](https://www.yahoo.com/news/white-house-photos-show-rare-035608786.html)
 - Jun 22 - [Trump ignites debate on presidential authority with Iran strikes and wins praise from Republicans](https://www.yahoo.com/news/trump-wins-immediate-praise-republicans-012542207.html)
 - Jun 22 - [Diddy's Alleged Instructions For Male Escorts At His 'Freak-Offs' Revealed By Prosecutors In New Text Messages](https://www.yahoo.com/news/diddys-alleged-instructions-male-escorts-010038426.html)
+- Jun 22 - [Instant View: Investors react to US attack on Iran nuclear sites](https://finance.yahoo.com/news/investors-react-us-attack-iran-004412712.html)
+- Jun 21 - [Man wins nearly half a million dollars on a Northern California casino slot machine](https://www.yahoo.com/news/man-wins-nearly-half-million-215324302.html)
 <!-- feed end -->
