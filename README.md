@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [AP Top Stories June 23](https://www.yahoo.com/news/ap-top-stories-june-23-092250998.html)
+- Jun 23 - [Don't overlook your eyes when protecting yourself from the sun](https://www.yahoo.com/news/dont-overlook-eyes-protecting-yourself-091451660.html)
 - Jun 23 - [Despite symptoms, menopausal women embrace youthful mindset](https://www.yahoo.com/lifestyle/videos/despite-symptoms-menopausal-women-embrace-085810100.html)
-- Jun 23 - [Intense military aircraft movement signals rapid build-up of US striking capabilities in Middle East](https://www.yahoo.com/news/intense-military-aircraft-movement-signals-184726270.html)
+- Jun 23 - [What Are the Best Vanguard ETFs to Buy Now to Retire a Millionaire?](https://finance.yahoo.com/news/best-vanguard-etfs-buy-now-085800378.html)
 - Jun 23 - [Iran's supreme leader asks Putin to do more after US strikes](https://www.yahoo.com/news/irans-supreme-leader-asks-putin-081956482.html)
-- Jun 23 - [Pakistan condemns Trump for bombing Iran a day after recommending him for a Nobel Peace Prize](https://www.yahoo.com/news/pakistan-condemns-trump-bombing-iran-044455394.html)
-- Jun 23 - [3 Profitable Stocks Skating on Thin Ice](https://finance.yahoo.com/news/3-profitable-stocks-skating-thin-044037117.html)
 <!-- feed end -->
