@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Heartbreaking Video Shows 20-Year-Old Texas Woman's Final Moments Shortly Before She Went Missing on a Jet Ski](https://www.yahoo.com/news/heartbreaking-video-shows-20-old-193730954.html)
-- Jun 22 - [Urgent alarm issued after ‘mother of all data breaches’ sees 16 billion passwords exposed — do this ASAP](https://www.yahoo.com/news/urgent-alarm-issued-mother-data-183500259.html)
-- Jun 22 - [Digging into the rumor Iranian state TV said, 'There is a surprise tonight that the world will remember for centuries'](https://www.yahoo.com/news/digging-rumor-iranian-state-tv-180000540.html)
-- Jun 22 - [Iran approves closure of Strait of Hormuz, a vital oil and gas route](https://www.yahoo.com/news/iran-government-moves-block-major-170314774.html)
-- Jun 22 - [Spain agrees with NATO to skip 5% defence spending target](https://finance.yahoo.com/news/spain-agrees-nato-skip-5-165843540.html)
+- Jun 23 - [Monsoon to bring heavy rain, flooding to parts of New Mexico this week](https://www.yahoo.com/news/monsoon-bring-heavy-rain-flooding-003337883.html)
+- Jun 22 - [Markets React Sharply to US Airstrikes on Iran](https://finance.yahoo.com/video/markets-react-sharply-us-airstrikes-232616761.html)
+- Jun 22 - [Police: Suspect shot and killed by a security guard after a shooting at a church in Michigan](https://www.yahoo.com/news/police-suspect-shot-killed-security-174217757.html)
+- Jun 22 - [Satellite images indicate severe damage to Fordow, but doubts remain](https://www.yahoo.com/news/satellite-images-indicate-severe-damage-222549092.html)
+- Jun 22 - [Oil rises and US stock futures, Asian shares slip after US strike on Iran nuclear sites](https://finance.yahoo.com/news/oil-rises-us-stock-futures-220904384.html)
 <!-- feed end -->
