@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Pacific Basin Avoiding Arabian Sea on Mideast Crisis](https://finance.yahoo.com/video/pacific-basin-avoiding-arabian-sea-042318140.html)
+- Jun 23 - [Part of busy road set to close for six months](https://www.yahoo.com/news/part-busy-road-set-close-051741683.html)
 - Jun 23 - [ICE detains Marine Corps veteran's wife who was still breastfeeding their baby](https://www.yahoo.com/news/ice-detains-marine-corps-veterans-040919653.html)
-- Jun 23 - [ICE detains Marine Corps veteran's wife and mother of breastfeeding infant](https://www.yahoo.com/news/ice-detains-marine-corps-veterans-040201395.html)
-- Jun 23 - [Michigan Church Deacon Ran Over Active Shooter With a Ford F-150 Truck: Reports](https://www.yahoo.com/news/michigan-church-deacon-ran-over-002405555.html)
+- Jun 23 - [Clerk who denied same-sex marriage licenses in 2015 is still fighting Supreme Court's ruling](https://www.yahoo.com/news/clerk-denied-same-sex-marriage-040352248.html)
+- Jun 23 - [Prayers Pouring In After 'Horrifying' Crash Kills 6 Sunday](https://www.yahoo.com/news/prayers-pouring-horrifying-crash-kills-012347087.html)
 - Jun 23 - [Trump Humiliates Hegseth, Rubio and Vance With Iran ‘Regime’ Post](https://www.yahoo.com/news/trump-humiliates-hegseth-rubio-vance-001823818.html)
 <!-- feed end -->
