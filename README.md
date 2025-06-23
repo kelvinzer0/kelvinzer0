@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 23 - [AP Top Stories June 23](https://www.yahoo.com/news/ap-top-stories-june-23-092250998.html)
-- Jun 23 - [Don't overlook your eyes when protecting yourself from the sun](https://www.yahoo.com/news/dont-overlook-eyes-protecting-yourself-091451660.html)
 - Jun 23 - [Despite symptoms, menopausal women embrace youthful mindset](https://www.yahoo.com/lifestyle/videos/despite-symptoms-menopausal-women-embrace-085810100.html)
-- Jun 23 - [What Are the Best Vanguard ETFs to Buy Now to Retire a Millionaire?](https://finance.yahoo.com/news/best-vanguard-etfs-buy-now-085800378.html)
+- Jun 23 - [Russia's former president says countries are lining up to give Iran their nukes. Analysts are calling his bluff.](https://www.yahoo.com/news/russias-former-president-says-countries-084041930.html)
 - Jun 23 - [Iran's supreme leader asks Putin to do more after US strikes](https://www.yahoo.com/news/irans-supreme-leader-asks-putin-081956482.html)
+- Jun 23 - [ICE detains Marine Corps veteran's wife who was still breastfeeding their baby](https://www.yahoo.com/news/ice-detains-marine-corps-veterans-040919653.html)
 <!-- feed end -->
