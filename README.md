@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [3 men found dead after jumping into water near California waterfall](https://www.yahoo.com/news/3-men-found-dead-jumping-143132804.html)
-- Jun 23 - [Man who filmed rape of woman has sentence increased](https://www.yahoo.com/news/man-filmed-rape-woman-sentence-140940201.html)
-- Jun 23 - [Main suspect in Madeleine McCann disappearance could be free within months](https://www.yahoo.com/news/main-suspect-madeleine-mccann-disappearance-135641489.html)
-- Jun 23 - [US-Iran, Powell to testify, Tesla's robotaxi: 3 Things](https://finance.yahoo.com/video/us-iran-powell-testify-teslas-130928171.html)
-- Jun 23 - [Suspect in disappearance of Madeleine McCann could be freed from prison early after donor pays fine](https://www.yahoo.com/news/suspect-disappearance-madeleine-mccann-could-125711561.html)
+- Jun 23 - [Jeff Bezos & Lauren Sanchez's 'Tension-Filled' Wedding Moves Location Days Before $48 Million Event](https://www.yahoo.com/entertainment/articles/jeff-bezos-lauren-sanchezs-tension-154226922.html)
+- Jun 23 - [Greek police arrest man on southern island of Crete on suspicion of espionage](https://www.yahoo.com/news/greek-police-arrest-man-southern-153246615.html)
+- Jun 23 - [Ian Bremmer on why markets are shrugging off strikes on Iran](https://finance.yahoo.com/video/ian-bremmer-why-markets-shrugging-152234428.html)
+- Jun 23 - [Thousands Sickened, 9 Killed from Virus Outbreak at 4 Popular Vacation Destinations](https://www.yahoo.com/news/thousands-sickened-9-killed-virus-152108238.html)
+- Jun 23 - [With its stock in sharp decline, Trump's media company will buy $400 million of its own shares](https://finance.yahoo.com/news/stock-sharp-decline-trumps-media-150211363.html)
 <!-- feed end -->
