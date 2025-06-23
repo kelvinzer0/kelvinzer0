@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 22 - [Masked men in U.S. Border Patrol vests take Santa Ana father after repeatedly hitting him](https://www.yahoo.com/news/masked-men-u-border-patrol-223153203.html)
-- Jun 22 - [Satellite images indicate severe damage to Fordow, but doubts remain](https://www.yahoo.com/news/satellite-images-indicate-severe-damage-222549092.html)
-- Jun 22 - [Oil rises and US stock futures, Asian shares slip after US strike on Iran nuclear sites](https://finance.yahoo.com/news/oil-rises-us-stock-futures-220904384.html)
-- Jun 22 - [Urgent alarm issued after ‘mother of all data breaches’ sees 16 billion passwords exposed — do this ASAP](https://www.yahoo.com/news/urgent-alarm-issued-mother-data-183500259.html)
-- Jun 22 - [Digging into the rumor Iranian state TV said, 'There is a surprise tonight that the world will remember for centuries'](https://www.yahoo.com/news/digging-rumor-iranian-state-tv-180000540.html)
+- Jun 23 - [US asks China to stop Iran from closing Strait of Hormuz](https://www.yahoo.com/news/us-asks-china-stop-iran-041853099.html)
+- Jun 23 - [ICE detains Marine Corps veteran's wife who was still breastfeeding their child](https://www.yahoo.com/news/ice-detains-marine-corps-veterans-040919653.html)
+- Jun 23 - [ICE detains Marine Corps veteran's wife and mother of breastfeeding infant](https://www.yahoo.com/news/ice-detains-marine-corps-veterans-040201395.html)
+- Jun 23 - [RI Lottery Lucky For Life, Numbers Midday winning numbers for June 22, 2025](https://www.yahoo.com/news/ri-lottery-lucky-life-numbers-033005849.html)
+- Jun 22 - [Markets React Sharply to US Airstrikes on Iran](https://finance.yahoo.com/video/markets-react-sharply-us-airstrikes-232616761.html)
 <!-- feed end -->
