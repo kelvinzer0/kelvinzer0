@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Jeff Bezos & Lauren Sanchez's 'Tension-Filled' Wedding Moves Location Days Before $48 Million Event](https://www.yahoo.com/entertainment/articles/jeff-bezos-lauren-sanchezs-tension-154226922.html)
-- Jun 23 - [Greek police arrest man on southern island of Crete on suspicion of espionage](https://www.yahoo.com/news/greek-police-arrest-man-southern-153246615.html)
-- Jun 23 - [Ian Bremmer on why markets are shrugging off strikes on Iran](https://finance.yahoo.com/video/ian-bremmer-why-markets-shrugging-152234428.html)
-- Jun 23 - [Thousands Sickened, 9 Killed from Virus Outbreak at 4 Popular Vacation Destinations](https://www.yahoo.com/news/thousands-sickened-9-killed-virus-152108238.html)
-- Jun 23 - [With its stock in sharp decline, Trump's media company will buy $400 million of its own shares](https://finance.yahoo.com/news/stock-sharp-decline-trumps-media-150211363.html)
+- Jun 23 - [A Woman Calls Dave Ramsey Worried Her Boyfriend Is A Crypto Scammer. His Tone Changes Completely When He Finds Out They've Never Met](https://finance.yahoo.com/news/woman-calls-dave-ramsey-worried-163150884.html)
+- Jun 23 - [Best Bang for Your Buck: These Used Cars Under $30K Pack Safety, Style, and Performance](https://autos.yahoo.com/best-bang-buck-used-cars-163025564.html)
+- Jun 23 - [He thought a decade-old misdemeanor was behind him. Then he took a vacation in Europe.](https://www.yahoo.com/news/thought-decade-old-misdemeanor-behind-092310573.html)
+- Jun 23 - [United Flight Declares Emergency 8 Hours Into Flight, Sends Out International Distress Code](https://www.yahoo.com/news/united-flight-declares-emergency-8-162117607.html)
+- Jun 23 - [Hims & Hers stock plummets after Novo Nordisk ends Wegovy direct sales deal](https://finance.yahoo.com/news/hims--hers-stock-plummets-after-novo-nordisk-ends-wegovy-direct-sales-deal-153950615.html)
 <!-- feed end -->
