@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [US investor strikes $1 billion merger to create bitcoin treasury company](https://finance.yahoo.com/news/us-investor-strikes-1-billion-121945545.html)
-- Jun 23 - [Thai authorities seize more than 2 tons of crystal methamphetamine worth over $90.8 million](https://www.yahoo.com/news/thai-authorities-seize-more-2-120840679.html)
-- Jun 23 - [IAEA: Significant Damage Expected at Iran's Fordow Site](https://finance.yahoo.com/video/iaea-significant-damage-expected-irans-115825269.html)
-- Jun 23 - [Surging gold prices sees Ghana launch drones to detect wildcat miners](https://finance.yahoo.com/video/surging-gold-prices-sees-ghana-113807177.html)
-- Jun 23 - [Tornado kills three in upstate NY, including 6-year-old twin sisters](https://www.yahoo.com/news/tornado-kills-three-upstate-ny-110942755.html)
+- Jun 23 - [Shocking video appears to show father of three US Marines being beaten by masked agents in parking lot](https://www.yahoo.com/news/shocking-video-appears-show-father-121324902.html)
+- Jun 23 - [Trump's approval rating on immigration leads in new poll. What is his approval rating?](https://www.yahoo.com/news/trumps-approval-rating-immigration-leads-114950934.html)
+- Jun 23 - [I was diagnosed with stage 4 colon cancer at 31 despite being fit and healthy. Doctors brushed off my concerns as pregnancy symptoms.](https://www.yahoo.com/news/diagnosed-stage-4-colon-cancer-095702282.html)
+- Jun 23 - [Republican lawmaker with ectopic pregnancy nearly died amid new Florida abortion laws – but blames the left](https://www.yahoo.com/news/republican-lawmaker-ectopic-pregnancy-nearly-111050752.html)
+- Jun 23 - [Scientists discover surprising cause for rapid increase in bedbug population: 'The bugs spread with them'](https://www.yahoo.com/news/scientists-discover-surprising-cause-rapid-101504285.html)
 <!-- feed end -->
