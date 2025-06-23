@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [AP Top Stories June 23](https://www.yahoo.com/news/ap-top-stories-june-23-092250998.html)
-- Jun 23 - [Despite symptoms, menopausal women embrace youthful mindset](https://www.yahoo.com/lifestyle/videos/despite-symptoms-menopausal-women-embrace-085810100.html)
-- Jun 23 - [Russia's former president says countries are lining up to give Iran their nukes. Analysts are calling his bluff.](https://www.yahoo.com/news/russias-former-president-says-countries-084041930.html)
-- Jun 23 - [Iran's supreme leader asks Putin to do more after US strikes](https://www.yahoo.com/news/irans-supreme-leader-asks-putin-081956482.html)
-- Jun 23 - [ICE detains Marine Corps veteran's wife who was still breastfeeding their baby](https://www.yahoo.com/news/ice-detains-marine-corps-veterans-040919653.html)
+- Jun 23 - [US investor strikes $1 billion merger to create bitcoin treasury company](https://finance.yahoo.com/news/us-investor-strikes-1-billion-121945545.html)
+- Jun 23 - [Thai authorities seize more than 2 tons of crystal methamphetamine worth over $90.8 million](https://www.yahoo.com/news/thai-authorities-seize-more-2-120840679.html)
+- Jun 23 - [IAEA: Significant Damage Expected at Iran's Fordow Site](https://finance.yahoo.com/video/iaea-significant-damage-expected-irans-115825269.html)
+- Jun 23 - [Surging gold prices sees Ghana launch drones to detect wildcat miners](https://finance.yahoo.com/video/surging-gold-prices-sees-ghana-113807177.html)
+- Jun 23 - [Tornado kills three in upstate NY, including 6-year-old twin sisters](https://www.yahoo.com/news/tornado-kills-three-upstate-ny-110942755.html)
 <!-- feed end -->
