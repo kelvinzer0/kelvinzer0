@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [A Woman Calls Dave Ramsey Worried Her Boyfriend Is A Crypto Scammer. His Tone Changes Completely When He Finds Out They've Never Met](https://finance.yahoo.com/news/woman-calls-dave-ramsey-worried-163150884.html)
-- Jun 23 - [Best Bang for Your Buck: These Used Cars Under $30K Pack Safety, Style, and Performance](https://autos.yahoo.com/best-bang-buck-used-cars-163025564.html)
-- Jun 23 - [He thought a decade-old misdemeanor was behind him. Then he took a vacation in Europe.](https://www.yahoo.com/news/thought-decade-old-misdemeanor-behind-092310573.html)
-- Jun 23 - [United Flight Declares Emergency 8 Hours Into Flight, Sends Out International Distress Code](https://www.yahoo.com/news/united-flight-declares-emergency-8-162117607.html)
-- Jun 23 - [Hims & Hers stock plummets after Novo Nordisk ends Wegovy direct sales deal](https://finance.yahoo.com/news/hims--hers-stock-plummets-after-novo-nordisk-ends-wegovy-direct-sales-deal-153950615.html)
+- Jun 23 - [Aflac says cyberattack may have exposed customer data: What we know so far](https://tech.yahoo.com/cybersecurity/articles/aflac-says-cyberattack-may-exposed-174822162.html)
+- Jun 23 - ['Ring of fire' thunderstorms to ride rim massive heat dome this week](https://www.yahoo.com/news/ring-fire-thunderstorms-ride-rim-174456207.html)
+- Jun 23 - [Ukrainian forces attack oil depot in Russia's Rostov region](https://www.yahoo.com/news/ukrainian-forces-attack-oil-depot-174116744.html)
+- Jun 23 - [Oxford Valley Mall shooter still unidentified and on the loose, police say](https://www.yahoo.com/news/oxford-valley-mall-shooter-still-172849136.html)
+- Jun 23 - [Jailed Osceola County sheriff’s wife arrested](https://www.yahoo.com/news/jailed-osceola-county-sheriff-wife-163514885.html)
 <!-- feed end -->
