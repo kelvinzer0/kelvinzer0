@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 23 - [Tesla still climbing, new Stellantis CEO: Trending Tickers](https://finance.yahoo.com/video/tesla-still-climbing-stellantis-ceo-200556746.html)
+- Jun 23 - [Bezos hosts yacht foam party ahead of controversial Venice wedding](https://www.yahoo.com/news/protesters-unfurl-huge-banner-venice-164845976.html)
 - Jun 23 - ["He Has Played Every Single One Of You": People Have A LOT To Say About Marjorie Taylor Greene Calling Out The Iran Bombing](https://www.yahoo.com/news/played-every-single-one-people-192914146.html)
-- Jun 23 - ['King Of The Hill' Voice Actor Shot And Killed, Allegedly During Argument With Neighbor](https://www.yahoo.com/entertainment/videos/king-hill-voice-actor-shot-190000244.html)
-- Jun 23 - [Search continues for 1 person still missing after 7 killed when boat capsized on Lake Tahoe](https://www.yahoo.com/news/search-continues-2-people-still-185405542.html)
-- Jun 23 - [OpenAI scrubs mention of Jony Ive partnership after judge's ruling over trademark dispute](https://www.yahoo.com/news/openai-scrubs-mention-jony-ive-185317129.html)
-- Jun 23 - [Girl, 3, abused online after dog attack](https://www.yahoo.com/news/girl-3-abused-online-dog-183256174.html)
+- Jun 23 - [Jury orders man to pay $500K for assaulting police officer who killed himself after Capitol riot](https://www.yahoo.com/news/jury-orders-man-pay-500k-192211773.html)
+- Jun 23 - [California mass shooting leaves 6 people injured, no arrests made](https://www.yahoo.com/news/california-mass-shooting-leaves-6-190745749.html)
 <!-- feed end -->
