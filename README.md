@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Media Matters sues to block FTC probe over Musk's X boycott claims](https://finance.yahoo.com/news/media-matters-sues-block-ftc-220208733.html)
-- Jun 23 - [Parents plead guilty after boy fatally struck by car in Gastonia](https://www.yahoo.com/news/parents-plead-guilty-boy-fatally-144508543.html)
-- Jun 23 - [Bezos ‘forced to move Venice wedding party’](https://www.yahoo.com/news/protesters-unfurl-huge-banner-venice-164845976.html)
-- Jun 23 - [145 People Jabbed With Needles at French Music Festival](https://www.yahoo.com/entertainment/videos/145-people-jabbed-needles-french-211213444.html)
+- Jun 23 - ['With heavy hearts': Jacksonville's last Burrito Gallery abruptly closes](https://www.yahoo.com/news/heavy-hearts-jacksonvilles-last-burrito-223322849.html)
+- Jun 23 - [Turkey sandwiches and stealth: Preparing for B-2 bomber missions](https://www.yahoo.com/news/turkey-sandwiches-stealth-preparing-b-223004237.html)
+- Jun 23 - [Pittsburgh shooting: At least 5 injured by gunfire, several with other injuries](https://www.yahoo.com/news/pittsburgh-shooting-least-5-injured-222716087.html)
 - Jun 23 - [Supreme Court allows Trump to restart swift deportation of migrants away from their home countries](https://www.yahoo.com/news/supreme-court-allows-trump-restart-204509908.html)
+- Jun 23 - [Jury orders man to pay $500K for assaulting police officer who killed himself after Capitol riot](https://www.yahoo.com/news/jury-orders-man-pay-500k-192211773.html)
 <!-- feed end -->
