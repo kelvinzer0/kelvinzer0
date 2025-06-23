@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Aflac says cyberattack may have exposed customer data: What we know so far](https://tech.yahoo.com/cybersecurity/articles/aflac-says-cyberattack-may-exposed-174822162.html)
-- Jun 23 - ['Ring of fire' thunderstorms to ride rim massive heat dome this week](https://www.yahoo.com/news/ring-fire-thunderstorms-ride-rim-174456207.html)
-- Jun 23 - [Ukrainian forces attack oil depot in Russia's Rostov region](https://www.yahoo.com/news/ukrainian-forces-attack-oil-depot-174116744.html)
-- Jun 23 - [Oxford Valley Mall shooter still unidentified and on the loose, police say](https://www.yahoo.com/news/oxford-valley-mall-shooter-still-172849136.html)
-- Jun 23 - [Jailed Osceola County sheriff’s wife arrested](https://www.yahoo.com/news/jailed-osceola-county-sheriff-wife-163514885.html)
+- Jun 23 - [How money reveals your deepest fears and values](https://finance.yahoo.com/video/money-reveals-deepest-fears-values-190049701.html)
+- Jun 23 - [How to stay cool and prevent heat-related illness during this week's heat wave](https://www.yahoo.com/news/how-to-stay-cool-and-prevent-heat-related-illness-during-this-weeks-heat-wave-185742871.html)
+- Jun 23 - [Leak reveals Grok might soon edit your spreadsheets](https://finance.yahoo.com/news/leak-reveals-grok-might-soon-181657484.html)
+- Jun 23 - [No U.S. casualties reported in Iranian strike on base in Qatar](https://www.yahoo.com/news/no-u-casualties-reported-iranian-181015418.html)
+- Jun 23 - [Iran's 'crown prince' calls for supreme leader to 'face justice'](https://www.yahoo.com/news/irans-crown-prince-calls-supreme-171656628.html)
 <!-- feed end -->
