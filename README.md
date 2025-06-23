@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [President Lee picks South Korea’s first civilian defense chief in 64 years](https://www.yahoo.com/news/president-lee-picks-south-korea-063906465.html)
-- Jun 23 - [Pakistan condemns Trump for bombing Iran a day after recommending him for a Nobel Peace Prize](https://www.yahoo.com/news/pakistan-condemns-trump-bombing-iran-044455394.html)
+- Jun 23 - [Amazon predicts thriving future for high street retail hand in hand with e-commerce](https://finance.yahoo.com/video/not-killer-amazon-sees-future-044759931.html)
 - Jun 23 - [ICE detains Marine Corps veteran's wife who was still breastfeeding their baby](https://www.yahoo.com/news/ice-detains-marine-corps-veterans-040919653.html)
 - Jun 23 - [Clerk who denied same-sex marriage licenses in 2015 is still fighting Supreme Court's ruling](https://www.yahoo.com/news/clerk-denied-same-sex-marriage-040352248.html)
-- Jun 23 - [Indian activists seek to save child brides](https://www.yahoo.com/news/indian-activists-seek-save-child-022539193.html)
+- Jun 23 - [Wolfspeed announces restructuring agreement](https://www.yahoo.com/news/wolfspeed-announces-restructuring-agreement-021730426.html)
+- Jun 23 - [Trump Humiliates Hegseth, Rubio and Vance With Iran ‘Regime’ Post](https://www.yahoo.com/news/trump-humiliates-hegseth-rubio-vance-001823818.html)
 <!-- feed end -->
