@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Shocking video appears to show father of three US Marines being beaten by masked agents in parking lot](https://www.yahoo.com/news/shocking-video-appears-show-father-121324902.html)
+- Jun 23 - [3 years after abortion rights were overturned, contraception access is at risk](https://www.yahoo.com/news/3-years-abortion-rights-were-123923730.html)
+- Jun 23 - [Georgia roofer is out $12,000 after State Farm approved homeowner's claim — then refused to pay out in full](https://finance.yahoo.com/news/georgia-roofer-12-000-state-120000790.html)
 - Jun 23 - [Trump's approval rating on immigration leads in new poll. What is his approval rating?](https://www.yahoo.com/news/trumps-approval-rating-immigration-leads-114950934.html)
 - Jun 23 - [I was diagnosed with stage 4 colon cancer at 31 despite being fit and healthy. Doctors brushed off my concerns as pregnancy symptoms.](https://www.yahoo.com/news/diagnosed-stage-4-colon-cancer-095702282.html)
-- Jun 23 - [Republican lawmaker with ectopic pregnancy nearly died amid new Florida abortion laws – but blames the left](https://www.yahoo.com/news/republican-lawmaker-ectopic-pregnancy-nearly-111050752.html)
-- Jun 23 - [Scientists discover surprising cause for rapid increase in bedbug population: 'The bugs spread with them'](https://www.yahoo.com/news/scientists-discover-surprising-cause-rapid-101504285.html)
+- Jun 23 - [First celestial images from 10-year project photographing the universe released](https://www.yahoo.com/news/first-celestial-images-10-project-112739308.html)
 <!-- feed end -->
