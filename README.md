@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [3 years after abortion rights were overturned, contraception access is at risk](https://www.yahoo.com/news/3-years-abortion-rights-were-123923730.html)
-- Jun 23 - [Georgia roofer is out $12,000 after State Farm approved homeowner's claim — then refused to pay out in full](https://finance.yahoo.com/news/georgia-roofer-12-000-state-120000790.html)
-- Jun 23 - [Trump's approval rating on immigration leads in new poll. What is his approval rating?](https://www.yahoo.com/news/trumps-approval-rating-immigration-leads-114950934.html)
-- Jun 23 - [I was diagnosed with stage 4 colon cancer at 31 despite being fit and healthy. Doctors brushed off my concerns as pregnancy symptoms.](https://www.yahoo.com/news/diagnosed-stage-4-colon-cancer-095702282.html)
-- Jun 23 - [First celestial images from 10-year project photographing the universe released](https://www.yahoo.com/news/first-celestial-images-10-project-112739308.html)
+- Jun 23 - [3 men found dead after jumping into water near California waterfall](https://www.yahoo.com/news/3-men-found-dead-jumping-143132804.html)
+- Jun 23 - [Man who filmed rape of woman has sentence increased](https://www.yahoo.com/news/man-filmed-rape-woman-sentence-140940201.html)
+- Jun 23 - [Main suspect in Madeleine McCann disappearance could be free within months](https://www.yahoo.com/news/main-suspect-madeleine-mccann-disappearance-135641489.html)
+- Jun 23 - [US-Iran, Powell to testify, Tesla's robotaxi: 3 Things](https://finance.yahoo.com/video/us-iran-powell-testify-teslas-130928171.html)
+- Jun 23 - [Suspect in disappearance of Madeleine McCann could be freed from prison early after donor pays fine](https://www.yahoo.com/news/suspect-disappearance-madeleine-mccann-could-125711561.html)
 <!-- feed end -->
