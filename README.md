@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - [Tesla still climbing, new Stellantis CEO: Trending Tickers](https://finance.yahoo.com/video/tesla-still-climbing-stellantis-ceo-200556746.html)
-- Jun 23 - [Bezos hosts yacht foam party ahead of controversial Venice wedding](https://www.yahoo.com/news/protesters-unfurl-huge-banner-venice-164845976.html)
-- Jun 23 - ["He Has Played Every Single One Of You": People Have A LOT To Say About Marjorie Taylor Greene Calling Out The Iran Bombing](https://www.yahoo.com/news/played-every-single-one-people-192914146.html)
-- Jun 23 - [Jury orders man to pay $500K for assaulting police officer who killed himself after Capitol riot](https://www.yahoo.com/news/jury-orders-man-pay-500k-192211773.html)
-- Jun 23 - [California mass shooting leaves 6 people injured, no arrests made](https://www.yahoo.com/news/california-mass-shooting-leaves-6-190745749.html)
+- Jun 23 - [Media Matters sues to block FTC probe over Musk's X boycott claims](https://finance.yahoo.com/news/media-matters-sues-block-ftc-220208733.html)
+- Jun 23 - [Parents plead guilty after boy fatally struck by car in Gastonia](https://www.yahoo.com/news/parents-plead-guilty-boy-fatally-144508543.html)
+- Jun 23 - [Bezos ‘forced to move Venice wedding party’](https://www.yahoo.com/news/protesters-unfurl-huge-banner-venice-164845976.html)
+- Jun 23 - [145 People Jabbed With Needles at French Music Festival](https://www.yahoo.com/entertainment/videos/145-people-jabbed-needles-french-211213444.html)
+- Jun 23 - [Supreme Court allows Trump to restart swift deportation of migrants away from their home countries](https://www.yahoo.com/news/supreme-court-allows-trump-restart-204509908.html)
 <!-- feed end -->
