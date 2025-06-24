@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Georgia jails top opposition figures as authorities ramp up crackdown](https://www.yahoo.com/news/georgia-jails-top-opposition-figures-144454969.html)
-- Jun 24 - [Bears escape enclosure, eat a week's worth of honey, then fall asleep](https://www.yahoo.com/news/bears-escape-enclosure-eat-weeks-143842558.html)
-- Jun 24 - [US current account surges to record high in first quarter](https://finance.yahoo.com/news/us-current-account-surges-record-132251717.html)
-- Jun 24 - [Powell reiterates there's no rush to cut rates](https://finance.yahoo.com/video/powell-reiterates-theres-no-rush-131742220.html)
+- Jun 24 - [Sheriff’s office rescues baby pig that was nearly hit on Interstate 70](https://www.yahoo.com/news/sheriff-office-rescues-baby-pig-151439417.html)
+- Jun 24 - [Verizon launches what it calls its "most significant customer experience transformation"](https://www.yahoo.com/news/verizon-launches-calls-most-significant-141250517.html)
+- Jun 24 - [Elon Musk’s lawyers claim he doesn’t use a computer — despite the billionaire’s own X posts saying the opposite](https://www.yahoo.com/news/elon-musk-lawyers-claim-doesn-130000418.html)
 - Jun 24 - [India aviation regulator says multiple defects reappearing on aircraft](https://finance.yahoo.com/news/india-aviation-regulator-says-multiple-125026560.html)
+- Jun 24 - [I Had An Itch In A Very Private Spot. Things Turned Tragic After I Asked My Doctor A Simple 4-Word Question.](https://www.yahoo.com/news/had-itch-very-private-spot-123341287.html)
 <!-- feed end -->
