@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Sheriff’s office rescues baby pig that was nearly hit on Interstate 70](https://www.yahoo.com/news/sheriff-office-rescues-baby-pig-151439417.html)
+- Jun 24 - [More than a dozen killed in southern Gaza after Israel opens fire near aid distribution point, officials and witnesses say](https://www.yahoo.com/news/more-dozen-killed-southern-gaza-171521440.html)
+- Jun 24 - ['They slit throats': Body cam footage from alleged Jon Jones car crash appears to show fighter threatening officers](https://sports.yahoo.com/mma/article/jon-jones-body-cam-footage-car-crash-appears-to-show-fighter-threatening-officers-they-slit-throats-155446936.html)
+- Jun 24 - [Tropical Storm Andrea forms, marking first named storm of Atlantic hurricane season](https://www.yahoo.com/news/tropical-storm-andrea-forms-marking-141258085.html)
 - Jun 24 - [Verizon launches what it calls its "most significant customer experience transformation"](https://www.yahoo.com/news/verizon-launches-calls-most-significant-141250517.html)
 - Jun 24 - [Elon Musk’s lawyers claim he doesn’t use a computer — despite the billionaire’s own X posts saying the opposite](https://www.yahoo.com/news/elon-musk-lawyers-claim-doesn-130000418.html)
-- Jun 24 - [India aviation regulator says multiple defects reappearing on aircraft](https://finance.yahoo.com/news/india-aviation-regulator-says-multiple-125026560.html)
-- Jun 24 - [I Had An Itch In A Very Private Spot. Things Turned Tragic After I Asked My Doctor A Simple 4-Word Question.](https://www.yahoo.com/news/had-itch-very-private-spot-123341287.html)
 <!-- feed end -->
