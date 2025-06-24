@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 23 - ['With heavy hearts': Jacksonville's last Burrito Gallery abruptly closes](https://www.yahoo.com/news/heavy-hearts-jacksonvilles-last-burrito-223322849.html)
-- Jun 23 - [Turkey sandwiches and stealth: Preparing for B-2 bomber missions](https://www.yahoo.com/news/turkey-sandwiches-stealth-preparing-b-223004237.html)
-- Jun 23 - [Pittsburgh shooting: At least 5 injured by gunfire, several with other injuries](https://www.yahoo.com/news/pittsburgh-shooting-least-5-injured-222716087.html)
-- Jun 23 - [Supreme Court allows Trump to restart swift deportation of migrants away from their home countries](https://www.yahoo.com/news/supreme-court-allows-trump-restart-204509908.html)
-- Jun 23 - [Jury orders man to pay $500K for assaulting police officer who killed himself after Capitol riot](https://www.yahoo.com/news/jury-orders-man-pay-500k-192211773.html)
+- Jun 24 - [Judge halts another Trump administration effort to block foreign students from attending Harvard](https://www.yahoo.com/news/judge-halts-another-trump-administration-012642848.html)
+- Jun 24 - [16 people sent to ER during New Jersey graduations as a potent heat dome builds over the US](https://www.yahoo.com/news/potent-heat-dome-building-over-134338865.html)
+- Jun 24 - [Federal Murder Case Connected to Karen Read Slated to Heat Up Next Week](https://www.yahoo.com/news/federal-murder-case-connected-karen-001243694.html)
+- Jun 23 - [Exclusive-Local Chinese governments promote 'zero mileage' used car exports, inflating sales, growth figures](https://finance.yahoo.com/news/exclusive-local-chinese-governments-promote-230300996.html)
+- Jun 23 - [Sara Burack, Reality TV Realtor, Dead at 40 After Hit and Run: Alleged Killer Speaks Out in Court](https://www.yahoo.com/entertainment/videos/sara-burack-reality-tv-realtor-223101449.html)
 <!-- feed end -->
