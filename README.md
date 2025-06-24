@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Sean 'Diddy' Combs trial: The prosecution and defense rest; Combs confirms decision not to testify](https://www.yahoo.com/news/sean-diddy-combs-trial-the-prosecution-and-defense-rest-combs-confirms-decision-not-to-testify-183306526.html)
+- Jun 24 - [Cargo ship carrying new vehicles to Mexico sinks in the North Pacific weeks after catching fire](https://www.yahoo.com/news/cargo-ship-carrying-vehicles-mexico-201421664.html)
 - Jun 24 - [Skydiver dies after hitting another jumper’s parachute while trying to land](https://www.yahoo.com/news/skydiver-dies-hitting-another-jumper-014927201.html)
-- Jun 24 - [Hunt for Travis Decker looks at whether he left Washington mountains — or died evading police](https://www.yahoo.com/news/hunt-travis-decker-looks-whether-193717336.html)
-- Jun 24 - [Diddy Speaks Out in Court: He Will Not Testify, Thanks Judge for ‘Doing an Excellent Job’](https://www.yahoo.com/entertainment/articles/diddy-speaks-court-not-testify-191241925.html)
-- Jun 24 - [Helicopter rolls on its side during landing attempt](https://www.yahoo.com/news/helicopter-rolls-side-during-landing-162901223.html)
+- Jun 24 - [My job is offering me a payout. Should I take a $61,000 lump sum or $355 a month for life?](https://finance.yahoo.com/news/job-offering-payout-61-000-101600739.html)
+- Jun 24 - [The US Treasury shocked Americans with a $258B surplus — its 2nd biggest monthly surplus in history](https://finance.yahoo.com/news/us-treasury-shocked-americans-258b-190500370.html)
+- Jun 24 - [Nearly 150 people jabbed with syringes at festivals across France](https://www.yahoo.com/news/nearly-150-people-jabbed-syringes-183243200.html)
 <!-- feed end -->
