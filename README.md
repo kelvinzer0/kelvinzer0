@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 24 - [The Impact of Airspace Closures on Flights, Aviation](https://finance.yahoo.com/video/impact-airspace-closures-flights-aviation-055619155.html)
+- Jun 24 - [NATO Summit: What to Expect, Defense Spending Goals](https://finance.yahoo.com/video/nato-summit-expect-defense-spending-055249181.html)
 - Jun 24 - [Florida set to execute man convicted of raping and killing a woman outside of a bar](https://www.yahoo.com/news/florida-set-execute-man-convicted-040650199.html)
-- Jun 23 - [Plans to assassinate Zelensky in Kyiv, airport in Poland disclosed](https://www.yahoo.com/news/plans-assassinate-zelensky-kyiv-airport-231230982.html)
-- Jun 23 - [Exclusive-Local Chinese governments promote 'zero-mileage' used car exports, inflating sales, growth figures](https://finance.yahoo.com/news/exclusive-local-chinese-governments-promote-230300996.html)
-- Jun 23 - [Turkey sandwiches and stealth: Preparing for B-2 bomber missions](https://www.yahoo.com/news/turkey-sandwiches-stealth-preparing-b-223004237.html)
-- Jun 23 - [Tesla sued over Model S crash that killed three in New Jersey](https://finance.yahoo.com/news/tesla-sued-over-jersey-crash-215259518.html)
+- Jun 24 - [Man dies in custody after locking himself in McDonald’s bathroom in Riverside](https://www.yahoo.com/news/man-dies-custody-locking-himself-034644973.html)
+- Jun 24 - [Tucker Carlson’s Two-Word Response After Trump’s ‘Ceasefire’ Deal](https://www.yahoo.com/news/tucker-carlson-two-word-response-015609999.html)
 <!-- feed end -->
