@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Heat wave invades East Coast: When relief is coming](https://www.yahoo.com/news/dangerous-heat-wave-invades-east-132951259.html)
+- Jun 24 - [Georgia jails top opposition figures as authorities ramp up crackdown](https://www.yahoo.com/news/georgia-jails-top-opposition-figures-144454969.html)
+- Jun 24 - [Bears escape enclosure, eat a week's worth of honey, then fall asleep](https://www.yahoo.com/news/bears-escape-enclosure-eat-weeks-143842558.html)
+- Jun 24 - [US current account surges to record high in first quarter](https://finance.yahoo.com/news/us-current-account-surges-record-132251717.html)
 - Jun 24 - [Powell reiterates there's no rush to cut rates](https://finance.yahoo.com/video/powell-reiterates-theres-no-rush-131742220.html)
 - Jun 24 - [India aviation regulator says multiple defects reappearing on aircraft](https://finance.yahoo.com/news/india-aviation-regulator-says-multiple-125026560.html)
-- Jun 24 - [Tesla stock valuation looks 'insane,' strategist warns](https://finance.yahoo.com/news/tesla-stock-valuation-looks-insane-strategist-warns-124835299.html)
-- Jun 24 - [Gwyneth Paltrow and Serena Williams are both fans of neuromodulation – but what is it and how does it work?](https://www.yahoo.com/news/neurostimulation-cure-depression-possible-biohack-124649775.html)
 <!-- feed end -->
