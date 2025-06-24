@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Bezos ‘forced to move Venice wedding party’](https://www.yahoo.com/news/protesters-unfurl-huge-banner-venice-164845976.html)
-- Jun 24 - [NATO Summit: What to Expect, Defense Spending Goals](https://finance.yahoo.com/video/nato-summit-expect-defense-spending-055249181.html)
-- Jun 24 - [Florida set to execute man convicted of raping and killing a woman outside of a bar](https://www.yahoo.com/news/florida-set-execute-man-convicted-040650199.html)
-- Jun 24 - [Tucker Carlson’s Two-Word Response After Trump’s ‘Ceasefire’ Deal](https://www.yahoo.com/news/tucker-carlson-two-word-response-015609999.html)
-- Jun 23 - [Exclusive-Local Chinese governments promote 'zero-mileage' used car exports, inflating sales, growth figures](https://finance.yahoo.com/news/exclusive-local-chinese-governments-promote-230300996.html)
+- Jun 24 - [UK plans to increase control over Google in search](https://finance.yahoo.com/video/uk-plans-increase-control-over-100650386.html)
+- Jun 24 - [Editorial: Voters, remember Uthmeier’s contemptible act](https://www.yahoo.com/news/editorial-voters-remember-uthmeier-contemptible-093000354.html)
+- Jun 24 - [Hypocritical much? NC Democrat went too far with Trump post, but GOP can't talk | Opinion](https://www.yahoo.com/news/hypocritical-much-nc-democrat-went-090946652.html)
+- Jun 24 - [Karoline Leavitt Gets Instant Fact-Check After Outrageous New Claim About Trump](https://www.yahoo.com/news/karoline-leavitt-gets-instant-fact-090610149.html)
+- Jun 24 - [Palm Beach Police: Man followed women, then attacked officer at Midtown Beach](https://www.yahoo.com/news/palm-beach-police-man-followed-090316899.html)
 <!-- feed end -->
