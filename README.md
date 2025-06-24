@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [More than a dozen killed in southern Gaza after Israel opens fire near aid distribution point, officials and witnesses say](https://www.yahoo.com/news/more-dozen-killed-southern-gaza-171521440.html)
+- Jun 24 - [Anthropic wins ruling on AI training in copyright lawsuit but must face trial on pirated books](https://www.yahoo.com/news/judge-rules-ai-company-anthropic-173143944.html)
+- Jun 24 - [Helicopter rolls on its side during landing attempt](https://www.yahoo.com/news/helicopter-rolls-side-during-landing-162901223.html)
+- Jun 24 - ['Dear Donald.' Trump posts fawning private text from NATO chief on social media](https://www.yahoo.com/news/dear-donald-trump-posts-fawning-162840227.html)
 - Jun 24 - ['They slit throats': Body cam footage from alleged Jon Jones car crash appears to show fighter threatening officers](https://sports.yahoo.com/mma/article/jon-jones-body-cam-footage-car-crash-appears-to-show-fighter-threatening-officers-they-slit-throats-155446936.html)
-- Jun 24 - [Tropical Storm Andrea forms, marking first named storm of Atlantic hurricane season](https://www.yahoo.com/news/tropical-storm-andrea-forms-marking-141258085.html)
-- Jun 24 - [Verizon launches what it calls its "most significant customer experience transformation"](https://www.yahoo.com/news/verizon-launches-calls-most-significant-141250517.html)
-- Jun 24 - [Elon Musk’s lawyers claim he doesn’t use a computer — despite the billionaire’s own X posts saying the opposite](https://www.yahoo.com/news/elon-musk-lawyers-claim-doesn-130000418.html)
+- Jun 24 - [Education company in Wisconsin to lay off 30 employees, possibly more in near future](https://www.yahoo.com/news/education-company-wisconsin-lay-off-153327078.html)
 <!-- feed end -->
