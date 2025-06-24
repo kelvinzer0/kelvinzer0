@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Tesla faces robotaxi hurdles while Waymo keeps expanding](https://finance.yahoo.com/video/tesla-faces-robotaxi-hurdles-while-212800919.html)
+- Jun 24 - [Images Show Choppy Lake Tahoe Waves That Killed 8](https://www.yahoo.com/news/images-show-choppy-lake-tahoe-214239244.html)
+- Jun 24 - [Judge Asks Diddy How He Was Feeling. His Answer Made the Judge Laugh](https://www.yahoo.com/news/judge-asks-diddy-feeling-answer-210831645.html)
+- Jun 24 - [Musk's 'robotaxis' draw regulatory scrutiny after video shows one driving in an opposing lane](https://www.yahoo.com/news/musks-robotaxis-draw-regulatory-scrutiny-210030458.html)
+- Jun 24 - [In a First, America Dropped 30,000-Pound Bunker-Busters—But Iran’s Concrete May Be Unbreakable, Scientists Say](https://www.yahoo.com/news/first-america-dropped-30-000-205300766.html)
 - Jun 24 - [Cargo ship carrying new vehicles to Mexico sinks in the North Pacific weeks after catching fire](https://www.yahoo.com/news/cargo-ship-carrying-vehicles-mexico-201421664.html)
-- Jun 24 - [One Of Kim Jong-Un's Favorite Dishes Is Illegal In The US](https://www.yahoo.com/news/one-kim-jong-uns-favorite-180300955.html)
-- Jun 24 - [GOP plan to sell more than 3,200 square miles of federal lands is found to violate Senate rules](https://www.yahoo.com/news/gop-plan-sell-more-2-171528407.html)
-- Jun 24 - [Ivanka Trump and Jared Kushner Are Investing $1.4 Billion To Turn Abandoned Soviet Weapons Base in Albania Into Luxury Island Resort](https://www.yahoo.com/lifestyle/articles/ivanka-trump-jared-kushner-investing-164900790.html)
 <!-- feed end -->
