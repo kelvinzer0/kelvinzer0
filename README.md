@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 24 - [Adnoc's $19B Santos Bid Tests Australian Energy Path](https://finance.yahoo.com/video/adnocs-19b-santos-bid-tests-033621020.html)
-- Jun 24 - [Russian drone attacks kill three in northeast Ukraine](https://www.yahoo.com/news/russian-drone-attacks-kill-three-022604801.html)
-- Jun 24 - [House panel recommends Garcia to lead Dems on Oversight panel](https://www.yahoo.com/news/house-panel-recommends-garcia-lead-011349983.html)
-- Jun 24 - [Mexican man allegedly aided by Wisconsin judge agrees to guilty plea](https://www.yahoo.com/news/mexican-man-allegedly-aided-wisconsin-001634250.html)
+- Jun 24 - [The One Thing You Shouldn't Do When You Get a Pedicure, According to a Dermatologist](https://health.yahoo.com/articles/one-thing-shouldnt-pedicure-according-001500022.html)
 - Jun 23 - [Exclusive-Local Chinese governments promote 'zero mileage' used car exports, inflating sales, growth figures](https://finance.yahoo.com/news/exclusive-local-chinese-governments-promote-230300996.html)
+- Jun 23 - [Turkey sandwiches and stealth: Preparing for B-2 bomber missions](https://www.yahoo.com/news/turkey-sandwiches-stealth-preparing-b-223004237.html)
+- Jun 23 - [Tesla sued over Model S crash that killed three in New Jersey](https://finance.yahoo.com/news/tesla-sued-over-jersey-crash-215259518.html)
 <!-- feed end -->
