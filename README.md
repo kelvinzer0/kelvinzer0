@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Jimmy Fallon Says He Knows Why Trump Called Iran Strike ‘Operation Midnight Hammer’](https://www.yahoo.com/entertainment/articles/jimmy-fallon-says-knows-why-120635971.html)
-- Jun 24 - [Trio who kidnaped and battered teen jailed](https://www.yahoo.com/news/trio-kidnaped-battered-teen-jailed-113738583.html)
-- Jun 24 - [South Korea May Delay US Trade Deal Over Threats To Its China-Based Chipmakers](https://finance.yahoo.com/news/south-korea-may-delay-us-113126134.html)
-- Jun 24 - [2 Quantum Computing Stocks That Could Become Monsters](https://finance.yahoo.com/news/2-quantum-computing-stocks-could-103000861.html)
-- Jun 24 - [Multiple bodies found with hands, feet tied in Mediterranean Sea](https://www.yahoo.com/news/multiple-bodies-found-hands-feet-100829759.html)
+- Jun 24 - [Canada's annual inflation rate steady at 1.7% as rise in shelter costs slows](https://finance.yahoo.com/news/canadas-annual-inflation-rate-steady-at-17-as-rise-in-shelter-costs-slows-124421076.html)
+- Jun 24 - [India cenbank announces reverse repo to arrest fall in overnight rates](https://finance.yahoo.com/news/india-cenbank-announces-reverse-repo-125248224.html)
+- Jun 24 - [Army veteran killed in suspected road rage incident in Fort Bend County](https://www.yahoo.com/news/army-veteran-killed-suspected-road-113630813.html)
+- Jun 24 - [I’ve Been on Social Security for 2 Years — Here’s How My Finances Have Changed](https://finance.yahoo.com/news/ve-social-security-2-years-110111777.html)
+- Jun 24 - [Scientists issue stark warning after harmful creatures breed to form hybrid species: 'We have confirmed the presence of hybrid swarms'](https://www.yahoo.com/news/scientists-issue-stark-warning-harmful-104551212.html)
 <!-- feed end -->
