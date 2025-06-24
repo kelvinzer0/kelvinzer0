@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Trump claims a ‘forever’ peace in the land of forever wars — but is it all one big illusion?](https://www.yahoo.com/news/trump-claims-forever-peace-land-040553970.html)
-- Jun 24 - [Adnoc's $19B Santos Bid Tests Australian Energy Path](https://finance.yahoo.com/video/adnocs-19b-santos-bid-tests-033621020.html)
-- Jun 24 - [Mexican man allegedly aided by Wisconsin judge agrees to guilty plea](https://www.yahoo.com/news/mexican-man-allegedly-aided-wisconsin-001634250.html)
-- Jun 24 - [The One Thing You Shouldn't Do When You Get a Pedicure, According to a Dermatologist](https://health.yahoo.com/articles/one-thing-shouldnt-pedicure-according-001500022.html)
-- Jun 23 - [Exclusive-Local Chinese governments promote 'zero mileage' used car exports, inflating sales, growth figures](https://finance.yahoo.com/news/exclusive-local-chinese-governments-promote-230300996.html)
+- Jun 24 - [Florida set to execute man convicted of raping and killing a woman outside of a bar](https://www.yahoo.com/news/florida-set-execute-man-convicted-040650199.html)
+- Jun 23 - [Plans to assassinate Zelensky in Kyiv, airport in Poland disclosed](https://www.yahoo.com/news/plans-assassinate-zelensky-kyiv-airport-231230982.html)
+- Jun 23 - [Exclusive-Local Chinese governments promote 'zero-mileage' used car exports, inflating sales, growth figures](https://finance.yahoo.com/news/exclusive-local-chinese-governments-promote-230300996.html)
+- Jun 23 - [Turkey sandwiches and stealth: Preparing for B-2 bomber missions](https://www.yahoo.com/news/turkey-sandwiches-stealth-preparing-b-223004237.html)
+- Jun 23 - [Tesla sued over Model S crash that killed three in New Jersey](https://finance.yahoo.com/news/tesla-sued-over-jersey-crash-215259518.html)
 <!-- feed end -->
