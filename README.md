@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Standard Chartered CEO Bill Winters on Confronting Imposter Syndrome](https://finance.yahoo.com/video/standard-chartered-ceo-bill-winters-105812404.html)
-- Jun 24 - [Fed should wait on rate cuts with price hikes expected, Bostic says](https://finance.yahoo.com/news/exclusive-fed-wait-rate-cuts-100426986.html)
-- Jun 24 - [What's it like to fly a B-2 bomber for 2 days straight? Here's what record-holding pilots say.](https://www.yahoo.com/news/whats-fly-b-2-bomber-093004253.html)
-- Jun 24 - [Prediction: 3 Stocks That Will Be Worth More Than Palantir 3 Years From Now](https://finance.yahoo.com/news/prediction-3-stocks-worth-more-093000560.html)
-- Jun 24 - [Karoline Leavitt Gets Instant Fact-Check After Outrageous New Claim About Trump](https://www.yahoo.com/news/karoline-leavitt-gets-instant-fact-090610149.html)
+- Jun 24 - [Jimmy Fallon Says He Knows Why Trump Called Iran Strike ‘Operation Midnight Hammer’](https://www.yahoo.com/entertainment/articles/jimmy-fallon-says-knows-why-120635971.html)
+- Jun 24 - [Trio who kidnaped and battered teen jailed](https://www.yahoo.com/news/trio-kidnaped-battered-teen-jailed-113738583.html)
+- Jun 24 - [South Korea May Delay US Trade Deal Over Threats To Its China-Based Chipmakers](https://finance.yahoo.com/news/south-korea-may-delay-us-113126134.html)
+- Jun 24 - [2 Quantum Computing Stocks That Could Become Monsters](https://finance.yahoo.com/news/2-quantum-computing-stocks-could-103000861.html)
+- Jun 24 - [Multiple bodies found with hands, feet tied in Mediterranean Sea](https://www.yahoo.com/news/multiple-bodies-found-hands-feet-100829759.html)
 <!-- feed end -->
