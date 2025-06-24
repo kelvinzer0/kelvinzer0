@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Canada's annual inflation rate steady at 1.7% as rise in shelter costs slows](https://finance.yahoo.com/news/canadas-annual-inflation-rate-steady-at-17-as-rise-in-shelter-costs-slows-124421076.html)
-- Jun 24 - [India cenbank announces reverse repo to arrest fall in overnight rates](https://finance.yahoo.com/news/india-cenbank-announces-reverse-repo-125248224.html)
-- Jun 24 - [Army veteran killed in suspected road rage incident in Fort Bend County](https://www.yahoo.com/news/army-veteran-killed-suspected-road-113630813.html)
-- Jun 24 - [I’ve Been on Social Security for 2 Years — Here’s How My Finances Have Changed](https://finance.yahoo.com/news/ve-social-security-2-years-110111777.html)
-- Jun 24 - [Scientists issue stark warning after harmful creatures breed to form hybrid species: 'We have confirmed the presence of hybrid swarms'](https://www.yahoo.com/news/scientists-issue-stark-warning-harmful-104551212.html)
+- Jun 24 - [Heat wave invades East Coast: When relief is coming](https://www.yahoo.com/news/dangerous-heat-wave-invades-east-132951259.html)
+- Jun 24 - [Powell reiterates there's no rush to cut rates](https://finance.yahoo.com/video/powell-reiterates-theres-no-rush-131742220.html)
+- Jun 24 - [India aviation regulator says multiple defects reappearing on aircraft](https://finance.yahoo.com/news/india-aviation-regulator-says-multiple-125026560.html)
+- Jun 24 - [Tesla stock valuation looks 'insane,' strategist warns](https://finance.yahoo.com/news/tesla-stock-valuation-looks-insane-strategist-warns-124835299.html)
+- Jun 24 - [Gwyneth Paltrow and Serena Williams are both fans of neuromodulation – but what is it and how does it work?](https://www.yahoo.com/news/neurostimulation-cure-depression-possible-biohack-124649775.html)
 <!-- feed end -->
