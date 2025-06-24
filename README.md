@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [GOP plan to sell more than 3,200 square miles of federal lands is found to violate Senate rules](https://www.yahoo.com/news/gop-plan-sell-more-2-171528407.html)
+- Jun 24 - [Sean 'Diddy' Combs trial: The prosecution and defense rest; Combs confirms decision not to testify](https://www.yahoo.com/news/sean-diddy-combs-trial-the-prosecution-and-defense-rest-combs-confirms-decision-not-to-testify-183306526.html)
+- Jun 24 - [Skydiver dies after hitting another jumper’s parachute while trying to land](https://www.yahoo.com/news/skydiver-dies-hitting-another-jumper-014927201.html)
+- Jun 24 - [Hunt for Travis Decker looks at whether he left Washington mountains — or died evading police](https://www.yahoo.com/news/hunt-travis-decker-looks-whether-193717336.html)
+- Jun 24 - [Diddy Speaks Out in Court: He Will Not Testify, Thanks Judge for ‘Doing an Excellent Job’](https://www.yahoo.com/entertainment/articles/diddy-speaks-court-not-testify-191241925.html)
 - Jun 24 - [Helicopter rolls on its side during landing attempt](https://www.yahoo.com/news/helicopter-rolls-side-during-landing-162901223.html)
-- Jun 24 - ['Dear Donald.' Trump posts fawning private text from NATO chief on social media](https://www.yahoo.com/news/dear-donald-trump-posts-fawning-162840227.html)
-- Jun 24 - [GOP chair asks RFK Jr. to retract claim against Democrat in hearing](https://www.yahoo.com/news/gop-chair-asks-rfk-jr-160833246.html)
-- Jun 24 - ['They slit throats': Body cam footage from alleged Jon Jones car crash appears to show fighter threatening officers](https://sports.yahoo.com/mma/article/jon-jones-body-cam-footage-car-crash-appears-to-show-fighter-threatening-officers-they-slit-throats-155446936.html)
 <!-- feed end -->
