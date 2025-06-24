@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [UK plans to increase control over Google in search](https://finance.yahoo.com/video/uk-plans-increase-control-over-100650386.html)
-- Jun 24 - [Editorial: Voters, remember Uthmeier’s contemptible act](https://www.yahoo.com/news/editorial-voters-remember-uthmeier-contemptible-093000354.html)
-- Jun 24 - [Hypocritical much? NC Democrat went too far with Trump post, but GOP can't talk | Opinion](https://www.yahoo.com/news/hypocritical-much-nc-democrat-went-090946652.html)
+- Jun 24 - [Standard Chartered CEO Bill Winters on Confronting Imposter Syndrome](https://finance.yahoo.com/video/standard-chartered-ceo-bill-winters-105812404.html)
+- Jun 24 - [Fed should wait on rate cuts with price hikes expected, Bostic says](https://finance.yahoo.com/news/exclusive-fed-wait-rate-cuts-100426986.html)
+- Jun 24 - [What's it like to fly a B-2 bomber for 2 days straight? Here's what record-holding pilots say.](https://www.yahoo.com/news/whats-fly-b-2-bomber-093004253.html)
+- Jun 24 - [Prediction: 3 Stocks That Will Be Worth More Than Palantir 3 Years From Now](https://finance.yahoo.com/news/prediction-3-stocks-worth-more-093000560.html)
 - Jun 24 - [Karoline Leavitt Gets Instant Fact-Check After Outrageous New Claim About Trump](https://www.yahoo.com/news/karoline-leavitt-gets-instant-fact-090610149.html)
-- Jun 24 - [Palm Beach Police: Man followed women, then attacked officer at Midtown Beach](https://www.yahoo.com/news/palm-beach-police-man-followed-090316899.html)
 <!-- feed end -->
