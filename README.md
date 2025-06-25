@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Suspect confesses to crucifying pastor in Arizona home – and had others on hit list](https://www.yahoo.com/news/suspect-confesses-crucifying-pastor-arizona-215743305.html)
-- Jun 24 - [‘F*** you!' Trump 'whistleblower bomb' goes off detailing lawless DOJ plot: Melber report](https://www.yahoo.com/news/f-trump-whistleblower-bomb-goes-230150083.html)
-- Jun 24 - [Mom Convinced Daughter with Cancer to Reject Chemotherapy, Family Claims. She Died 7 Months Later](https://www.yahoo.com/news/mom-convinced-daughter-cancer-reject-212956019.html)
-- Jun 24 - [Judge Asks Diddy How He Was Feeling. His Answer Made the Judge Laugh](https://www.yahoo.com/news/judge-asks-diddy-feeling-answer-210831645.html)
-- Jun 24 - [Musk's 'robotaxis' draw regulatory scrutiny after video shows one driving in an opposing lane](https://www.yahoo.com/news/musks-robotaxis-draw-regulatory-scrutiny-210030820.html)
+- Jun 25 - [Lawsuits: Henry Co. officials covered up rape, abuse](https://www.yahoo.com/news/lawsuits-henry-co-officials-covered-033358688.html)
+- Jun 25 - [DoorDash Exec Josh Pickles and 7 More Die in Lake Tahoe Boat Tragedy](https://www.yahoo.com/news/doordash-exec-josh-pickles-7-000600984.html)
+- Jun 24 - [Nvidia shareholder meeting: What to watch for](https://finance.yahoo.com/video/nvidia-shareholder-meeting-watch-211117725.html)
+- Jun 24 - [This look inside the B-2 Bomber is so detailed it should be classified](https://www.yahoo.com/news/look-inside-b-2-bomber-195121258.html)
+- Jun 24 - [Trump Hit By Devastating Intel Leak of Iran Bombing ‘Flop’](https://www.yahoo.com/news/trump-hit-devastating-intel-leak-192810660.html)
 <!-- feed end -->
