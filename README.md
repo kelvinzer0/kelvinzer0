@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Fayette man pleads guilty to burning wife’s body, burying her in backyard](https://www.yahoo.com/news/fayette-man-pleads-guilty-burning-175122856.html)
-- Jun 25 - [Trump will look at giving Ukraine more Patriot missiles as he calls on Putin to end war](https://www.yahoo.com/news/trump-says-look-giving-ukraine-151038825.html)
-- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
-- Jun 25 - [War of words? Trump hints at changing name of Defense Department](https://www.yahoo.com/news/war-words-trump-hints-changing-155739122.html)
-- Jun 25 - [Sig Sauer’s P320 banned by Chicago Police Department and other law enforcement agencies](https://www.yahoo.com/news/sig-sauer-p320-banned-chicago-154300609.html)
+- Jun 25 - [Big banks are closer to getting one of biggest regulatory rollbacks since 2008](https://finance.yahoo.com/news/big-banks-are-closer-to-getting-one-of-biggest-regulatory-rollbacks-since-2008-174007357.html)
+- Jun 25 - [Rescuers retrieve body of Brazilian hiker who fell from Indonesian volcano](https://www.yahoo.com/news/rescuers-retrieve-body-brazilian-hiker-163914600.html)
+- Jun 25 - [Woman sentenced to 5 years in prison for role in election fraud](https://www.yahoo.com/news/woman-sentenced-5-years-prison-163848865.html)
+- Jun 25 - [Construction Workers Were Building a Solar Plant—and Uncovered a 5,000-Year-Old Fortress](https://www.yahoo.com/news/construction-workers-were-building-solar-162900258.html)
+- Jun 25 - [For first time, Webb telescope discovers an alien planet](https://www.yahoo.com/news/first-time-webb-telescope-discovers-151013150.html)
 <!-- feed end -->
