@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Big banks are closer to getting one of biggest regulatory rollbacks since 2008](https://finance.yahoo.com/news/big-banks-are-closer-to-getting-one-of-biggest-regulatory-rollbacks-since-2008-174007357.html)
-- Jun 25 - [Rescuers retrieve body of Brazilian hiker who fell from Indonesian volcano](https://www.yahoo.com/news/rescuers-retrieve-body-brazilian-hiker-163914600.html)
-- Jun 25 - [Woman sentenced to 5 years in prison for role in election fraud](https://www.yahoo.com/news/woman-sentenced-5-years-prison-163848865.html)
-- Jun 25 - [Construction Workers Were Building a Solar Plant—and Uncovered a 5,000-Year-Old Fortress](https://www.yahoo.com/news/construction-workers-were-building-solar-162900258.html)
-- Jun 25 - [For first time, Webb telescope discovers an alien planet](https://www.yahoo.com/news/first-time-webb-telescope-discovers-151013150.html)
+- Jun 25 - [Average Americans Keep $67 Cash on Hand — Do Experts Advise More or Less?](https://finance.yahoo.com/news/average-americans-keep-67-cash-190031846.html)
+- Jun 25 - [A man gained weight eating ultra-processed foods he thought were healthy. Now, he's 50 pounds lighter thanks to 3 habits.](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/man-gained-weight-eating-ultra-192535760.html)
+- Jun 25 - [Pregnant Alabama woman’s heartbreak as husband accused of being ‘ex-Iranian Army sniper’ by ICE](https://www.yahoo.com/news/pregnant-alabama-woman-heartbreak-husband-155735770.html)
+- Jun 25 - [Smoke billows from American Airlines flight after leaving Las Vegas airport](https://www.yahoo.com/news/smoke-billows-american-airlines-flight-172848370.html)
+- Jun 25 - [Once named opponents in the Supreme Court case that legalized same-sex marriage, now they’re friends](https://www.yahoo.com/news/once-named-opponents-supreme-court-170629059.html)
 <!-- feed end -->
