@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Alvin Bragg, Manhattan prosecutor who took on Trump, wins Democratic primary in bid for second term](https://www.yahoo.com/news/alvin-bragg-manhattan-prosecutor-took-011702400.html)
-- Jun 25 - [This Cheap Energy Stock is on Track for a Significant Increase in Cash Flows](https://finance.yahoo.com/news/cheap-energy-stock-track-significant-005128697.html)
+- Jun 25 - [Report slams Boeing over 737 MAX midair blowout](https://finance.yahoo.com/video/report-slams-boeing-over-737-061013379.html)
+- Jun 25 - [China, Taiwan clash over history, Beijing says can't 'invade' what is already Chinese territory](https://www.yahoo.com/news/china-taiwan-clash-over-history-043330675.html)
+- Jun 25 - [Mississippi set to execute state's longest-serving death row inmate](https://www.yahoo.com/news/mississippi-set-execute-states-longest-040156689.html)
+- Jun 25 - [They Float But Can They Sail? North Korea’s Russian Inspired Warships](https://finance.yahoo.com/video/float-sail-north-korea-russian-040000594.html)
 - Jun 25 - [DoorDash Exec Josh Pickles and 7 More Die in Lake Tahoe Boat Tragedy](https://www.yahoo.com/news/doordash-exec-josh-pickles-7-000600984.html)
-- Jun 24 - [Images Show Choppy Lake Tahoe Waves That Killed 8](https://www.yahoo.com/news/images-show-choppy-lake-tahoe-214239244.html)
-- Jun 24 - [Mom Convinced Daughter with Cancer to Reject Chemotherapy, Family Claims. She Died 7 Months Later](https://www.yahoo.com/news/mom-convinced-daughter-cancer-reject-212956019.html)
 <!-- feed end -->
