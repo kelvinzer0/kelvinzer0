@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [‘I-4 Eyesore’ could get its first tenant, 24 years after construction began](https://www.yahoo.com/news/4-eyesore-could-first-tenant-151833172.html)
+- Jun 25 - [Police clash with activists during NATO summit](https://www.yahoo.com/news/police-clash-activists-during-nato-170800214.html)
+- Jun 25 - [Trump will look at giving Ukraine more Patriot missiles as he calls on Putin to end war](https://www.yahoo.com/news/trump-says-look-giving-ukraine-151038825.html)
+- Jun 25 - [China is a real threat to US biotech innovation: EY life science expert](https://finance.yahoo.com/news/china-is-a-real-threat-to-us-biotech-innovation-ey-life-science-expert-161927901.html)
+- Jun 25 - [Ohio plans swift appeal as court declares private school voucher system unconstitutional](https://www.yahoo.com/news/ohio-plans-swift-appeal-court-160115749.html)
 - Jun 25 - [For first time, Webb telescope discovers an alien planet](https://www.yahoo.com/news/first-time-webb-telescope-discovers-151013150.html)
-- Jun 25 - [Deputy Pulls Driver Over for Speeding and Learns He's Going to a Funeral. His Sweet Response Goes Viral](https://www.yahoo.com/news/deputy-pulls-driver-over-speeding-142932994.html)
-- Jun 25 - [Wisconsin Supreme Court sides with Republican Legislature in fight with governor](https://www.yahoo.com/news/wisconsin-supreme-court-sides-republican-135028483.html)
-- Jun 25 - [Archaeologists Found a Mysterious Secret Chamber Beneath a 12th-Century Castle](https://www.yahoo.com/news/archaeologists-found-mysterious-secret-chamber-120000988.html)
 <!-- feed end -->
