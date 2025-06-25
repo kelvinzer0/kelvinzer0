@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Tesla robotaxis get mixed reactions in Austin](https://finance.yahoo.com/video/tesla-robotaxis-mixed-reactions-austin-081617258.html)
+- Jun 25 - [BYD slows production, delays expansion at China factories, sources say](https://finance.yahoo.com/video/byd-slows-production-delays-expansion-085552743.html)
 - Jun 25 - [Four astronauts launch to the space station as NASA grapples with strange twist in leak issue](https://www.yahoo.com/news/four-astronauts-launch-space-station-064552282.html)
-- Jun 25 - [Tesla rival BYD is slowing EV production and expansion in China, sources say](https://finance.yahoo.com/news/exclusive-byd-slows-production-delays-072014381.html)
-- Jun 25 - [Report slams Boeing over 737 MAX midair blowout](https://finance.yahoo.com/video/report-slams-boeing-over-737-061013379.html)
-- Jun 25 - [China, India shift to higher-grade coal, cut Indonesian imports](https://finance.yahoo.com/news/china-india-shift-higher-grade-060005183.html)
+- Jun 25 - [Mississippi set to execute state's longest-serving death row inmate](https://www.yahoo.com/news/mississippi-set-execute-states-longest-040156689.html)
+- Jun 25 - [Alvin Bragg, Manhattan prosecutor who took on Trump, wins Democratic primary in bid for second term](https://www.yahoo.com/news/alvin-bragg-manhattan-prosecutor-took-011702400.html)
+- Jun 25 - [DoorDash Exec Josh Pickles and 7 More Die in Lake Tahoe Boat Tragedy](https://www.yahoo.com/news/doordash-exec-josh-pickles-7-000600984.html)
 <!-- feed end -->
