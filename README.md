@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [British paedophile charged over mock Disneyland wedding to child](https://www.yahoo.com/news/british-paedophile-charged-over-mock-092110878.html)
-- Jun 25 - [Buckingham Palace Announces Surprise Change to Donald Trump’s State Visit Later This Year](https://www.yahoo.com/news/buckingham-palace-announces-surprise-change-124726895.html)
+- Jun 25 - [Trump down to '3 or 4' candidates to replace Powell as Fed chair](https://finance.yahoo.com/news/trump-down-to-3-or-4-candidates-to-replace-powell-as-fed-chair-150641239.html)
+- Jun 25 - [Deputy Pulls Driver Over for Speeding and Learns He's Going to a Funeral. His Sweet Response Goes Viral](https://www.yahoo.com/news/deputy-pulls-driver-over-speeding-142932994.html)
 - Jun 25 - [Archaeologists Found a Mysterious Secret Chamber Beneath a 12th-Century Castle](https://www.yahoo.com/news/archaeologists-found-mysterious-secret-chamber-120000988.html)
-- Jun 25 - [Houston man has close call after being targeted by ‘bank juggers’ — what to know to about this ‘scary’ trend](https://www.yahoo.com/news/houston-man-close-call-being-111500535.html)
-- Jun 25 - [Mortgage and refinance interest rates today, June 25, 2025: Dropping as deficit concerns grow](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-june-25-2025-100011806.html)
+- Jun 25 - [Six in hospital after McDonald's 'chemical assault'](https://www.yahoo.com/news/six-hospital-mcdonalds-chemical-assault-114308052.html)
+- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
 <!-- feed end -->
