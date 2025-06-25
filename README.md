@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Average Americans Keep $67 Cash on Hand — Do Experts Advise More or Less?](https://finance.yahoo.com/news/average-americans-keep-67-cash-190031846.html)
-- Jun 25 - [A man gained weight eating ultra-processed foods he thought were healthy. Now, he's 50 pounds lighter thanks to 3 habits.](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/man-gained-weight-eating-ultra-192535760.html)
 - Jun 25 - [Pregnant Alabama woman’s heartbreak as husband accused of being ‘ex-Iranian Army sniper’ by ICE](https://www.yahoo.com/news/pregnant-alabama-woman-heartbreak-husband-155735770.html)
-- Jun 25 - [Smoke billows from American Airlines flight after leaving Las Vegas airport](https://www.yahoo.com/news/smoke-billows-american-airlines-flight-172848370.html)
-- Jun 25 - [Once named opponents in the Supreme Court case that legalized same-sex marriage, now they’re friends](https://www.yahoo.com/news/once-named-opponents-supreme-court-170629059.html)
+- Jun 25 - [Chuck Schumer hospitalized, as DC heat wave rages](https://www.yahoo.com/news/chuck-schumer-hospitalized-dc-heat-192937986.html)
+- Jun 25 - [Rescuers retrieve body of Brazilian hiker who fell from Indonesian volcano](https://www.yahoo.com/news/rescuers-retrieve-body-brazilian-hiker-163914600.html)
+- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
+- Jun 25 - [How big was the OKC Thunder parade attendance? What officials, social media said](https://sports.yahoo.com/article/big-okc-thunder-parade-attendance-155203352.html)
 <!-- feed end -->
