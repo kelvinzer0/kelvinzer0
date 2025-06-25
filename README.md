@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Pregnant Alabama woman’s heartbreak as husband accused of being ‘ex-Iranian Army sniper’ by ICE](https://www.yahoo.com/news/pregnant-alabama-woman-heartbreak-husband-155735770.html)
+- Jun 25 - [Amol Rajan 'terrified' amid crowd crush during Ganges pilgrimage](https://www.yahoo.com/news/amol-rajan-ganges-bbc-215354108.html)
+- Jun 25 - [Nvidia stock closes at new all-time high](https://finance.yahoo.com/video/nvidia-stock-closes-time-high-205544719.html)
+- Jun 25 - [Trump gets 'golden share' power in US Steel buyout. US agencies will get it under future presidents](https://finance.yahoo.com/news/trump-gets-golden-share-power-201055145.html)
+- Jun 25 - [Palestinian student sues Michigan school over teacher's reaction to her refusal to stand for Pledge](https://www.yahoo.com/news/palestinian-student-sues-michigan-school-200330973.html)
 - Jun 25 - [Chuck Schumer hospitalized, as DC heat wave rages](https://www.yahoo.com/news/chuck-schumer-hospitalized-dc-heat-192937986.html)
-- Jun 25 - [Rescuers retrieve body of Brazilian hiker who fell from Indonesian volcano](https://www.yahoo.com/news/rescuers-retrieve-body-brazilian-hiker-163914600.html)
-- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
-- Jun 25 - [How big was the OKC Thunder parade attendance? What officials, social media said](https://sports.yahoo.com/article/big-okc-thunder-parade-attendance-155203352.html)
 <!-- feed end -->
