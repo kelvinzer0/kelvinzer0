@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Kennedy remake of CDC vaccine panel has US insurers reassessing sources of expertise](https://www.yahoo.com/news/kennedy-remake-cdc-vaccine-panel-101305039.html)
+- Jun 25 - [Berlin could go largely car-free as court rules bold initiative legal](https://www.yahoo.com/news/berlin-could-largely-car-free-120137401.html)
+- Jun 25 - [Drones tackle Everest’s trash crisis, hauling gear up and garbage down](https://www.yahoo.com/news/drones-tackle-everest-trash-crisis-113407415.html)
 - Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
-- Jun 25 - [Woman diagnosed with stage three cancer after experiencing lower back pain](https://www.yahoo.com/news/woman-diagnosed-stage-three-cancer-084446462.html)
+- Jun 25 - ['Liver King' Arrested in Austin After Bizarre Joe Rogan Comments](https://www.yahoo.com/entertainment/articles/liver-king-arrested-austin-bizarre-085059835.html)
 - Jun 25 - [Four astronauts launch to the space station as NASA grapples with strange twist in leak issue](https://www.yahoo.com/news/four-astronauts-launch-space-station-064552282.html)
-- Jun 25 - [China, India shift to higher-grade coal, cut Indonesian imports](https://finance.yahoo.com/news/china-india-shift-higher-grade-060005183.html)
 <!-- feed end -->
