@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Lawsuits: Henry Co. officials covered up rape, abuse](https://www.yahoo.com/news/lawsuits-henry-co-officials-covered-033358688.html)
+- Jun 25 - [Kilmar Abrego Garcia is expected to be released from jail only to be taken into immigration custody](https://www.yahoo.com/news/kilmar-abrego-garcia-expected-released-041600221.html)
+- Jun 25 - [Stockton man who pledged support for ISIS caught in undercover sting, prosecutors say](https://www.yahoo.com/news/stockton-man-pledged-support-isis-033025460.html)
+- Jun 25 - [Cargo ship carrying new vehicles to Mexico sinks in the North Pacific weeks after catching fire](https://www.yahoo.com/news/cargo-ship-carrying-vehicles-mexico-024451264.html)
+- Jun 25 - [Alvin Bragg, Manhattan prosecutor who took on Trump, wins Democratic primary in bid for second term](https://www.yahoo.com/news/alvin-bragg-manhattan-prosecutor-took-011702400.html)
 - Jun 25 - [DoorDash Exec Josh Pickles and 7 More Die in Lake Tahoe Boat Tragedy](https://www.yahoo.com/news/doordash-exec-josh-pickles-7-000600984.html)
-- Jun 24 - [Nvidia shareholder meeting: What to watch for](https://finance.yahoo.com/video/nvidia-shareholder-meeting-watch-211117725.html)
-- Jun 24 - [This look inside the B-2 Bomber is so detailed it should be classified](https://www.yahoo.com/news/look-inside-b-2-bomber-195121258.html)
-- Jun 24 - [Trump Hit By Devastating Intel Leak of Iran Bombing ‘Flop’](https://www.yahoo.com/news/trump-hit-devastating-intel-leak-192810660.html)
 <!-- feed end -->
