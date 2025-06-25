@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [BYD slows production, delays expansion at China factories, sources say](https://finance.yahoo.com/video/byd-slows-production-delays-expansion-085552743.html)
+- Jun 25 - [Best high-yield savings interest rates today, June 25, 2025 (Earn up to 4.31% APY)](https://finance.yahoo.com/personal-finance/banking/article/best-high-yield--savings-interest-rates-today-wednesday-june-25-2025-100058268.html)
+- Jun 25 - [Ukrainian President Zelenskyy sidelined as NATO leaders meet to agree defense spending boost](https://www.yahoo.com/news/ukrainian-president-zelenskyy-sidelined-nato-092920139.html)
+- Jun 25 - [Days before retirement, JCPS' Pollio receives final evaluation. Here's what it said](https://www.yahoo.com/news/days-retirement-jcps-pollio-receives-090706926.html)
+- Jun 25 - [Tariff Fear Is Completely Priced Out, UBS' Baweja Says](https://finance.yahoo.com/video/tariff-fear-completely-priced-ubs-074414055.html)
 - Jun 25 - [Four astronauts launch to the space station as NASA grapples with strange twist in leak issue](https://www.yahoo.com/news/four-astronauts-launch-space-station-064552282.html)
-- Jun 25 - [Mississippi set to execute state's longest-serving death row inmate](https://www.yahoo.com/news/mississippi-set-execute-states-longest-040156689.html)
-- Jun 25 - [Alvin Bragg, Manhattan prosecutor who took on Trump, wins Democratic primary in bid for second term](https://www.yahoo.com/news/alvin-bragg-manhattan-prosecutor-took-011702400.html)
-- Jun 25 - [DoorDash Exec Josh Pickles and 7 More Die in Lake Tahoe Boat Tragedy](https://www.yahoo.com/news/doordash-exec-josh-pickles-7-000600984.html)
 <!-- feed end -->
