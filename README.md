@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Berlin could go largely car-free as court rules bold initiative legal](https://www.yahoo.com/news/berlin-could-largely-car-free-120137401.html)
-- Jun 25 - [Drones tackle Everest’s trash crisis, hauling gear up and garbage down](https://www.yahoo.com/news/drones-tackle-everest-trash-crisis-113407415.html)
-- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
-- Jun 25 - ['Liver King' Arrested in Austin After Bizarre Joe Rogan Comments](https://www.yahoo.com/entertainment/articles/liver-king-arrested-austin-bizarre-085059835.html)
+- Jun 25 - [British paedophile charged over mock Disneyland wedding to child](https://www.yahoo.com/news/british-paedophile-charged-over-mock-092110878.html)
+- Jun 25 - [Sen. Bernie Sanders pressed by Joe Rogan during interview about his presidential plans in 2028](https://www.yahoo.com/news/sen-bernie-sanders-pressed-joe-075312830.html)
+- Jun 25 - [Satellite images and leaked intelligence throw doubt on Trump’s claims of success in Iran nuclear base strikes](https://www.yahoo.com/news/satellite-imagery-undermines-trump-claim-093524367.html)
 - Jun 25 - [Four astronauts launch to the space station as NASA grapples with strange twist in leak issue](https://www.yahoo.com/news/four-astronauts-launch-space-station-064552282.html)
+- Jun 25 - [Japanese court convicts a US Marine in sexual assault, sentencing him to 7 years in prison](https://www.yahoo.com/news/japanese-court-convicts-us-marine-073025179.html)
 <!-- feed end -->
