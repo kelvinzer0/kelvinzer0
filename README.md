@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Trump down to '3 or 4' candidates to replace Powell as Fed chair](https://finance.yahoo.com/news/trump-down-to-3-or-4-candidates-to-replace-powell-as-fed-chair-150641239.html)
+- Jun 25 - [‘I-4 Eyesore’ could get its first tenant, 24 years after construction began](https://www.yahoo.com/news/4-eyesore-could-first-tenant-151833172.html)
+- Jun 25 - [For first time, Webb telescope discovers an alien planet](https://www.yahoo.com/news/first-time-webb-telescope-discovers-151013150.html)
 - Jun 25 - [Deputy Pulls Driver Over for Speeding and Learns He's Going to a Funeral. His Sweet Response Goes Viral](https://www.yahoo.com/news/deputy-pulls-driver-over-speeding-142932994.html)
+- Jun 25 - [Wisconsin Supreme Court sides with Republican Legislature in fight with governor](https://www.yahoo.com/news/wisconsin-supreme-court-sides-republican-135028483.html)
 - Jun 25 - [Archaeologists Found a Mysterious Secret Chamber Beneath a 12th-Century Castle](https://www.yahoo.com/news/archaeologists-found-mysterious-secret-chamber-120000988.html)
-- Jun 25 - [Six in hospital after McDonald's 'chemical assault'](https://www.yahoo.com/news/six-hospital-mcdonalds-chemical-assault-114308052.html)
-- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
 <!-- feed end -->
