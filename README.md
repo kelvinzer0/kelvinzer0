@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 24 - [Images Show Choppy Lake Tahoe Waves That Killed 8](https://www.yahoo.com/news/images-show-choppy-lake-tahoe-214239244.html)
+- Jun 25 - [Suspect confesses to crucifying pastor in Arizona home – and had others on hit list](https://www.yahoo.com/news/suspect-confesses-crucifying-pastor-arizona-215743305.html)
+- Jun 24 - [‘F*** you!' Trump 'whistleblower bomb' goes off detailing lawless DOJ plot: Melber report](https://www.yahoo.com/news/f-trump-whistleblower-bomb-goes-230150083.html)
+- Jun 24 - [Mom Convinced Daughter with Cancer to Reject Chemotherapy, Family Claims. She Died 7 Months Later](https://www.yahoo.com/news/mom-convinced-daughter-cancer-reject-212956019.html)
 - Jun 24 - [Judge Asks Diddy How He Was Feeling. His Answer Made the Judge Laugh](https://www.yahoo.com/news/judge-asks-diddy-feeling-answer-210831645.html)
-- Jun 24 - [Musk's 'robotaxis' draw regulatory scrutiny after video shows one driving in an opposing lane](https://www.yahoo.com/news/musks-robotaxis-draw-regulatory-scrutiny-210030458.html)
-- Jun 24 - [In a First, America Dropped 30,000-Pound Bunker-Busters—But Iran’s Concrete May Be Unbreakable, Scientists Say](https://www.yahoo.com/news/first-america-dropped-30-000-205300766.html)
-- Jun 24 - [Cargo ship carrying new vehicles to Mexico sinks in the North Pacific weeks after catching fire](https://www.yahoo.com/news/cargo-ship-carrying-vehicles-mexico-201421664.html)
+- Jun 24 - [Musk's 'robotaxis' draw regulatory scrutiny after video shows one driving in an opposing lane](https://www.yahoo.com/news/musks-robotaxis-draw-regulatory-scrutiny-210030820.html)
 <!-- feed end -->
