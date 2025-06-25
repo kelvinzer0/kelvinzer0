@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Best high-yield savings interest rates today, June 25, 2025 (Earn up to 4.31% APY)](https://finance.yahoo.com/personal-finance/banking/article/best-high-yield--savings-interest-rates-today-wednesday-june-25-2025-100058268.html)
-- Jun 25 - [Ukrainian President Zelenskyy sidelined as NATO leaders meet to agree defense spending boost](https://www.yahoo.com/news/ukrainian-president-zelenskyy-sidelined-nato-092920139.html)
-- Jun 25 - [Days before retirement, JCPS' Pollio receives final evaluation. Here's what it said](https://www.yahoo.com/news/days-retirement-jcps-pollio-receives-090706926.html)
-- Jun 25 - [Tariff Fear Is Completely Priced Out, UBS' Baweja Says](https://finance.yahoo.com/video/tariff-fear-completely-priced-ubs-074414055.html)
+- Jun 25 - [Kennedy remake of CDC vaccine panel has US insurers reassessing sources of expertise](https://www.yahoo.com/news/kennedy-remake-cdc-vaccine-panel-101305039.html)
+- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
+- Jun 25 - [Woman diagnosed with stage three cancer after experiencing lower back pain](https://www.yahoo.com/news/woman-diagnosed-stage-three-cancer-084446462.html)
 - Jun 25 - [Four astronauts launch to the space station as NASA grapples with strange twist in leak issue](https://www.yahoo.com/news/four-astronauts-launch-space-station-064552282.html)
+- Jun 25 - [China, India shift to higher-grade coal, cut Indonesian imports](https://finance.yahoo.com/news/china-india-shift-higher-grade-060005183.html)
 <!-- feed end -->
