@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 25 - [British paedophile charged over mock Disneyland wedding to child](https://www.yahoo.com/news/british-paedophile-charged-over-mock-092110878.html)
-- Jun 25 - [Sen. Bernie Sanders pressed by Joe Rogan during interview about his presidential plans in 2028](https://www.yahoo.com/news/sen-bernie-sanders-pressed-joe-075312830.html)
-- Jun 25 - [Satellite images and leaked intelligence throw doubt on Trump’s claims of success in Iran nuclear base strikes](https://www.yahoo.com/news/satellite-imagery-undermines-trump-claim-093524367.html)
-- Jun 25 - [Four astronauts launch to the space station as NASA grapples with strange twist in leak issue](https://www.yahoo.com/news/four-astronauts-launch-space-station-064552282.html)
-- Jun 25 - [Japanese court convicts a US Marine in sexual assault, sentencing him to 7 years in prison](https://www.yahoo.com/news/japanese-court-convicts-us-marine-073025179.html)
+- Jun 25 - [Buckingham Palace Announces Surprise Change to Donald Trump’s State Visit Later This Year](https://www.yahoo.com/news/buckingham-palace-announces-surprise-change-124726895.html)
+- Jun 25 - [Archaeologists Found a Mysterious Secret Chamber Beneath a 12th-Century Castle](https://www.yahoo.com/news/archaeologists-found-mysterious-secret-chamber-120000988.html)
+- Jun 25 - [Houston man has close call after being targeted by ‘bank juggers’ — what to know to about this ‘scary’ trend](https://www.yahoo.com/news/houston-man-close-call-being-111500535.html)
+- Jun 25 - [Mortgage and refinance interest rates today, June 25, 2025: Dropping as deficit concerns grow](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-june-25-2025-100011806.html)
 <!-- feed end -->
