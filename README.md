@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Police clash with activists during NATO summit](https://www.yahoo.com/news/police-clash-activists-during-nato-170800214.html)
+- Jun 25 - [Fayette man pleads guilty to burning wife’s body, burying her in backyard](https://www.yahoo.com/news/fayette-man-pleads-guilty-burning-175122856.html)
 - Jun 25 - [Trump will look at giving Ukraine more Patriot missiles as he calls on Putin to end war](https://www.yahoo.com/news/trump-says-look-giving-ukraine-151038825.html)
-- Jun 25 - [China is a real threat to US biotech innovation: EY life science expert](https://finance.yahoo.com/news/china-is-a-real-threat-to-us-biotech-innovation-ey-life-science-expert-161927901.html)
-- Jun 25 - [Ohio plans swift appeal as court declares private school voucher system unconstitutional](https://www.yahoo.com/news/ohio-plans-swift-appeal-court-160115749.html)
-- Jun 25 - [For first time, Webb telescope discovers an alien planet](https://www.yahoo.com/news/first-time-webb-telescope-discovers-151013150.html)
+- Jun 25 - [Deaths from heart attacks are way down. Here’s what’s killing us instead](https://www.yahoo.com/news/deaths-heart-attacks-way-down-090004950.html)
+- Jun 25 - [War of words? Trump hints at changing name of Defense Department](https://www.yahoo.com/news/war-words-trump-hints-changing-155739122.html)
+- Jun 25 - [Sig Sauer’s P320 banned by Chicago Police Department and other law enforcement agencies](https://www.yahoo.com/news/sig-sauer-p320-banned-chicago-154300609.html)
 <!-- feed end -->
