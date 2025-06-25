@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Kilmar Abrego Garcia is expected to be released from jail only to be taken into immigration custody](https://www.yahoo.com/news/kilmar-abrego-garcia-expected-released-041600221.html)
-- Jun 25 - [Stockton man who pledged support for ISIS caught in undercover sting, prosecutors say](https://www.yahoo.com/news/stockton-man-pledged-support-isis-033025460.html)
-- Jun 25 - [Cargo ship carrying new vehicles to Mexico sinks in the North Pacific weeks after catching fire](https://www.yahoo.com/news/cargo-ship-carrying-vehicles-mexico-024451264.html)
-- Jun 25 - [Alvin Bragg, Manhattan prosecutor who took on Trump, wins Democratic primary in bid for second term](https://www.yahoo.com/news/alvin-bragg-manhattan-prosecutor-took-011702400.html)
 - Jun 25 - [DoorDash Exec Josh Pickles and 7 More Die in Lake Tahoe Boat Tragedy](https://www.yahoo.com/news/doordash-exec-josh-pickles-7-000600984.html)
+- Jun 24 - [Images Show Choppy Lake Tahoe Waves That Killed 8](https://www.yahoo.com/news/images-show-choppy-lake-tahoe-214239244.html)
+- Jun 24 - [Mom Convinced Daughter with Cancer to Reject Chemotherapy, Family Claims. She Died 7 Months Later](https://www.yahoo.com/news/mom-convinced-daughter-cancer-reject-212956019.html)
+- Jun 24 - [Nvidia shareholder meeting: What to watch for](https://finance.yahoo.com/video/nvidia-shareholder-meeting-watch-211117725.html)
+- Jun 24 - [Musk's 'robotaxis' draw regulatory scrutiny after video shows one driving in an opposing lane](https://www.yahoo.com/news/musks-robotaxis-draw-regulatory-scrutiny-210030820.html)
 <!-- feed end -->
