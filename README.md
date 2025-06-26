@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Fewer Americans sought unemployment benefits last week as layoffs remain low](https://www.yahoo.com/news/fewer-americans-sought-unemployment-benefits-124815229.html)
-- Jun 26 - [Canadian man livid after bank deems $35K worth of charges from all over the world on his credit card are legit](https://finance.yahoo.com/news/canadian-man-livid-bank-deems-110000382.html)
-- Jun 26 - [Entire flight crew suspended after search for passenger’s stolen phone](https://www.yahoo.com/news/entire-flight-crew-suspended-search-104732882.html)
-- Jun 26 - [Experts issue warning about 'unstoppable' flocks of brightly colored birds: 'We need to do something'](https://www.yahoo.com/news/experts-issue-warning-unstoppable-flocks-104539672.html)
-- Jun 26 - [Putin said Russia is starting mass production of a ballistic missile that he wants to 'duel' with US-made defenses](https://www.yahoo.com/news/putin-said-russia-starting-mass-102105024.html)
+- Jun 26 - [New UNH poll reveals how New Hampshire residents feel about Big Beautiful Bill](https://www.yahoo.com/news/unh-poll-reveals-hampshire-residents-143331949.html)
+- Jun 26 - [Republican who blamed the political left for her near-fatal ectopic pregnancy now says she’s facing death threats](https://www.yahoo.com/news/republican-blamed-left-abortion-access-105635555.html)
+- Jun 26 - [Five common types of medication that make it hard to cope in the heat](https://www.yahoo.com/news/five-common-types-medication-hard-141909526.html)
+- Jun 26 - [Avoca man charged with stealing over $50,000](https://www.yahoo.com/news/avoca-man-charged-stealing-over-141800173.html)
+- Jun 26 - [National Hurricane Center tracking 4 tropical waves, including 2 in Caribbean](https://www.yahoo.com/news/national-hurricane-center-tracking-4-131201549.html)
 <!-- feed end -->
