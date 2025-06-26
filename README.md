@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [What's the forecast in Louisville? NWS extends heat advisory in Kentucky region](https://www.yahoo.com/news/whats-forecast-louisville-nws-extends-122500547.html)
-- Jun 26 - [Letters to the Editor: How ICE raids could inadvertently encourage the spread of infectious diseases](https://www.yahoo.com/news/letters-editor-ice-raids-could-120000868.html)
+- Jun 26 - [BHP faces UK contempt charge for funding case over Brazil dam collapse](https://finance.yahoo.com/news/bhp-faces-uk-contempt-charge-124328324.html)
+- Jun 26 - [Humans have forced cod to shrink in size by half since 1990s, scientists find](https://www.yahoo.com/news/humans-forced-cod-shrink-size-123749942.html)
 - Jun 26 - ['Britain has gone to hell': UK’s ninth richest man moves business out of London](https://finance.yahoo.com/news/oil-tanker-billionaire-says-uk-101229469.html)
-- Jun 26 - [Iran’s supreme leader warns against further American attacks in his first statement since ceasefire](https://www.yahoo.com/news/iran-supreme-leader-ali-khamenei-102534072.html)
-- Jun 26 - [Pete Hegseth holding Pentagon press conference to celebrate ‘very upset’ B-2 pilots involved in Iran raid](https://www.yahoo.com/news/pete-hegseth-holding-pentagon-press-083048709.html)
+- Jun 26 - [Experts issue warning about 'unstoppable' flocks of brightly colored birds: 'We need to do something'](https://www.yahoo.com/news/experts-issue-warning-unstoppable-flocks-104539672.html)
+- Jun 26 - [Putin said Russia is starting mass production of a ballistic missile that he wants to 'duel' with US-made defenses](https://www.yahoo.com/news/putin-said-russia-starting-mass-102105024.html)
 <!-- feed end -->
