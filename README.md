@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [North Korea opens a new long delayed beach resort without tourists](https://www.yahoo.com/news/north-korea-opens-long-delayed-031610566.html)
-- Jun 25 - [Mother and Child Narrowly Escape the 'World's Most Dangerous Bird.' See Footage of the 'Close Encounter'](https://www.yahoo.com/news/mother-child-narrowly-escape-worlds-233200315.html)
-- Jun 25 - [3 Soaring Stocks I'd Buy Now With No Hesitation](https://finance.yahoo.com/news/3-soaring-stocks-id-buy-225400529.html)
-- Jun 25 - [Nvidia stock closes at new all-time high](https://finance.yahoo.com/video/nvidia-stock-closes-time-high-205544719.html)
-- Jun 25 - [Alligators hamper teenager's rescue in fatal Florida crash](https://www.yahoo.com/news/alligators-hamper-teenagers-rescue-fatal-195551686.html)
+- Jun 26 - [Trump will look at giving Ukraine more Patriot missiles as he calls on Putin to end war](https://www.yahoo.com/news/trump-says-look-giving-ukraine-151038825.html)
+- Jun 26 - [Satya Nadella: The hardest part of AI isn't the tech. It's getting people to change how they work.](https://finance.yahoo.com/news/satya-nadella-hardest-part-ai-040858654.html)
+- Jun 25 - [Trump gets 'golden share' power in US Steel buyout. US agencies will get it under future presidents](https://finance.yahoo.com/news/trump-gets-golden-share-power-201055145.html)
+- Jun 25 - [Palestinian student sues Michigan school over teacher's reaction to her refusal to stand for Pledge](https://www.yahoo.com/news/palestinian-student-sues-michigan-school-200330973.html)
+- Jun 25 - [A man gained weight eating ultra-processed foods he thought were healthy. Now, he's 50 pounds lighter thanks to 3 habits.](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/man-gained-weight-eating-ultra-192535760.html)
 <!-- feed end -->
