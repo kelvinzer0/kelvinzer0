@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [New UNH poll reveals how New Hampshire residents feel about Big Beautiful Bill](https://www.yahoo.com/news/unh-poll-reveals-hampshire-residents-143331949.html)
-- Jun 26 - [Republican who blamed the political left for her near-fatal ectopic pregnancy now says she’s facing death threats](https://www.yahoo.com/news/republican-blamed-left-abortion-access-105635555.html)
-- Jun 26 - [Five common types of medication that make it hard to cope in the heat](https://www.yahoo.com/news/five-common-types-medication-hard-141909526.html)
-- Jun 26 - [Avoca man charged with stealing over $50,000](https://www.yahoo.com/news/avoca-man-charged-stealing-over-141800173.html)
-- Jun 26 - [National Hurricane Center tracking 4 tropical waves, including 2 in Caribbean](https://www.yahoo.com/news/national-hurricane-center-tracking-4-131201549.html)
+- Jun 26 - [Musk Confidant Afshar Leaves Tesla in Latest High-Level Exit](https://finance.yahoo.com/news/musk-confidant-afshar-exits-tesla-152751588.html)
+- Jun 26 - [Dell unveils new Premium 14 and 16 laptops, its first XPS replacements](https://tech.yahoo.com/computing/articles/dell-unveils-premium-14-16-154954015.html)
+- Jun 26 - [GE Appliances moves washing machine production from China to Kentucky with $490 million investment](https://finance.yahoo.com/news/ge-appliances-moves-washing-machine-151456805.html)
+- Jun 26 - [Republicans are calling on Trump to revoke Mamdani’s citizenship and deport him](https://www.yahoo.com/news/republicans-calling-trump-revoke-mamdani-150724463.html)
+- Jun 26 - [Want $1 Million in Retirement? Invest $100,000 in These 3 Stocks and Wait a Decade.](https://finance.yahoo.com/news/want-1-million-retirement-invest-150500342.html)
 <!-- feed end -->
