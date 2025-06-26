@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [North Korea may send more troops to Russia in July or August for Ukraine war, Seoul says](https://www.yahoo.com/news/north-korea-may-send-more-080813433.html)
+- Jun 26 - [Sean 'Diddy' Combs' sex trafficking trial heads to closing arguments](https://www.yahoo.com/news/sean-diddy-combs-sex-trafficking-100416666.html)
 - Jun 26 - ['Beloved' Fitness Influencer Killed On Date At 40](https://www.yahoo.com/news/beloved-fitness-influencer-killed-date-050357373.html)
-- Jun 26 - [North Korea opens a new long delayed beach resort without tourists](https://www.yahoo.com/news/north-korea-opens-long-delayed-031610566.html)
-- Jun 25 - [Mega Millions Cold Streak Has Jackpot Hitting Astronomical Amount](https://www.yahoo.com/news/mega-millions-cold-streak-jackpot-222253294.html)
-- Jun 25 - [Raleigh Mayor Janet Cowell’s cat woke her up at 3 a.m. Then, she called 911.](https://www.yahoo.com/news/raleigh-mayor-janet-cowell-cat-211727138.html)
+- Jun 25 - [Jill Biden's 'work husband' runs for cover as privilege protection crumbles](https://www.yahoo.com/news/jill-bidens-husband-runs-cover-234658873.html)
+- Jun 25 - ['F*** you!’ Trump vet grilled under oath on whistleblower’s autocratic bombshell](https://www.yahoo.com/news/f-trump-vet-grilled-under-231216321.html)
+- Jun 25 - [3 Soaring Stocks I'd Buy Now With No Hesitation](https://finance.yahoo.com/news/3-soaring-stocks-id-buy-225400529.html)
 <!-- feed end -->
