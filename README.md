@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Passenger Forcibly Dragged Off Plane by Arms and Belt After Alleged Tantrum Over Changing Seats](https://www.yahoo.com/news/passenger-forcibly-dragged-off-plane-201719186.html)
-- Jun 26 - [Nvidia rally persists: What worries this analyst about AI trade](https://finance.yahoo.com/video/nvidia-rally-persists-worries-analyst-200925188.html)
+- Jun 26 - [Tampa Bay Rays’ Wander Franco found guilty in sex abuse case, receives 2-year suspended sentence](https://www.yahoo.com/news/tampa-bay-rays-shortstop-wander-212527850.html)
+- Jun 26 - [Chinese Tech M&A Ramps Up](https://finance.yahoo.com/video/chinese-tech-m-ramps-204713313.html)
+- Jun 26 - [Trump approval rating: New poll released after US strikes on Iran](https://www.yahoo.com/news/trump-approval-rating-poll-released-202429348.html)
 - Jun 26 - [NTSB says company failed to shut down oil pipeline for nearly 13 hours after pressure dropped](https://www.yahoo.com/news/ntsb-says-company-failed-shut-195812081.html)
-- Jun 26 - [Bezos-Sanchez wedding: Kim Kardashian, Oprah among celebrities in Venice as celebrations get underway](https://www.yahoo.com/entertainment/articles/bezos-sanchez-venice-wedding-kim-112834733.html)
-- Jun 26 - [‘Fireball’ in the sky seen across metro Atlanta](https://www.yahoo.com/news/reports-fireball-sky-across-metro-172223181.html)
+- Jun 26 - [Sean "Diddy" Combs’ Teen Daughters Unite at Trial's Closing Statements](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-teen-daughters-194931284.html)
 <!-- feed end -->
