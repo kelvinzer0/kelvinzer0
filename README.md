@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Fireball spotted over Southeast US may have been caused by meteor, American Meteor Society says](https://www.yahoo.com/news/fireball-spotted-over-southeast-us-184252660.html)
-- Jun 26 - [Vacation selfies of a British woman ‘dripping in diamonds’ lead to her arrest for jewelry theft, police say](https://www.yahoo.com/news/vacation-selfies-british-woman-dripping-232327717.html)
-- Jun 26 - [Zohran Mamdani Just Delivered The Most Epic Response After Trump Called Him A "100% Communist Lunatic"](https://www.yahoo.com/news/zohran-mamdani-just-delivered-most-190145866.html)
-- Jun 26 - [Fatal alligator attack: Gator slammed canoe, grabbed woman, new info shows](https://www.yahoo.com/news/details-fatal-alligator-attack-gator-152043136.html)
-- Jun 26 - [GE Appliances moves washing machine production from China to Kentucky with $490 million investment](https://finance.yahoo.com/news/ge-appliances-moves-washing-machine-151456805.html)
+- Jun 26 - [Passenger Forcibly Dragged Off Plane by Arms and Belt After Alleged Tantrum Over Changing Seats](https://www.yahoo.com/news/passenger-forcibly-dragged-off-plane-201719186.html)
+- Jun 26 - [Nvidia rally persists: What worries this analyst about AI trade](https://finance.yahoo.com/video/nvidia-rally-persists-worries-analyst-200925188.html)
+- Jun 26 - [NTSB says company failed to shut down oil pipeline for nearly 13 hours after pressure dropped](https://www.yahoo.com/news/ntsb-says-company-failed-shut-195812081.html)
+- Jun 26 - [Bezos-Sanchez wedding: Kim Kardashian, Oprah among celebrities in Venice as celebrations get underway](https://www.yahoo.com/entertainment/articles/bezos-sanchez-venice-wedding-kim-112834733.html)
+- Jun 26 - [‘Fireball’ in the sky seen across metro Atlanta](https://www.yahoo.com/news/reports-fireball-sky-across-metro-172223181.html)
 <!-- feed end -->
