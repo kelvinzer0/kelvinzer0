@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [BHP faces UK contempt charge for funding case over Brazil dam collapse](https://finance.yahoo.com/news/bhp-faces-uk-contempt-charge-124328324.html)
-- Jun 26 - [Humans have forced cod to shrink in size by half since 1990s, scientists find](https://www.yahoo.com/news/humans-forced-cod-shrink-size-123749942.html)
-- Jun 26 - ['Britain has gone to hell': UK’s ninth richest man moves business out of London](https://finance.yahoo.com/news/oil-tanker-billionaire-says-uk-101229469.html)
+- Jun 26 - [Fewer Americans sought unemployment benefits last week as layoffs remain low](https://www.yahoo.com/news/fewer-americans-sought-unemployment-benefits-124815229.html)
+- Jun 26 - [Canadian man livid after bank deems $35K worth of charges from all over the world on his credit card are legit](https://finance.yahoo.com/news/canadian-man-livid-bank-deems-110000382.html)
+- Jun 26 - [Entire flight crew suspended after search for passenger’s stolen phone](https://www.yahoo.com/news/entire-flight-crew-suspended-search-104732882.html)
 - Jun 26 - [Experts issue warning about 'unstoppable' flocks of brightly colored birds: 'We need to do something'](https://www.yahoo.com/news/experts-issue-warning-unstoppable-flocks-104539672.html)
 - Jun 26 - [Putin said Russia is starting mass production of a ballistic missile that he wants to 'duel' with US-made defenses](https://www.yahoo.com/news/putin-said-russia-starting-mass-102105024.html)
 <!-- feed end -->
