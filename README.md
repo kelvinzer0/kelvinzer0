@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Trump gets 'golden share' power in US Steel buyout. US agencies will get it under future presidents](https://finance.yahoo.com/news/trump-gets-golden-share-power-201055145.html)
-- Jun 25 - [Palestinian student sues Michigan school over teacher's reaction to her refusal to stand for Pledge](https://www.yahoo.com/news/palestinian-student-sues-michigan-school-200330973.html)
-- Jun 25 - [A man gained weight eating ultra-processed foods he thought were healthy. Now, he's 50 pounds lighter thanks to 3 habits.](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/man-gained-weight-eating-ultra-192535760.html)
-- Jun 25 - [A Cat Went to Sleep in an Inactive Washing Machine, and Woke Up During a 55-Minute Wash Cycle with 3,000 Spins](https://www.yahoo.com/lifestyle/articles/cat-went-sleep-inactive-washing-180216643.html)
-- Jun 25 - [Once named opponents in the Supreme Court case that legalized same-sex marriage, now they’re friends](https://www.yahoo.com/news/once-named-opponents-supreme-court-170629059.html)
+- Jun 26 - [North Korea opens a new long delayed beach resort without tourists](https://www.yahoo.com/news/north-korea-opens-long-delayed-031610566.html)
+- Jun 25 - [Mother and Child Narrowly Escape the 'World's Most Dangerous Bird.' See Footage of the 'Close Encounter'](https://www.yahoo.com/news/mother-child-narrowly-escape-worlds-233200315.html)
+- Jun 25 - [3 Soaring Stocks I'd Buy Now With No Hesitation](https://finance.yahoo.com/news/3-soaring-stocks-id-buy-225400529.html)
+- Jun 25 - [Nvidia stock closes at new all-time high](https://finance.yahoo.com/video/nvidia-stock-closes-time-high-205544719.html)
+- Jun 25 - [Alligators hamper teenager's rescue in fatal Florida crash](https://www.yahoo.com/news/alligators-hamper-teenagers-rescue-fatal-195551686.html)
 <!-- feed end -->
