@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [White House: Megabill’s July 4 deadline stands](https://www.yahoo.com/news/white-house-megabill-july-4-180629211.html)
+- Jun 26 - [Can Oklo Stock Hit $75 in 2025?](https://finance.yahoo.com/news/oklo-stock-hit-75-2025-180149330.html)
 - Jun 26 - ["This Has To Be The Most Embarrassing Moment In NATO's History" — People Can't Believe This Clip Of The NATO Secretary General Calling Trump "Daddy" Is Real](https://www.yahoo.com/news/most-embarrassing-moment-natos-history-173504855.html)
-- Jun 26 - [Is Diddy getting released? What charges did prosecutors drop? Diddy trial updates to know](https://www.yahoo.com/news/diddy-getting-released-charges-did-171745758.html)
-- Jun 26 - [What new research tells us about how Trump won in 2024](https://www.yahoo.com/news/research-tells-us-trump-won-153800824.html)
+- Jun 26 - [Republicans are calling on Trump to revoke Mamdani’s citizenship and deport him](https://www.yahoo.com/news/republicans-calling-trump-revoke-mamdani-150724463.html)
+- Jun 26 - [Vacation selfies of a British woman ‘dripping in diamonds’ lead to her arrest for jewelry theft, police say](https://www.yahoo.com/news/vacation-selfies-british-woman-dripping-232327717.html)
 - Jun 26 - [Fatal alligator attack: Gator slammed canoe, grabbed woman, new info shows](https://www.yahoo.com/news/details-fatal-alligator-attack-gator-152043136.html)
 <!-- feed end -->
