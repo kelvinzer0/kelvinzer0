@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 25 - [Want to Invest in Quantum Computing? 2 Stocks That Are Great Buys Right Now.](https://finance.yahoo.com/news/want-invest-quantum-computing-2-214300672.html)
+- Jun 26 - [M. Night Shyamalan moves filming of 'Remain' to downtown Newport. Here's where.](https://www.yahoo.com/entertainment/articles/m-night-shyamalan-moves-filming-004133579.html)
+- Jun 25 - [3 Soaring Stocks I'd Buy Now With No Hesitation](https://finance.yahoo.com/news/3-soaring-stocks-id-buy-225400529.html)
+- Jun 25 - [South Dakota State football running back Nate White dies at 20-years-old](https://sports.yahoo.com/article/south-dakota-state-football-running-224229758.html)
 - Jun 25 - [Trump gets 'golden share' power in US Steel buyout. US agencies will get it under future presidents](https://finance.yahoo.com/news/trump-gets-golden-share-power-201055145.html)
 - Jun 25 - [Palestinian student sues Michigan school over teacher's reaction to her refusal to stand for Pledge](https://www.yahoo.com/news/palestinian-student-sues-michigan-school-200330973.html)
-- Jun 25 - [A man gained weight eating ultra-processed foods he thought were healthy. Now, he's 50 pounds lighter thanks to 3 habits.](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/man-gained-weight-eating-ultra-192535760.html)
-- Jun 25 - [A Cat Went to Sleep in an Inactive Washing Machine, and Woke Up During a 55-Minute Wash Cycle with 3,000 Spins](https://www.yahoo.com/lifestyle/articles/cat-went-sleep-inactive-washing-180216643.html)
 <!-- feed end -->
