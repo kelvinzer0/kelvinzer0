@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Musk Confidant Afshar Leaves Tesla in Latest High-Level Exit](https://finance.yahoo.com/news/musk-confidant-afshar-exits-tesla-152751588.html)
-- Jun 26 - [Dell unveils new Premium 14 and 16 laptops, its first XPS replacements](https://tech.yahoo.com/computing/articles/dell-unveils-premium-14-16-154954015.html)
+- Jun 26 - [SRSO plans to arrest 10, 12, 17-year-olds for throwing objects at cars from Jones Overpass](https://www.yahoo.com/news/srso-plans-arrest-10-12-163045264.html)
+- Jun 26 - [Fatal alligator attack: Gator slammed canoe, grabbed woman, new info shows](https://www.yahoo.com/news/details-fatal-alligator-attack-gator-152043136.html)
 - Jun 26 - [GE Appliances moves washing machine production from China to Kentucky with $490 million investment](https://finance.yahoo.com/news/ge-appliances-moves-washing-machine-151456805.html)
 - Jun 26 - [Republicans are calling on Trump to revoke Mamdani’s citizenship and deport him](https://www.yahoo.com/news/republicans-calling-trump-revoke-mamdani-150724463.html)
-- Jun 26 - [Want $1 Million in Retirement? Invest $100,000 in These 3 Stocks and Wait a Decade.](https://finance.yahoo.com/news/want-1-million-retirement-invest-150500342.html)
+- Jun 26 - [If you're a woman over 50, a longevity expert says these 8 daily habits can help you live a longer life](https://www.yahoo.com/lifestyle/article/if-youre-a-woman-over-50-a-longevity-expert-says-these-8-daily-habits-can-help-you-live-a-longer-life-150036427.html)
 <!-- feed end -->
