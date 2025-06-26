@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Sean 'Diddy' Combs' sex trafficking trial heads to closing arguments](https://www.yahoo.com/news/sean-diddy-combs-sex-trafficking-100416666.html)
+- Jun 26 - [Software group Visma picks London for IPO](https://uk.finance.yahoo.com/news/software-visma-london-ipo-103217737.html)
+- Jun 26 - [Iran’s supreme leader makes first public statement since ceasefire declared in Israel-Iran war](https://www.yahoo.com/news/iran-supreme-leader-ali-khamenei-102534072.html)
+- Jun 26 - [Why I Can't Stop Buying These 2 Top High-Yield Dividend Stocks](https://finance.yahoo.com/news/why-cant-stop-buying-2-101200199.html)
 - Jun 26 - ['Beloved' Fitness Influencer Killed On Date At 40](https://www.yahoo.com/news/beloved-fitness-influencer-killed-date-050357373.html)
-- Jun 25 - [Jill Biden's 'work husband' runs for cover as privilege protection crumbles](https://www.yahoo.com/news/jill-bidens-husband-runs-cover-234658873.html)
-- Jun 25 - ['F*** you!’ Trump vet grilled under oath on whistleblower’s autocratic bombshell](https://www.yahoo.com/news/f-trump-vet-grilled-under-231216321.html)
-- Jun 25 - [3 Soaring Stocks I'd Buy Now With No Hesitation](https://finance.yahoo.com/news/3-soaring-stocks-id-buy-225400529.html)
+- Jun 25 - [Vacation selfies of a British woman ‘dripping in diamonds’ lead to her arrest for jewelry theft, police say](https://www.yahoo.com/news/vacation-selfies-british-woman-dripping-232327717.html)
 <!-- feed end -->
