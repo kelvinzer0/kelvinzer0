@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [Woman With Two Kids Tells Dave Ramsey Her Husband Wants To Quit And Sell Their Home To Start A Restaurant Without Research Or Business Plan](https://finance.yahoo.com/news/woman-two-kids-tells-dave-220040226.html)
+- Jun 26 - [Lawmakers remove ‘revenge’ tax provision from Trump's big bill after Treasury Department request](https://www.yahoo.com/news/lawmakers-remove-revenge-tax-provision-213808877.html)
 - Jun 26 - [Tampa Bay Rays’ Wander Franco found guilty in sex abuse case, receives 2-year suspended sentence](https://www.yahoo.com/news/tampa-bay-rays-shortstop-wander-212527850.html)
-- Jun 26 - [Chinese Tech M&A Ramps Up](https://finance.yahoo.com/video/chinese-tech-m-ramps-204713313.html)
 - Jun 26 - [Trump approval rating: New poll released after US strikes on Iran](https://www.yahoo.com/news/trump-approval-rating-poll-released-202429348.html)
-- Jun 26 - [NTSB says company failed to shut down oil pipeline for nearly 13 hours after pressure dropped](https://www.yahoo.com/news/ntsb-says-company-failed-shut-195812081.html)
-- Jun 26 - [Sean "Diddy" Combs’ Teen Daughters Unite at Trial's Closing Statements](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-teen-daughters-194931284.html)
+- Jun 26 - [Zohran Mamdani Just Delivered The Most Epic Response After Trump Called Him A "100% Communist Lunatic"](https://www.yahoo.com/news/zohran-mamdani-just-delivered-most-190145866.html)
 <!-- feed end -->
