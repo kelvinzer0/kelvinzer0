@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 26 - [North Korea to open beach resort as Kim bets on tourism](https://www.yahoo.com/news/north-korea-open-beach-resort-064923639.html)
 - Jun 26 - [North Korea opens a new long delayed beach resort without tourists](https://www.yahoo.com/news/north-korea-opens-long-delayed-031610566.html)
 - Jun 25 - [3 Soaring Stocks I'd Buy Now With No Hesitation](https://finance.yahoo.com/news/3-soaring-stocks-id-buy-225400529.html)
-- Jun 25 - [Mega Millions Cold Streak Has Jackpot Hitting Astronomical Amount](https://www.yahoo.com/news/mega-millions-cold-streak-jackpot-222253294.html)
 - Jun 25 - [Trump gets 'golden share' power in US Steel buyout. US agencies will get it under future presidents](https://finance.yahoo.com/news/trump-gets-golden-share-power-201055145.html)
 - Jun 25 - [Palestinian student sues Michigan school over teacher's reaction to her refusal to stand for Pledge](https://www.yahoo.com/news/palestinian-student-sues-michigan-school-200330973.html)
 <!-- feed end -->
