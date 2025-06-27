@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [US Air Force to retire all A-10s, cancel E-7 under 2026 spending plan](https://www.yahoo.com/news/us-air-force-retire-10s-193526698.html)
-- Jun 27 - [California court rules state insurance policy on smoke damage is unlawful](https://www.yahoo.com/news/california-court-rules-state-insurance-192827577.html)
 - Jun 27 - [Unjammable fiber-optic drones are taking over and turning Ukrainian forests into spiderwebs of wires, video shows](https://www.yahoo.com/news/unjammable-fiber-optic-drones-taking-184153596.html)
 - Jun 27 - [Prayers Pouring In After 29 Students Die In High School Tragedy](https://www.yahoo.com/news/prayers-pouring-29-students-die-183412798.html)
-- Jun 27 - [This cryptocurrency is bitcoin’s biggest challenger yet — and it just might take over your wallet](https://finance.yahoo.com/news/cryptocurrency-bitcoin-biggest-challenger-yet-182500576.html)
+- Jun 27 - [What the Supreme Court Obamacare decision means for RFK Jr.](https://www.yahoo.com/news/supreme-court-obamacare-decision-means-183111248.html)
+- Jun 27 - [Little Boy, 3, Unconscious After Falling 24 Feet into Zoo Enclosure. Seconds Later, Female Gorilla Picked Him Up](https://www.yahoo.com/news/little-boy-3-unconscious-falling-181345513.html)
+- Jun 27 - [6 Questions You Should Never Ask at a Car Dealership](https://finance.yahoo.com/news/6-questions-never-ask-car-120037492.html)
 <!-- feed end -->
