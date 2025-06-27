@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Atlanta homeowner says he spent $200K on building a house for resale — and then the city knocked a hole in it](https://www.yahoo.com/news/atlanta-homeowner-says-spent-200k-111300627.html)
-- Jun 27 - [Video captures 18-wheeler hitting electrical worker in Louisiana](https://www.yahoo.com/news/video-captures-18-wheeler-hitting-101236374.html)
-- Jun 27 - [Mortgage and refinance interest rates today, June 27, 2025: Slowly easing lower again this week](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-june-27-2025-100025218.html)
-- Jun 27 - [Army report reveals minimal damage done to DC streets during Trump’s military parade](https://www.yahoo.com/news/army-reveals-scale-damage-done-130929387.html)
-- Jun 27 - [Boy, 14, Ate Lunch in Teacher's Classroom Because He Had 'Issues Fitting In.' Now She's Accused of Drawing Curtains and Raping Him](https://www.yahoo.com/news/boy-14-ate-lunch-teachers-090000425.html)
+- Jun 27 - [US Consumer Spending Falls in May by Most This Year](https://finance.yahoo.com/video/us-consumer-spending-falls-may-124919771.html)
+- Jun 27 - [Fed's preferred inflation gauge shows price increases accelerated in May](https://finance.yahoo.com/news/feds-preferred-inflation-gauge-shows-price-increases-accelerated-in-may-123850424.html)
+- Jun 27 - [Warren Buffett Says Taking Control of Berkshire Hathaway Was a Mistake That ‘Plagued Them for Two Decades’](https://finance.yahoo.com/news/warren-buffett-says-taking-control-120002133.html)
+- Jun 27 - [Oslo police announce rape and sexual assault charges against son of Norwegian crown princess](https://www.yahoo.com/news/oslo-police-announce-rape-sexual-114837704.html)
+- Jun 27 - [Experts issue warning over concerning spread of rare hornet species: 'Highly aggressive'](https://www.yahoo.com/news/experts-issue-warning-over-concerning-114023245.html)
 <!-- feed end -->
