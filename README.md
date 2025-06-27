@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Diddy Trial Reaches Explosive Conclusion as Defense Asks Jury to ‘Summon That Courage’ to ‘Acquit Sean Combs’](https://www.yahoo.com/news/diddy-lawyer-riles-courtroom-passionate-160826185.html)
+- Jun 27 - [What Tariffs? Nasdaq, S&P 500 Climb to Record Highs as Netflix, Disney Continue Huge Runs](https://finance.yahoo.com/news/tariffs-nasdaq-p-500-climb-220625562.html)
+- Jun 27 - [A Big Win: Rep. Lawler on Tentative SALT Deal Reached](https://finance.yahoo.com/video/big-win-rep-lawler-tentative-215252140.html)
 - Jun 27 - [Jesse Watters Hits Jasmine Crockett With A Shameful Dig — And Sadly, It Proves 1 Thing](https://www.yahoo.com/news/jesse-watters-hits-jasmine-crockett-214852975.html)
-- Jun 27 - [Fredericton police error collapses 3 murder cases, charges stayed against 5 people](https://www.yahoo.com/news/fredericton-police-error-collapses-3-212824033.html)
-- Jun 27 - [Sinaloa cartel used phone data and surveillance cameras to find FBI informants, DOJ says](https://www.yahoo.com/news/sinaloa-cartel-hacked-phones-surveillance-211818505.html)
-- Jun 27 - [Large US Banks Clear the Fed's Annual Stress Test](https://finance.yahoo.com/video/large-us-banks-clear-feds-205318260.html)
-- Jun 27 - [US did not use bunker-buster bombs on one of Iran’s nuclear sites, top general tells lawmakers, citing depth of the target](https://www.yahoo.com/news/us-did-not-bunker-buster-193231191.html)
+- Jun 27 - [Murder charges filed in deaths of 3 Kansas City Chiefs fans](https://www.yahoo.com/news/murder-charges-filed-deaths-3-213258802.html)
 <!-- feed end -->
