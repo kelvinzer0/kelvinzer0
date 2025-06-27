@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Rural schools feel the pinch from Trump administration's cuts to mental health grants](https://www.yahoo.com/news/rural-schools-feel-pinch-trump-040501209.html)
 - Jun 27 - [Japan executes man convicted of murder for killing and dismembering 9 people in his apartment](https://www.yahoo.com/news/japan-executes-man-convicted-murder-022251289.html)
 - Jun 27 - [Fox News Host Rolls Her Eyes on Air Over Sen. Tom Cotton’s Iran Raid Assessment: ‘Is No One Concerned?’](https://www.yahoo.com/news/fox-news-host-rolls-her-005034151.html)
 - Jun 27 - [Armed 64-year-old woman blocks Texas highway in lawn chair during standoff: Officials](https://www.yahoo.com/news/armed-woman-blocks-texas-highway-225745233.html)
-- Jun 26 - [Canadian man held by immigration officials dies in South Florida federal facility, officials say](https://www.yahoo.com/news/canadian-man-held-immigration-officials-222006116.html)
-- Jun 26 - [SpaceX says debris recovery attempts hindered after Starship explosion](https://www.yahoo.com/news/spacex-says-debris-recovery-attempts-214204412.html)
+- Jun 26 - [Can You Guess What an Upper-Class Retiree's Monthly Income Looks Like? Here's What the Wealthy Are Actually Living On](https://finance.yahoo.com/news/guess-upper-class-retirees-monthly-223114813.html)
 <!-- feed end -->
