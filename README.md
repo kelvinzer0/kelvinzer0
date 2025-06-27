@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Unjammable fiber-optic drones are taking over and turning Ukrainian forests into spiderwebs of wires, video shows](https://www.yahoo.com/news/unjammable-fiber-optic-drones-taking-184153596.html)
-- Jun 27 - [Prayers Pouring In After 29 Students Die In High School Tragedy](https://www.yahoo.com/news/prayers-pouring-29-students-die-183412798.html)
-- Jun 27 - [What the Supreme Court Obamacare decision means for RFK Jr.](https://www.yahoo.com/news/supreme-court-obamacare-decision-means-183111248.html)
-- Jun 27 - [Little Boy, 3, Unconscious After Falling 24 Feet into Zoo Enclosure. Seconds Later, Female Gorilla Picked Him Up](https://www.yahoo.com/news/little-boy-3-unconscious-falling-181345513.html)
-- Jun 27 - [6 Questions You Should Never Ask at a Car Dealership](https://finance.yahoo.com/news/6-questions-never-ask-car-120037492.html)
+- Jun 27 - [Jesse Watters Hits Jasmine Crockett With A Shameful Dig — And Sadly, It Proves 1 Thing](https://www.yahoo.com/news/jesse-watters-hits-jasmine-crockett-214852975.html)
+- Jun 27 - [Fredericton police error collapses 3 murder cases, charges stayed against 5 people](https://www.yahoo.com/news/fredericton-police-error-collapses-3-212824033.html)
+- Jun 27 - [Sinaloa cartel used phone data and surveillance cameras to find FBI informants, DOJ says](https://www.yahoo.com/news/sinaloa-cartel-hacked-phones-surveillance-211818505.html)
+- Jun 27 - [Large US Banks Clear the Fed's Annual Stress Test](https://finance.yahoo.com/video/large-us-banks-clear-feds-205318260.html)
+- Jun 27 - [US did not use bunker-buster bombs on one of Iran’s nuclear sites, top general tells lawmakers, citing depth of the target](https://www.yahoo.com/news/us-did-not-bunker-buster-193231191.html)
 <!-- feed end -->
