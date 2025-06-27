@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Women usher in strength training’s new era](https://health.yahoo.com/wellness/fitness/exercise/articles/women-usher-strength-training-rsquo-173005167.html)
-- Jun 27 - [Residents express amazement after seeing mystery object streak across the sky](https://www.yahoo.com/news/residents-express-amazement-seeing-mystery-173005289.html)
+- Jun 27 - [Not so fast, sir ... One Capitol Hill bureaucrat stands in the way of Trump’s ‘Big Beautiful’ Fourth of July](https://www.yahoo.com/news/not-fast-sir-one-capitol-184920293.html)
+- Jun 27 - [Little Boy, 3, Unconscious After Falling 24 Feet into Zoo Enclosure. Seconds Later, Female Gorilla Picked Him Up](https://www.yahoo.com/news/little-boy-3-unconscious-falling-181345513.html)
 - Jun 27 - [A slain Minnesota lawmaker's beloved dog, Gilbert, stays with her as she and her spouse lie in state](https://www.yahoo.com/news/slain-minnesota-lawmakers-beloved-dog-172309957.html)
+- Jun 27 - [With a 63-Year History of Dividend Hikes, It's a King Among Kings](https://finance.yahoo.com/news/63-history-dividend-hikes-king-163400287.html)
 - Jun 27 - [Elena Kagan Torches Supreme Court’s Terrible Logic in Porn Ruling](https://www.yahoo.com/news/elena-kagan-torches-supreme-court-155218199.html)
-- Jun 27 - [Supreme Court’s Birthright Citizenship Ruling Is ‘Enormous Win’ for Trump and ‘Death Blow to the Rule of Law,’ MSNBC Legal Analyst Says](https://www.yahoo.com/news/supreme-court-birthright-citizenship-ruling-151829918.html)
 <!-- feed end -->
