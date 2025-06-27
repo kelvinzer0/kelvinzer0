@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 27 - [Supreme Court’s Birthright Citizenship Ruling Is ‘Enormous Win’ for Trump and ‘Death Blow to the Rule of Law,’ MSNBC Legal Analyst Says](https://www.yahoo.com/news/supreme-court-birthright-citizenship-ruling-151829918.html)
-- Jun 27 - [Owner of 175-year-old farm left in ‘shock’ as New Jersey town wants to seize his land for affordable housing](https://www.yahoo.com/news/owner-175-old-farm-left-143600816.html)
-- Jun 27 - [Small Mine Development to build portal and decline at California VMS deposit](https://finance.yahoo.com/news/small-mine-development-build-portal-135736509.html)
-- Jun 27 - [Kremlin says Estonia's readiness to host nuclear-capable NATO  jets threatens Russia](https://www.yahoo.com/news/kremlin-says-estonias-readiness-host-125443159.html)
-- Jun 27 - [Fed's preferred inflation gauge shows price increases accelerated in May](https://finance.yahoo.com/news/feds-preferred-inflation-gauge-shows-price-increases-accelerated-in-may-123850424.html)
+- Jun 27 - [A Submersible Uncovered Secret Structures. Then, It Vanished Under Antarctic Waters.](https://www.yahoo.com/news/submersible-uncovered-secret-structures-then-144800652.html)
+- Jun 27 - [India taking steps to mitigate disruptions due to China's rare earth curbs](https://finance.yahoo.com/news/india-taking-steps-mitigate-disruptions-141253438.html)
+- Jun 27 - [Wyoming Valley Mall remains closed for 3rd consecutive day](https://www.yahoo.com/news/wyoming-valley-mall-remains-closed-134749935.html)
+- Jun 27 - [McDonald's Announces Big Change to 'McValue Meal Deal' With New Item](https://www.yahoo.com/lifestyle/articles/mcdonalds-announces-big-change-mcvalue-130000765.html)
 <!-- feed end -->
