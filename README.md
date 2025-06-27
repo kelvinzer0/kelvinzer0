@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Are These 3 Bullish Signs Enough to Make Plug Power a Buy in June?](https://finance.yahoo.com/news/3-bullish-signs-enough-plug-134500693.html)
+- Jun 27 - [Supreme Court Rules With Trump On Birthright Citizenship Challenge](https://www.yahoo.com/news/supreme-court-rules-trump-birthright-141544466.html)
+- Jun 27 - [Unlikely Coyote and Bear Duo Caught Walking Side-By-Side Like Lifelong Friends in Incredible Footage](https://www.yahoo.com/lifestyle/articles/unlikely-coyote-bear-duo-caught-141500830.html)
+- Jun 27 - [Philadelphia woman says Greyhound gave her the runaround after discovering her $479 voucher had nothing on it](https://www.yahoo.com/lifestyle/articles/philadelphia-woman-says-greyhound-gave-131500232.html)
 - Jun 27 - [Kremlin says Estonia's readiness to host nuclear-capable NATO  jets threatens Russia](https://www.yahoo.com/news/kremlin-says-estonias-readiness-host-125443159.html)
-- Jun 27 - [US Consumer Spending Falls in May by Most This Year](https://finance.yahoo.com/video/us-consumer-spending-falls-may-124919771.html)
-- Jun 27 - [Photos show what Iran looked like before the 1979 revolution turned the nation into an Islamic republic](https://www.yahoo.com/news/25-photos-show-iran-looked-151100667.html)
 - Jun 27 - [Fed's preferred inflation gauge shows price increases accelerated in May](https://finance.yahoo.com/news/feds-preferred-inflation-gauge-shows-price-increases-accelerated-in-may-123850424.html)
 <!-- feed end -->
