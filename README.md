@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Congo and Rwanda to sign US-mediated peace deal to end conflict in eastern Congo](https://www.yahoo.com/news/congo-rwanda-sign-us-mediated-093712736.html)
+- Jun 27 - [Prediction: This Artificial Intelligence (AI) Stock Will Outperform the Market for the Next Decade](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-091000392.html)
+- Jun 27 - [Boy, 14, Ate Lunch in Teacher's Classroom Because He Had 'Issues Fitting In.' Now She's Accused of Drawing Curtains and Raping Him](https://www.yahoo.com/news/boy-14-ate-lunch-teachers-090000425.html)
+- Jun 27 - [Jackson's dissent isn't heroic. It exposes big problem with Supreme Court. | Opinion](https://www.yahoo.com/news/jacksons-dissent-isnt-heroic-exposes-083059694.html)
 - Jun 27 - [Democrats are trying to figure out what to do about John Fetterman. One of them is stepping up](https://www.yahoo.com/news/democrats-trying-figure-john-fetterman-040324017.html)
-- Jun 27 - [Japan executes man convicted of murder for killing and dismembering 9 people in his apartment](https://www.yahoo.com/news/japan-executes-man-convicted-murder-022251289.html)
-- Jun 26 - [Canadian man held by immigration officials dies in South Florida federal facility, officials say](https://www.yahoo.com/news/canadian-man-held-immigration-officials-222006116.html)
-- Jun 26 - [‘Fireball’ in the sky seen across metro Atlanta](https://www.yahoo.com/news/reports-fireball-sky-across-metro-172223181.html)
-- Jun 26 - [Lawmakers remove ‘revenge’ tax provision from Trump's big bill after Treasury Department request](https://www.yahoo.com/news/lawmakers-remove-revenge-tax-provision-213808877.html)
 <!-- feed end -->
