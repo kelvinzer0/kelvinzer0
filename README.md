@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Not so fast, sir ... One Capitol Hill bureaucrat stands in the way of Trump’s ‘Big Beautiful’ Fourth of July](https://www.yahoo.com/news/not-fast-sir-one-capitol-184920293.html)
-- Jun 27 - [Little Boy, 3, Unconscious After Falling 24 Feet into Zoo Enclosure. Seconds Later, Female Gorilla Picked Him Up](https://www.yahoo.com/news/little-boy-3-unconscious-falling-181345513.html)
-- Jun 27 - [A slain Minnesota lawmaker's beloved dog, Gilbert, stays with her as she and her spouse lie in state](https://www.yahoo.com/news/slain-minnesota-lawmakers-beloved-dog-172309957.html)
-- Jun 27 - [With a 63-Year History of Dividend Hikes, It's a King Among Kings](https://finance.yahoo.com/news/63-history-dividend-hikes-king-163400287.html)
-- Jun 27 - [Elena Kagan Torches Supreme Court’s Terrible Logic in Porn Ruling](https://www.yahoo.com/news/elena-kagan-torches-supreme-court-155218199.html)
+- Jun 27 - [US Air Force to retire all A-10s, cancel E-7 under 2026 spending plan](https://www.yahoo.com/news/us-air-force-retire-10s-193526698.html)
+- Jun 27 - [California court rules state insurance policy on smoke damage is unlawful](https://www.yahoo.com/news/california-court-rules-state-insurance-192827577.html)
+- Jun 27 - [Unjammable fiber-optic drones are taking over and turning Ukrainian forests into spiderwebs of wires, video shows](https://www.yahoo.com/news/unjammable-fiber-optic-drones-taking-184153596.html)
+- Jun 27 - [Prayers Pouring In After 29 Students Die In High School Tragedy](https://www.yahoo.com/news/prayers-pouring-29-students-die-183412798.html)
+- Jun 27 - [This cryptocurrency is bitcoin’s biggest challenger yet — and it just might take over your wallet](https://finance.yahoo.com/news/cryptocurrency-bitcoin-biggest-challenger-yet-182500576.html)
 <!-- feed end -->
