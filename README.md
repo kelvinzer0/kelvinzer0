@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - ['She's not coming back': Alawite women snatched from streets of Syria](https://www.yahoo.com/news/shes-not-coming-back-alawite-050552539.html)
 - Jun 27 - [Democrats are trying to figure out what to do about John Fetterman. One of them is stepping up](https://www.yahoo.com/news/democrats-trying-figure-john-fetterman-040324017.html)
-- Jun 27 - [Sean "Diddy" Combs' Son Justin Accused of Orchestrating Gang Rape](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-son-justin-033800007.html)
 - Jun 27 - [Japan executes man convicted of murder for killing and dismembering 9 people in his apartment](https://www.yahoo.com/news/japan-executes-man-convicted-murder-022251289.html)
-- Jun 26 - [Billionaire predicts 'Fantastic 40' companies by 2030, one surprise pick stands out](https://finance.yahoo.com/news/billionaire-predicts-fantastic-40-companies-231000066.html)
+- Jun 26 - [Las Vegas police release photos in May 18 robbery investigation](https://www.yahoo.com/news/las-vegas-police-release-photos-235148358.html)
+- Jun 26 - [Yikes: Fox News’ Brit Hume slams Fox vet Hegseth for berating Fox reporter at Pentagon](https://www.yahoo.com/news/yikes-fox-news-brit-hume-232718946.html)
+- Jun 26 - [Can You Guess What an Upper-Class Retiree's Monthly Income Looks Like? Here's What the Wealthy Are Actually Living On](https://finance.yahoo.com/news/guess-upper-class-retirees-monthly-223114813.html)
 <!-- feed end -->
