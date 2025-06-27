@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 26 - [Yikes: Fox News’ Brit Hume slams Fox vet Hegseth for berating Fox reporter at Pentagon](https://www.yahoo.com/news/yikes-fox-news-brit-hume-232718946.html)
+- Jun 27 - [Japan executes man convicted of murder for killing and dismembering 9 people in his apartment](https://www.yahoo.com/news/japan-executes-man-convicted-murder-022251289.html)
+- Jun 27 - [Fox News Host Rolls Her Eyes on Air Over Sen. Tom Cotton’s Iran Raid Assessment: ‘Is No One Concerned?’](https://www.yahoo.com/news/fox-news-host-rolls-her-005034151.html)
+- Jun 27 - [Armed 64-year-old woman blocks Texas highway in lawn chair during standoff: Officials](https://www.yahoo.com/news/armed-woman-blocks-texas-highway-225745233.html)
 - Jun 26 - [Canadian man held by immigration officials dies in South Florida federal facility, officials say](https://www.yahoo.com/news/canadian-man-held-immigration-officials-222006116.html)
-- Jun 26 - [HoneymoonTragedy: Man Dies After Blue Sky Lightning Strike](https://www.yahoo.com/news/honeymoontragedy-man-dies-blue-sky-221304667.html)
-- Jun 26 - [Lawmakers remove ‘revenge’ tax provision from Trump's big bill after Treasury Department request](https://www.yahoo.com/news/lawmakers-remove-revenge-tax-provision-213808877.html)
-- Jun 26 - [Trump approval rating: New poll released after US strikes on Iran](https://www.yahoo.com/news/trump-approval-rating-poll-released-202429348.html)
+- Jun 26 - [SpaceX says debris recovery attempts hindered after Starship explosion](https://www.yahoo.com/news/spacex-says-debris-recovery-attempts-214204412.html)
 <!-- feed end -->
