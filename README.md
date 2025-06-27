@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Congo and Rwanda to sign US-mediated peace deal to end conflict in eastern Congo](https://www.yahoo.com/news/congo-rwanda-sign-us-mediated-093712736.html)
-- Jun 27 - [Prediction: This Artificial Intelligence (AI) Stock Will Outperform the Market for the Next Decade](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-091000392.html)
+- Jun 27 - [Anna Wintour to Step Down as Editor-in-Chief of US Vogue](https://finance.yahoo.com/video/anna-wintour-step-down-editor-102013366.html)
+- Jun 27 - [Trump administration slaps down UK after MPs pass assisted dying bill](https://www.yahoo.com/news/trump-administration-slaps-down-uk-152641285.html)
 - Jun 27 - [Boy, 14, Ate Lunch in Teacher's Classroom Because He Had 'Issues Fitting In.' Now She's Accused of Drawing Curtains and Raping Him](https://www.yahoo.com/news/boy-14-ate-lunch-teachers-090000425.html)
 - Jun 27 - [Jackson's dissent isn't heroic. It exposes big problem with Supreme Court. | Opinion](https://www.yahoo.com/news/jacksons-dissent-isnt-heroic-exposes-083059694.html)
 - Jun 27 - [Democrats are trying to figure out what to do about John Fetterman. One of them is stepping up](https://www.yahoo.com/news/democrats-trying-figure-john-fetterman-040324017.html)
