@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Maine Lottery results: See winning numbers for Pick 3, Pick 4 on June 26, 2025](https://www.yahoo.com/news/maine-lottery-results-see-winning-041004610.html)
+- Jun 27 - ['She's not coming back': Alawite women snatched from streets of Syria](https://www.yahoo.com/news/shes-not-coming-back-alawite-050552539.html)
 - Jun 27 - [Democrats are trying to figure out what to do about John Fetterman. One of them is stepping up](https://www.yahoo.com/news/democrats-trying-figure-john-fetterman-040324017.html)
+- Jun 27 - [Sean "Diddy" Combs' Son Justin Accused of Orchestrating Gang Rape](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-son-justin-033800007.html)
 - Jun 27 - [Japan executes man convicted of murder for killing and dismembering 9 people in his apartment](https://www.yahoo.com/news/japan-executes-man-convicted-murder-022251289.html)
-- Jun 26 - [Can You Guess What an Upper-Class Retiree's Monthly Income Looks Like? Here's What the Wealthy Are Actually Living On](https://finance.yahoo.com/news/guess-upper-class-retirees-monthly-223114813.html)
-- Jun 26 - [Canadian man held by immigration officials dies in South Florida federal facility, officials say](https://www.yahoo.com/news/canadian-man-held-immigration-officials-222006116.html)
+- Jun 26 - [Billionaire predicts 'Fantastic 40' companies by 2030, one surprise pick stands out](https://finance.yahoo.com/news/billionaire-predicts-fantastic-40-companies-231000066.html)
 <!-- feed end -->
