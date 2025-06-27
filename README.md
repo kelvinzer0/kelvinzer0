@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 27 - [Are These 3 Bullish Signs Enough to Make Plug Power a Buy in June?](https://finance.yahoo.com/news/3-bullish-signs-enough-plug-134500693.html)
+- Jun 27 - [Kremlin says Estonia's readiness to host nuclear-capable NATO  jets threatens Russia](https://www.yahoo.com/news/kremlin-says-estonias-readiness-host-125443159.html)
 - Jun 27 - [US Consumer Spending Falls in May by Most This Year](https://finance.yahoo.com/video/us-consumer-spending-falls-may-124919771.html)
+- Jun 27 - [Photos show what Iran looked like before the 1979 revolution turned the nation into an Islamic republic](https://www.yahoo.com/news/25-photos-show-iran-looked-151100667.html)
 - Jun 27 - [Fed's preferred inflation gauge shows price increases accelerated in May](https://finance.yahoo.com/news/feds-preferred-inflation-gauge-shows-price-increases-accelerated-in-may-123850424.html)
-- Jun 27 - [Warren Buffett Says Taking Control of Berkshire Hathaway Was a Mistake That ‘Plagued Them for Two Decades’](https://finance.yahoo.com/news/warren-buffett-says-taking-control-120002133.html)
-- Jun 27 - [Oslo police announce rape and sexual assault charges against son of Norwegian crown princess](https://www.yahoo.com/news/oslo-police-announce-rape-sexual-114837704.html)
-- Jun 27 - [Experts issue warning over concerning spread of rare hornet species: 'Highly aggressive'](https://www.yahoo.com/news/experts-issue-warning-over-concerning-114023245.html)
 <!-- feed end -->
