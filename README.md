@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 27 - [Supreme Court Rules With Trump On Birthright Citizenship Challenge](https://www.yahoo.com/news/supreme-court-rules-trump-birthright-141544466.html)
-- Jun 27 - [Unlikely Coyote and Bear Duo Caught Walking Side-By-Side Like Lifelong Friends in Incredible Footage](https://www.yahoo.com/lifestyle/articles/unlikely-coyote-bear-duo-caught-141500830.html)
-- Jun 27 - [Philadelphia woman says Greyhound gave her the runaround after discovering her $479 voucher had nothing on it](https://www.yahoo.com/lifestyle/articles/philadelphia-woman-says-greyhound-gave-131500232.html)
+- Jun 27 - [Supreme Court’s Birthright Citizenship Ruling Is ‘Enormous Win’ for Trump and ‘Death Blow to the Rule of Law,’ MSNBC Legal Analyst Says](https://www.yahoo.com/news/supreme-court-birthright-citizenship-ruling-151829918.html)
+- Jun 27 - [Owner of 175-year-old farm left in ‘shock’ as New Jersey town wants to seize his land for affordable housing](https://www.yahoo.com/news/owner-175-old-farm-left-143600816.html)
+- Jun 27 - [Small Mine Development to build portal and decline at California VMS deposit](https://finance.yahoo.com/news/small-mine-development-build-portal-135736509.html)
 - Jun 27 - [Kremlin says Estonia's readiness to host nuclear-capable NATO  jets threatens Russia](https://www.yahoo.com/news/kremlin-says-estonias-readiness-host-125443159.html)
 - Jun 27 - [Fed's preferred inflation gauge shows price increases accelerated in May](https://finance.yahoo.com/news/feds-preferred-inflation-gauge-shows-price-increases-accelerated-in-may-123850424.html)
 <!-- feed end -->
