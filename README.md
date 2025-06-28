@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [US did not use bunker-buster bombs on one of Iran’s nuclear sites, top general tells lawmakers, citing depth of the target](https://www.yahoo.com/news/us-did-not-bunker-buster-193231191.html)
+- Jun 28 - [My wife and I have $7,000 in pensions, $140,000 cash, plus $3,500 in Social Security. Can we afford to retire?](https://finance.yahoo.com/news/wife-7-000-pensions-140-111300407.html)
 - Jun 28 - [Officials celebrate as key reservoir fills up for first time in years — here's what's happening](https://www.yahoo.com/news/officials-celebrate-key-reservoir-fills-103029471.html)
-- Jun 28 - [Wordle hints today for #1,470: Clues and answer for Saturday, June 28](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1470-clues-and-answer-for-saturday-june-28-040113249.html)
-- Jun 28 - [Astonishing new data reveals rapidly changing attitude toward Tesla vehicles — here's what you need to know](https://finance.yahoo.com/news/astonishing-data-reveals-rapidly-changing-002000768.html)
-- Jun 27 - [Jim Cramer has a six-word response to upcoming bull market](https://finance.yahoo.com/news/jim-cramer-six-word-response-230000411.html)
-- Jun 27 - [Sinaloa cartel used phone data and surveillance cameras to find FBI informants, DOJ says](https://www.yahoo.com/news/sinaloa-cartel-hacked-phones-surveillance-211818505.html)
+- Jun 28 - [Investigation uncovers huge smuggling network with shocking cargo: 'What we're seeing is just the tip of the iceberg'](https://www.yahoo.com/news/investigation-uncovers-huge-smuggling-network-103024353.html)
+- Jun 28 - [Mortgage and refinance interest rates today, June 28, 2025: Rates nosedive since last weekend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-june-28-2025-100023772.html)
 <!-- feed end -->
