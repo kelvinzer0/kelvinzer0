@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [Defendant talks his way into extra time](https://www.yahoo.com/news/defendant-talks-way-extra-time-204600907.html)
+- Jun 28 - [M2 Bradley Fighting Vehicle Appears In Russia With Locally Made 30mm Cannon](https://www.yahoo.com/news/m2-bradley-fighting-vehicle-appears-201729485.html)
 - Jun 28 - [A baby tiger was reported on the side of a California highway. The CHP found something very different](https://www.yahoo.com/news/baby-tiger-reported-side-california-191745943.html)
-- Jun 28 - [5 Cars With Trade-In Values So Low That They’re Not Worth Selling](https://autos.yahoo.com/5-cars-trade-values-low-150206736.html)
+- Jun 28 - [Eight people shot within nine hours in New Orleans](https://www.yahoo.com/news/eight-people-shot-within-nine-155041493.html)
 - Jun 28 - [Ukraine’s Operation Spider Web destroyed more than aircraft – it tore apart the old idea that bases far behind the front lines are safe](https://www.yahoo.com/news/ukraine-operation-spider-destroyed-more-145843504.html)
-- Jun 28 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-144100644.html)
-- Jun 28 - [Mortgage and refinance interest rates today, June 28, 2025: Rates nosedive since last weekend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-june-28-2025-100023772.html)
 <!-- feed end -->
