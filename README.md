@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Defendant talks his way into extra time](https://www.yahoo.com/news/defendant-talks-way-extra-time-204600907.html)
-- Jun 28 - [M2 Bradley Fighting Vehicle Appears In Russia With Locally Made 30mm Cannon](https://www.yahoo.com/news/m2-bradley-fighting-vehicle-appears-201729485.html)
 - Jun 28 - [A baby tiger was reported on the side of a California highway. The CHP found something very different](https://www.yahoo.com/news/baby-tiger-reported-side-california-191745943.html)
 - Jun 28 - [Eight people shot within nine hours in New Orleans](https://www.yahoo.com/news/eight-people-shot-within-nine-155041493.html)
 - Jun 28 - [Ukraine’s Operation Spider Web destroyed more than aircraft – it tore apart the old idea that bases far behind the front lines are safe](https://www.yahoo.com/news/ukraine-operation-spider-destroyed-more-145843504.html)
+- Jun 28 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-144100644.html)
+- Jun 28 - [This Stock Is Up 55,000% Since Its IPO: Here's 1 Reason It Could Still Be a Smart Buy](https://finance.yahoo.com/news/stock-55-000-since-ipo-114500785.html)
 <!-- feed end -->
