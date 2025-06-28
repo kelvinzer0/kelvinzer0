@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [A Russian drone strike on Odesa kills a married couple and injures 17 other people, Ukraine says](https://www.yahoo.com/news/russian-drone-strike-odesa-kills-103723794.html)
-- Jun 28 - [Gresham man stabbed 86-year-old in Fred Meyer parking lot before trying to steal Porsche](https://www.yahoo.com/news/gresham-man-stabbed-86-old-023344802.html)
+- Jun 28 - [Officials celebrate as key reservoir fills up for first time in years — here's what's happening](https://www.yahoo.com/news/officials-celebrate-key-reservoir-fills-103029471.html)
+- Jun 28 - [Tallying Up Biden's Immigration Damage](https://www.yahoo.com/news/tallying-bidens-immigration-damage-100153952.html)
+- Jun 28 - [Stocks usually rise by 10% a year. Those days may be over.](https://finance.yahoo.com/news/stocks-usually-rise-10-those-090352944.html)
 - Jun 28 - [Exclusive-Intel's top strategy officer to depart this month](https://finance.yahoo.com/news/exclusive-intels-top-strategy-officer-002850856.html)
-- Jun 27 - [Jesse Watters Hits Jasmine Crockett With A Shameful Dig — And Sadly, It Proves 1 Thing](https://www.yahoo.com/news/jesse-watters-hits-jasmine-crockett-214852975.html)
-- Jun 27 - [Sinaloa cartel used phone data and surveillance cameras to find FBI informants, DOJ says](https://www.yahoo.com/news/sinaloa-cartel-hacked-phones-surveillance-211818505.html)
+- Jun 28 - [Astonishing new data reveals rapidly changing attitude toward Tesla vehicles — here's what you need to know](https://finance.yahoo.com/news/astonishing-data-reveals-rapidly-changing-002000768.html)
 <!-- feed end -->
