@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Zohran Mamdani's Unapologetic Response To Being Asked If He "Likes" Capitalism Is Going Viral](https://www.yahoo.com/news/zohran-mamdanis-unapologetic-response-being-155400890.html)
 - Jun 28 - [Hundreds of flights delayed at Hartsfield-Jackson on Saturday morning](https://www.yahoo.com/news/hundreds-flights-delayed-hartsfield-jackson-124258742.html)
-- Jun 28 - [Troopers look for driver of hit-and-run on US-131](https://www.yahoo.com/news/troopers-look-driver-hit-run-111015464.html)
-- Jun 28 - [Officials celebrate as key reservoir fills up for first time in years — here's what's happening](https://www.yahoo.com/news/officials-celebrate-key-reservoir-fills-103029471.html)
+- Jun 28 - [Ukraine’s Operation Spider Web destroyed more than aircraft – it tore apart the old idea that bases far behind the front lines are safe](https://www.yahoo.com/news/ukraine-operation-spider-destroyed-more-145843504.html)
+- Jun 28 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-144100644.html)
 - Jun 28 - [Investigation uncovers huge smuggling network with shocking cargo: 'What we're seeing is just the tip of the iceberg'](https://www.yahoo.com/news/investigation-uncovers-huge-smuggling-network-103024353.html)
+- Jun 28 - [Mortgage and refinance interest rates today, June 28, 2025: Rates nosedive since last weekend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-june-28-2025-100023772.html)
 <!-- feed end -->
