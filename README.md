@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 28 - [3 Monster High-Yield Stocks to Hold for the Next 10 Years](https://finance.yahoo.com/news/3-monster-high-yield-stocks-060500133.html)
 - Jun 28 - [Exclusive-Intel's top strategy officer to depart this month](https://finance.yahoo.com/news/exclusive-intels-top-strategy-officer-002850856.html)
 - Jun 28 - [Astonishing new data reveals rapidly changing attitude toward Tesla vehicles — here's what you need to know](https://finance.yahoo.com/news/astonishing-data-reveals-rapidly-changing-002000768.html)
-- Jun 27 - [Jesse Watters Hits Jasmine Crockett With A Shameful Dig — And Sadly, It Proves 1 Thing](https://www.yahoo.com/news/jesse-watters-hits-jasmine-crockett-214852975.html)
-- Jun 27 - [Sinaloa cartel used phone data and surveillance cameras to find FBI informants, DOJ says](https://www.yahoo.com/news/sinaloa-cartel-hacked-phones-surveillance-211818505.html)
-- Jun 27 - [2028 Dem frontrunner beating Kamala Harris has 0% Black support, poll finds](https://www.yahoo.com/news/2028-dem-frontrunner-beating-kamala-210005196.html)
+- Jun 27 - [Jim Cramer has a six-word response to upcoming bull market](https://finance.yahoo.com/news/jim-cramer-six-word-response-230000411.html)
+- Jun 27 - [‘Kiss of death’: South Florida reacts to end of Haiti’s Temporary Protected Status](https://www.yahoo.com/news/kiss-death-south-florida-reacts-224944934.html)
 <!-- feed end -->
