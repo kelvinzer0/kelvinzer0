@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Big crowds gather in Hungarian capital to defy ban on Budapest Pride](https://www.yahoo.com/news/big-crowds-gather-hungarian-capital-143001681.html)
+- Jun 28 - [Zohran Mamdani's Unapologetic Response To Being Asked If He "Likes" Capitalism Is Going Viral](https://www.yahoo.com/news/zohran-mamdanis-unapologetic-response-being-155400890.html)
 - Jun 28 - [Hundreds of flights delayed at Hartsfield-Jackson on Saturday morning](https://www.yahoo.com/news/hundreds-flights-delayed-hartsfield-jackson-124258742.html)
-- Jun 28 - [This BlackRock ETF Could Soar 12,770%, According to Billionaire Michael Saylor](https://finance.yahoo.com/news/blackrock-etf-could-soar-12-113000812.html)
-- Jun 28 - [My wife and I have $7,000 in pensions, $140,000 cash, plus $3,500 in Social Security. Can we afford to retire?](https://finance.yahoo.com/news/wife-7-000-pensions-140-111300407.html)
+- Jun 28 - [Troopers look for driver of hit-and-run on US-131](https://www.yahoo.com/news/troopers-look-driver-hit-run-111015464.html)
+- Jun 28 - [Officials celebrate as key reservoir fills up for first time in years — here's what's happening](https://www.yahoo.com/news/officials-celebrate-key-reservoir-fills-103029471.html)
 - Jun 28 - [Investigation uncovers huge smuggling network with shocking cargo: 'What we're seeing is just the tip of the iceberg'](https://www.yahoo.com/news/investigation-uncovers-huge-smuggling-network-103024353.html)
 <!-- feed end -->
