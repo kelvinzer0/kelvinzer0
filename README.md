@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Hundreds of flights delayed at Hartsfield-Jackson on Saturday morning](https://www.yahoo.com/news/hundreds-flights-delayed-hartsfield-jackson-124258742.html)
+- Jun 28 - [Biden, Harris and Walz attend funeral of Democratic lawmaker assassinated in Minnesota alongside her husband](https://www.yahoo.com/news/biden-harris-walz-attend-funeral-172301351.html)
+- Jun 28 - [What's in the latest version of Trump's big bill now before the Senate](https://www.yahoo.com/news/whats-latest-version-trumps-big-175642207.html)
+- Jun 28 - [Lockheed Martin (LMT) Announced the Successful Execution of Flight Test Other-26a](https://finance.yahoo.com/news/lockheed-martin-lmt-announced-successful-163042863.html)
 - Jun 28 - [Ukraine’s Operation Spider Web destroyed more than aircraft – it tore apart the old idea that bases far behind the front lines are safe](https://www.yahoo.com/news/ukraine-operation-spider-destroyed-more-145843504.html)
 - Jun 28 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-144100644.html)
-- Jun 28 - [Investigation uncovers huge smuggling network with shocking cargo: 'What we're seeing is just the tip of the iceberg'](https://www.yahoo.com/news/investigation-uncovers-huge-smuggling-network-103024353.html)
-- Jun 28 - [Mortgage and refinance interest rates today, June 28, 2025: Rates nosedive since last weekend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-june-28-2025-100023772.html)
 <!-- feed end -->
