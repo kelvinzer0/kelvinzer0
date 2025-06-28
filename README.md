@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 28 - [Officials celebrate as key reservoir fills up for first time in years — here's what's happening](https://www.yahoo.com/news/officials-celebrate-key-reservoir-fills-103029471.html)
-- Jun 28 - [Tallying Up Biden's Immigration Damage](https://www.yahoo.com/news/tallying-bidens-immigration-damage-100153952.html)
-- Jun 28 - [Stocks usually rise by 10% a year. Those days may be over.](https://finance.yahoo.com/news/stocks-usually-rise-10-those-090352944.html)
-- Jun 28 - [Exclusive-Intel's top strategy officer to depart this month](https://finance.yahoo.com/news/exclusive-intels-top-strategy-officer-002850856.html)
+- Jun 28 - [Wordle hints today for #1,470: Clues and answer for Saturday, June 28](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1470-clues-and-answer-for-saturday-june-28-040113249.html)
 - Jun 28 - [Astonishing new data reveals rapidly changing attitude toward Tesla vehicles — here's what you need to know](https://finance.yahoo.com/news/astonishing-data-reveals-rapidly-changing-002000768.html)
+- Jun 27 - [Jim Cramer has a six-word response to upcoming bull market](https://finance.yahoo.com/news/jim-cramer-six-word-response-230000411.html)
+- Jun 27 - [Sinaloa cartel used phone data and surveillance cameras to find FBI informants, DOJ says](https://www.yahoo.com/news/sinaloa-cartel-hacked-phones-surveillance-211818505.html)
 <!-- feed end -->
