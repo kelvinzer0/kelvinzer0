@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 28 - [Biden, Harris and Walz attend funeral of Democratic lawmaker assassinated in Minnesota alongside her husband](https://www.yahoo.com/news/biden-harris-walz-attend-funeral-172301351.html)
-- Jun 28 - [My 17-year-old will probably skip college and attend flight school instead. I think that's a smart plan.](https://www.yahoo.com/lifestyle/articles/17-old-probably-skip-college-181301568.html)
+- Jun 28 - [Irish rappers Kneecap perform controversial Glastonbury set](https://www.yahoo.com/news/irish-rappers-kneecap-perform-controversial-195630609.html)
+- Jun 28 - [A baby tiger was reported on the side of a California highway. The CHP found something very different](https://www.yahoo.com/news/baby-tiger-reported-side-california-191745943.html)
 - Jun 28 - [Quick-thinking Utah car dealer foils $95K auto theft scheme after spotting truck had a ‘suspicious’ VIN](https://autos.yahoo.com/quick-thinking-utah-car-dealer-161700150.html)
-- Jun 28 - [Eight people shot within nine hours in New Orleans](https://www.yahoo.com/news/eight-people-shot-within-nine-155041493.html)
-- Jun 28 - [5 Cars With Trade-In Values So Low That They’re Not Worth Selling](https://autos.yahoo.com/5-cars-trade-values-low-150206736.html)
+- Jun 28 - [Ukraine’s Operation Spider Web destroyed more than aircraft – it tore apart the old idea that bases far behind the front lines are safe](https://www.yahoo.com/news/ukraine-operation-spider-destroyed-more-145843504.html)
+- Jun 28 - [For the First Time Ever, the Colossal Squid Might Have Shown Its Secret Face](https://www.yahoo.com/news/first-time-ever-colossal-squid-144100644.html)
 <!-- feed end -->
