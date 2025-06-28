@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jun 28 - [Exclusive-Intel's top strategy officer to depart this month](https://finance.yahoo.com/news/exclusive-intels-top-strategy-officer-002850856.html)
 - Jun 27 - [US did not use bunker-buster bombs on one of Iran’s nuclear sites, top general tells lawmakers, citing depth of the target](https://www.yahoo.com/news/us-did-not-bunker-buster-193231191.html)
+- Jun 27 - [Jim Cramer has a six-word response to upcoming bull market](https://finance.yahoo.com/news/jim-cramer-six-word-response-230000411.html)
 - Jun 27 - [A Big Win: Rep. Lawler on Tentative SALT Deal Reached](https://finance.yahoo.com/video/big-win-rep-lawler-tentative-215252140.html)
 - Jun 27 - [Jesse Watters Hits Jasmine Crockett With A Shameful Dig — And Sadly, It Proves 1 Thing](https://www.yahoo.com/news/jesse-watters-hits-jasmine-crockett-214852975.html)
-- Jun 27 - [Sinaloa cartel used phone data and surveillance cameras to find FBI informants, DOJ says](https://www.yahoo.com/news/sinaloa-cartel-hacked-phones-surveillance-211818505.html)
 <!-- feed end -->
