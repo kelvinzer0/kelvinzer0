@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 29 - [Man allegedly shoots at neighbor in Northern California, prompts standoff with police](https://www.yahoo.com/news/man-allegedly-shoots-neighbor-northern-001859248.html)
-- Jun 28 - [Man who rushed in to aid girl bitten in Boca Grande shark attack now facing deportation](https://www.yahoo.com/news/man-rushed-aid-girl-bitten-212415906.html)
 - Jun 28 - [M2 Bradley Fighting Vehicle Appears In Russia With Locally Made 30mm Cannon](https://www.yahoo.com/news/m2-bradley-fighting-vehicle-appears-201729485.html)
 - Jun 28 - [A baby tiger was reported on the side of a California highway. The CHP found something very different](https://www.yahoo.com/news/baby-tiger-reported-side-california-191745943.html)
+- Jun 28 - [California woman's swim in Hawaii turns deadly, despite bystanders' rescue efforts, police say](https://www.yahoo.com/news/california-womans-swim-hawaii-turns-174652416.html)
 - Jun 28 - [Lockheed Martin (LMT) Announced the Successful Execution of Flight Test Other-26a](https://finance.yahoo.com/news/lockheed-martin-lmt-announced-successful-163042863.html)
 <!-- feed end -->
