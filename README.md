@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Police rescue emaciated newborn baby from Phoenix apartment days after its mother died](https://www.yahoo.com/news/police-rescue-emaciated-newborn-baby-210756510.html)
 - Jun 29 - [Doctors And Nurses Are Revealing The "Small" Health Signs You Should Never Ignore, And It's Shocking](https://www.yahoo.com/news/doctors-nurses-revealing-small-health-202102255.html)
+- Jun 29 - [Tangled straps likely caused Air Force instructor pilot’s death, report finds](https://www.yahoo.com/news/tangled-straps-likely-caused-air-201421932.html)
+- Jun 29 - [NewsMinute 5P (CR)](https://www.yahoo.com/news/newsminute-5p-cr-194832760.html)
 - Jun 29 - [5 People Killed In 'Massive' U.S. Highway Car Accident](https://www.yahoo.com/news/5-people-killed-massive-u-191350113.html)
-- Jun 29 - [Stormchasers Capture Stunning South Dakota Tornadoes](https://www.yahoo.com/news/stormchasers-capture-stunning-south-dakota-183629970.html)
-- Jun 29 - [Intercepted Iranian communications downplay damage from US attack, Washington Post reports](https://www.yahoo.com/news/intercepted-iranian-communications-downplay-damage-181643974.html)
-- Jun 29 - [Thom Tillis says he will retire following Trump attacks](https://www.yahoo.com/news/thom-tillis-says-retire-following-173552945.html)
 <!-- feed end -->
