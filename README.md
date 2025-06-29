@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Which "Magnificent Seven" Stock Makes the Best Buy for the Second Half?](https://finance.yahoo.com/news/magnificent-seven-stock-makes-best-191500729.html)
-- Jun 29 - [Stormchasers Capture Stunning South Dakota Tornadoes](https://www.yahoo.com/news/stormchasers-capture-stunning-south-dakota-183629970.html)
+- Jun 29 - [Doctors And Nurses Are Revealing The "Small" Health Signs You Should Never Ignore, And It's Shocking](https://www.yahoo.com/news/doctors-nurses-revealing-small-health-202102255.html)
 - Jun 29 - [Intercepted Iranian communications downplay damage from US attack, Washington Post reports](https://www.yahoo.com/news/intercepted-iranian-communications-downplay-damage-181643974.html)
-- Jun 29 - [Former University of Michigan coach Jim Harbaugh named in class action suit against Matt Weiss](https://www.yahoo.com/news/former-university-michigan-coach-jim-174232969.html)
 - Jun 29 - [Thom Tillis says he will retire following Trump attacks](https://www.yahoo.com/news/thom-tillis-says-retire-following-173552945.html)
+- Jun 29 - [Atlanta drivers have been losing thousands to ‘water boys’ — here's how the sneaky water-bottle scam works](https://www.yahoo.com/news/atlanta-drivers-losing-thousands-water-170000857.html)
+- Jun 29 - ['World's Hottest Police Officer' Goes Viral At The Beach](https://www.yahoo.com/entertainment/articles/worlds-hottest-police-officer-goes-153543840.html)
 <!-- feed end -->
