@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Trump leaves Maria Bartiromo speechless after suggesting US is hacking China: ‘You don’t think we do that?’](https://www.yahoo.com/news/trump-leaves-maria-bartiromo-speechless-144824982.html)
+- Jun 29 - [CBS News reports from inside Tehran as city mourns those killed in airstrikes](https://www.yahoo.com/news/cbs-news-reports-inside-tehran-164226056.html)
 - Jun 29 - [Republican Senator Mullin says babies born in US should be deported if parents are](https://www.yahoo.com/news/republican-senator-mullin-says-babies-152541129.html)
-- Jun 29 - [Trump attacks Republicans who voted against ‘big beautiful Bill’](https://www.yahoo.com/news/trump-attacks-republicans-voted-against-150020134.html)
+- Jun 29 - [Abandoned pregnant dog has puppies after rescue](https://www.yahoo.com/lifestyle/articles/abandoned-pregnant-dog-puppies-rescue-150915173.html)
+- Jun 29 - [El Salvador president threatens to send imprisoned gangsters to Paris Fashion Week](https://www.yahoo.com/news/el-salvador-president-threatens-send-141957325.html)
 - Jun 29 - [The USPS warns Americans of new ‘brushing’ scam, says to treat personal info 'like cash' — here's what to know](https://www.yahoo.com/news/usps-warns-americans-brushing-scam-140000360.html)
-- Jun 29 - [The #1 Herb for Healthy Blood Pressure, According to Experts](https://health.yahoo.com/conditions/cardiovascular-health/articles/1-herb-healthy-blood-pressure-140000110.html)
 <!-- feed end -->
