@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [More than 500 people injured after "stampede" at Hindu festival](https://www.yahoo.com/news/more-500-people-injured-stampede-122746219.html)
-- Jun 29 - [This Is the Reason Planes Dim the Cabin Lights During Takeoff and Landing](https://www.yahoo.com/news/reason-planes-dim-cabin-lights-110000480.html)
-- Jun 29 - [Wordle hints today for #1,471: Clues and answer for Sunday, June 29](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1471-clues-and-answer-for-sunday-june-29-040108944.html)
-- Jun 29 - [Man allegedly shoots at neighbor in Northern California, prompts standoff with police](https://www.yahoo.com/news/man-allegedly-shoots-neighbor-northern-001859248.html)
-- Jun 28 - [TSA Just Banned This Popular ID at Airports: 'Sorry'](https://www.yahoo.com/news/tsa-just-banned-popular-id-230324777.html)
+- Jun 29 - [Colorado funeral home owner sentenced to 20 years after stashing nearly 190 decaying bodies](https://www.yahoo.com/news/colorado-funeral-home-owner-sentenced-095521817.html)
+- Jun 29 - [Over a third of people on sinking Tuvalu seek Australia's climate visas](https://www.yahoo.com/news/over-third-people-sinking-tuvalu-094726544.html)
+- Jun 29 - [Canton's Monumental 4th celebration will be July 3. Here's the event details](https://www.yahoo.com/news/cantons-monumental-4th-celebration-july-094517600.html)
+- Jun 29 - [To fight Trump's funding freezes, states try a new gambit: Withholding federal payments](https://www.yahoo.com/news/fight-trumps-funding-freezes-states-093000945.html)
+- Jun 29 - [Thanks, Supreme Court! It's now my right to prevent my kid from learning about Trump. | Opinion](https://www.yahoo.com/news/thanks-supreme-court-now-prevent-090543151.html)
 <!-- feed end -->
