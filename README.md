@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Colorado funeral home owner sentenced to 20 years after stashing nearly 190 decaying bodies](https://www.yahoo.com/news/colorado-funeral-home-owner-sentenced-095521817.html)
-- Jun 29 - [Over a third of people on sinking Tuvalu seek Australia's climate visas](https://www.yahoo.com/news/over-third-people-sinking-tuvalu-094726544.html)
-- Jun 29 - [Canton's Monumental 4th celebration will be July 3. Here's the event details](https://www.yahoo.com/news/cantons-monumental-4th-celebration-july-094517600.html)
-- Jun 29 - [To fight Trump's funding freezes, states try a new gambit: Withholding federal payments](https://www.yahoo.com/news/fight-trumps-funding-freezes-states-093000945.html)
+- Jun 29 - [Ukrainian F-16 pilot killed while shooting Russian missiles out of sky](https://www.yahoo.com/news/ukrainian-f-16-pilot-killed-124642697.html)
+- Jun 29 - [Targeted Minnesota Lawmaker and Husband Are Laid to Rest](https://www.yahoo.com/news/targeted-minnesota-lawmaker-husband-laid-122622457.html)
+- Jun 29 - [Car Experts: 6 Car Models That Will Break Down More Than the Average Vehicle](https://autos.yahoo.com/car-experts-6-car-models-120205864.html)
+- Jun 29 - [Scientists make surprising discovery about drinks stored in glass bottles: 'We were expecting the opposite result'](https://www.yahoo.com/news/scientists-surprising-discovery-drinks-stored-111521693.html)
 - Jun 29 - [Thanks, Supreme Court! It's now my right to prevent my kid from learning about Trump. | Opinion](https://www.yahoo.com/news/thanks-supreme-court-now-prevent-090543151.html)
 <!-- feed end -->
