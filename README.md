@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Deputies: Theft increase across southern Kent County](https://www.yahoo.com/news/deputies-theft-increase-across-southern-030537201.html)
+- Jun 29 - [Trump megabill narrowly advances in Senate despite two GOP defections](https://www.yahoo.com/news/trump-megabill-narrowly-advances-senate-031745152.html)
+- Jun 29 - [Hundreds of flights delayed at Hartsfield-Jackson Atlanta International Airport](https://www.yahoo.com/news/hundreds-flights-delayed-hartsfield-jackson-124258742.html)
 - Jun 29 - [Man allegedly shoots at neighbor in Northern California, prompts standoff with police](https://www.yahoo.com/news/man-allegedly-shoots-neighbor-northern-001859248.html)
 - Jun 28 - [M2 Bradley Fighting Vehicle Appears In Russia With Locally Made 30mm Cannon](https://www.yahoo.com/news/m2-bradley-fighting-vehicle-appears-201729485.html)
 - Jun 28 - [A baby tiger was reported on the side of a California highway. The CHP found something very different](https://www.yahoo.com/news/baby-tiger-reported-side-california-191745943.html)
-- Jun 28 - [Lockheed Martin (LMT) Announced the Successful Execution of Flight Test Other-26a](https://finance.yahoo.com/news/lockheed-martin-lmt-announced-successful-163042863.html)
 <!-- feed end -->
