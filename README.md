@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [CBS News reports from inside Tehran as city mourns those killed in airstrikes](https://www.yahoo.com/news/cbs-news-reports-inside-tehran-164226056.html)
+- Jun 29 - [Thom Tillis says he will retire following Trump attacks](https://www.yahoo.com/news/thom-tillis-says-retire-following-173552945.html)
+- Jun 29 - [Atlanta drivers have been losing thousands to ‘water boys’ — here's how the sneaky water-bottle scam works](https://www.yahoo.com/news/atlanta-drivers-losing-thousands-water-170000857.html)
 - Jun 29 - [Republican Senator Mullin says babies born in US should be deported if parents are](https://www.yahoo.com/news/republican-senator-mullin-says-babies-152541129.html)
-- Jun 29 - [Abandoned pregnant dog has puppies after rescue](https://www.yahoo.com/lifestyle/articles/abandoned-pregnant-dog-puppies-rescue-150915173.html)
-- Jun 29 - [El Salvador president threatens to send imprisoned gangsters to Paris Fashion Week](https://www.yahoo.com/news/el-salvador-president-threatens-send-141957325.html)
 - Jun 29 - [The USPS warns Americans of new ‘brushing’ scam, says to treat personal info 'like cash' — here's what to know](https://www.yahoo.com/news/usps-warns-americans-brushing-scam-140000360.html)
+- Jun 29 - [Scientists make surprising discovery about drinks stored in glass bottles: 'We were expecting the opposite result'](https://www.yahoo.com/news/scientists-surprising-discovery-drinks-stored-111521693.html)
 <!-- feed end -->
