@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [US Senate pushes ahead on Trump tax cuts as nonpartisan analysis raises price tag](https://www.yahoo.com/news/us-senate-pushes-ahead-trump-184800880.html)
+- Jun 29 - [Which "Magnificent Seven" Stock Makes the Best Buy for the Second Half?](https://finance.yahoo.com/news/magnificent-seven-stock-makes-best-191500729.html)
+- Jun 29 - [Stormchasers Capture Stunning South Dakota Tornadoes](https://www.yahoo.com/news/stormchasers-capture-stunning-south-dakota-183629970.html)
 - Jun 29 - [Intercepted Iranian communications downplay damage from US attack, Washington Post reports](https://www.yahoo.com/news/intercepted-iranian-communications-downplay-damage-181643974.html)
-- Jun 29 - [Trump Says Working on Temporary Pass for Migrant Farm, Hotel Workers](https://www.barrons.com/livecoverage/sundaynews0629/card/trump-says-working-on-temporary-pass-for-migrant-farm-hotel-workers-6DiLAmLiBYLl2DMMi2F0?siteid=yhoof2&yptr=yahoo)
-- Jun 29 - [CBS News reports from inside Tehran as city mourns those killed in airstrikes](https://www.yahoo.com/news/cbs-news-reports-inside-tehran-164226056.html)
-- Jun 29 - [President Trump's Official Golf Handicap Is Making Headlines](https://sports.yahoo.com/article/president-trumps-official-golf-handicap-155042207.html)
+- Jun 29 - [Former University of Michigan coach Jim Harbaugh named in class action suit against Matt Weiss](https://www.yahoo.com/news/former-university-michigan-coach-jim-174232969.html)
+- Jun 29 - [Thom Tillis says he will retire following Trump attacks](https://www.yahoo.com/news/thom-tillis-says-retire-following-173552945.html)
 <!-- feed end -->
