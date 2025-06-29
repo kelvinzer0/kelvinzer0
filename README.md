@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Elton John: We've made great progress on HIV/AIDS. Budget cuts threaten to set us back.](https://www.yahoo.com/news/elton-john-weve-made-great-093042025.html)
 - Jun 29 - [Tourists are trickling into Afghanistan and the Taliban government is eager to welcome them](https://www.yahoo.com/news/tourists-trickling-afghanistan-taliban-government-053857979.html)
-- Jun 29 - [Turnpike frustrations continue in Norman](https://www.yahoo.com/news/turnpike-frustrations-continue-norman-041142991.html)
 - Jun 29 - [After decades in the US, Iranians arrested in Trump’s deportation drive](https://www.yahoo.com/news/decades-us-iranians-arrested-trump-035924838.html)
+- Jun 29 - [Man allegedly shoots at neighbor in Northern California, prompts standoff with police](https://www.yahoo.com/news/man-allegedly-shoots-neighbor-northern-001859248.html)
+- Jun 28 - [Senate bill hastens end of wind, solar tax credits and imposes new tax](https://www.yahoo.com/news/senate-bill-hastens-end-wind-233417925.html)
 - Jun 28 - [Man who rushed in to aid girl bitten in Boca Grande shark attack now facing deportation](https://www.yahoo.com/news/man-rushed-aid-girl-bitten-212415906.html)
 <!-- feed end -->
