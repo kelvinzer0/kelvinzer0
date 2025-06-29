@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Conservatives happier than liberals? Register readers weigh in. | Letters](https://www.yahoo.com/news/conservatives-happier-liberals-register-readers-141325280.html)
+- Jun 29 - [Trump leaves Maria Bartiromo speechless after suggesting US is hacking China: ‘You don’t think we do that?’](https://www.yahoo.com/news/trump-leaves-maria-bartiromo-speechless-144824982.html)
+- Jun 29 - [Republican Senator Mullin says babies born in US should be deported if parents are](https://www.yahoo.com/news/republican-senator-mullin-says-babies-152541129.html)
+- Jun 29 - [Trump attacks Republicans who voted against ‘big beautiful Bill’](https://www.yahoo.com/news/trump-attacks-republicans-voted-against-150020134.html)
 - Jun 29 - [The USPS warns Americans of new ‘brushing’ scam, says to treat personal info 'like cash' — here's what to know](https://www.yahoo.com/news/usps-warns-americans-brushing-scam-140000360.html)
-- Jun 29 - [Young man in life-threatening condition after car ploughs into fountain at London Piccadilly Circus](https://www.yahoo.com/news/car-ploughs-fountain-london-piccadilly-092539344.html)
-- Jun 29 - [Scientists make surprising discovery about drinks stored in glass bottles: 'We were expecting the opposite result'](https://www.yahoo.com/news/scientists-surprising-discovery-drinks-stored-111521693.html)
-- Jun 29 - [Ukraine F-16 pilot killed in large-scale Russian attack, Zelenskiy calls for US help](https://www.yahoo.com/news/least-six-wounded-large-scale-063712656.html)
+- Jun 29 - [The #1 Herb for Healthy Blood Pressure, According to Experts](https://health.yahoo.com/conditions/cardiovascular-health/articles/1-herb-healthy-blood-pressure-140000110.html)
 <!-- feed end -->
