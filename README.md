@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Tourists are trickling into Afghanistan and the Taliban government is eager to welcome them](https://www.yahoo.com/news/tourists-trickling-afghanistan-taliban-government-053857979.html)
-- Jun 29 - [After decades in the US, Iranians arrested in Trump’s deportation drive](https://www.yahoo.com/news/decades-us-iranians-arrested-trump-035924838.html)
+- Jun 29 - [More than 500 people injured after "stampede" at Hindu festival](https://www.yahoo.com/news/more-500-people-injured-stampede-122746219.html)
+- Jun 29 - [This Is the Reason Planes Dim the Cabin Lights During Takeoff and Landing](https://www.yahoo.com/news/reason-planes-dim-cabin-lights-110000480.html)
+- Jun 29 - [Wordle hints today for #1,471: Clues and answer for Sunday, June 29](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1471-clues-and-answer-for-sunday-june-29-040108944.html)
 - Jun 29 - [Man allegedly shoots at neighbor in Northern California, prompts standoff with police](https://www.yahoo.com/news/man-allegedly-shoots-neighbor-northern-001859248.html)
-- Jun 28 - [Senate bill hastens end of wind, solar tax credits and imposes new tax](https://www.yahoo.com/news/senate-bill-hastens-end-wind-233417925.html)
-- Jun 28 - [Man who rushed in to aid girl bitten in Boca Grande shark attack now facing deportation](https://www.yahoo.com/news/man-rushed-aid-girl-bitten-212415906.html)
+- Jun 28 - [TSA Just Banned This Popular ID at Airports: 'Sorry'](https://www.yahoo.com/news/tsa-just-banned-popular-id-230324777.html)
 <!-- feed end -->
