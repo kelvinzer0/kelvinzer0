@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 29 - [Tourists are trickling into Afghanistan and the Taliban government is eager to welcome them](https://www.yahoo.com/news/tourists-trickling-afghanistan-taliban-government-053857979.html)
 - Jun 29 - [After decades in the US, Iranians arrested in Trump’s deportation drive](https://www.yahoo.com/news/decades-us-iranians-arrested-trump-035924838.html)
+- Jun 29 - [Hundreds of flights delayed at Hartsfield-Jackson Atlanta International Airport](https://www.yahoo.com/news/hundreds-flights-delayed-hartsfield-jackson-124258742.html)
 - Jun 29 - [Man allegedly shoots at neighbor in Northern California, prompts standoff with police](https://www.yahoo.com/news/man-allegedly-shoots-neighbor-northern-001859248.html)
-- Jun 28 - [Man who rushed in to aid girl bitten in Boca Grande shark attack now facing deportation](https://www.yahoo.com/news/man-rushed-aid-girl-bitten-212415906.html)
-- Jun 28 - [Falling home prices are raising the risk of a deeper correction as the housing market cracks under high mortgage rates](https://finance.yahoo.com/news/falling-home-prices-raising-risk-194526775.html)
-- Jun 28 - [A baby tiger was reported on the side of a California highway. The CHP found something very different](https://www.yahoo.com/news/baby-tiger-reported-side-california-191745943.html)
+- Jun 28 - [M2 Bradley Fighting Vehicle Appears In Russia With Locally Made 30mm Cannon](https://www.yahoo.com/news/m2-bradley-fighting-vehicle-appears-201729485.html)
 <!-- feed end -->
