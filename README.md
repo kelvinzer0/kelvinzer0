@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jun 29 - [Doctors And Nurses Are Revealing The "Small" Health Signs You Should Never Ignore, And It's Shocking](https://www.yahoo.com/news/doctors-nurses-revealing-small-health-202102255.html)
+- Jun 29 - [5 People Killed In 'Massive' U.S. Highway Car Accident](https://www.yahoo.com/news/5-people-killed-massive-u-191350113.html)
+- Jun 29 - [Stormchasers Capture Stunning South Dakota Tornadoes](https://www.yahoo.com/news/stormchasers-capture-stunning-south-dakota-183629970.html)
 - Jun 29 - [Intercepted Iranian communications downplay damage from US attack, Washington Post reports](https://www.yahoo.com/news/intercepted-iranian-communications-downplay-damage-181643974.html)
 - Jun 29 - [Thom Tillis says he will retire following Trump attacks](https://www.yahoo.com/news/thom-tillis-says-retire-following-173552945.html)
-- Jun 29 - [Atlanta drivers have been losing thousands to ‘water boys’ — here's how the sneaky water-bottle scam works](https://www.yahoo.com/news/atlanta-drivers-losing-thousands-water-170000857.html)
-- Jun 29 - ['World's Hottest Police Officer' Goes Viral At The Beach](https://www.yahoo.com/entertainment/articles/worlds-hottest-police-officer-goes-153543840.html)
 <!-- feed end -->
