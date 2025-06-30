@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Microsoft AI CEO Mustafa Suleyman: AI can provide complex medical support, diagnoses](https://finance.yahoo.com/news/microsoft-ai-ceo-mustafa-suleyman-ai-can-provide-complex-medical-support-diagnoses-143458485.html)
+- Jun 30 - [Citi expects gold price to consolidate around $3,100-$3,500 in third quarter](https://finance.yahoo.com/news/citi-expects-gold-price-consolidate-155122462.html)
+- Jun 30 - [Iran-linked hackers may target U.S. firms and critical infrastructure, U.S. government warns](https://www.yahoo.com/news/iran-linked-hackers-may-target-153903288.html)
+- Jun 30 - [Kristi Noem secretly accepted huge sum of money from mystery donor - then failed to declare it: report](https://www.yahoo.com/news/kristi-noem-secretly-accepted-huge-152942068.html)
+- Jun 30 - [One chart shows how brutal the housing market has become for first-time buyers](https://finance.yahoo.com/news/one-chart-shows-brutal-housing-230808358.html)
 - Jun 30 - [US Supreme Court won't hear free speech fight over teacher fired for social media posts](https://www.yahoo.com/news/us-supreme-court-wont-hear-135207110.html)
-- Jun 30 - [Why Wall Street is worried despite record market highs](https://finance.yahoo.com/video/why-wall-street-worried-despite-134040996.html)
-- Jun 30 - [Two firefighters killed in Idaho sniper ambush, authorities say](https://www.yahoo.com/news/two-firefighters-killed-idaho-sniper-131247977.html)
-- Jun 30 - [Scientists Discovered a New Creature That Exists Between Life and Not-Life](https://www.yahoo.com/news/scientists-discovered-creature-exists-between-130000695.html)
 <!-- feed end -->
