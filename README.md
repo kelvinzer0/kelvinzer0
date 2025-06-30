@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 29 - [Police rescue emaciated newborn baby from Phoenix apartment days after its mother died](https://www.yahoo.com/news/police-rescue-emaciated-newborn-baby-210756510.html)
+- Jun 30 - [Delta Airlines Cancels Almost 1,000 Flights](https://www.yahoo.com/news/delta-airlines-cancels-almost-1-003851161.html)
+- Jun 29 - [Child reportedly fell overboard on Disney cruise. Her dad jumped in after her.](https://www.yahoo.com/news/child-reportedly-fell-overboard-disney-231558158.html)
+- Jun 29 - [BYU QB Jake Retzlaff reportedly transferring in wake of honor code suspension stemming from sexual assault allegation](https://sports.yahoo.com/college-football/breaking-news/article/byu-qb-jake-retzlaff-reportedly-transferring-in-wake-of-honor-code-suspension-stemming-from-sexual-assault-allegation-215634618.html)
 - Jun 29 - [Doctors And Nurses Are Revealing The "Small" Health Signs You Should Never Ignore, And It's Shocking](https://www.yahoo.com/news/doctors-nurses-revealing-small-health-202102255.html)
-- Jun 29 - [Tangled straps likely caused Air Force instructor pilot’s death, report finds](https://www.yahoo.com/news/tangled-straps-likely-caused-air-201421932.html)
-- Jun 29 - [NewsMinute 5P (CR)](https://www.yahoo.com/news/newsminute-5p-cr-194832760.html)
-- Jun 29 - [5 People Killed In 'Massive' U.S. Highway Car Accident](https://www.yahoo.com/news/5-people-killed-massive-u-191350113.html)
+- Jun 29 - [Cedar Point guests left dangling from new Siren's Curse for about 10 minutes on Saturday](https://www.yahoo.com/news/cedar-point-guests-left-dangling-185138639.html)
 <!-- feed end -->
