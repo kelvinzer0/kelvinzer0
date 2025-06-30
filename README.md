@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jun 30 - [My dad, the main breadwinner, just lost his job at 61. And he fears he won’t find work at his age — what now?](https://www.yahoo.com/lifestyle/articles/dad-main-breadwinner-just-lost-121500195.html)
+- Jun 30 - [GoFundMe is refurbishing a little-known financial tool in a bid to supercharge everyday giving](https://finance.yahoo.com/news/gofundme-refurbishing-little-known-financial-121145767.html)
+- Jun 30 - [Wall Street analysts bullish on Circle after blockbuster IPO, but warn on sky-high valuation](https://finance.yahoo.com/news/wall-street-analysts-bullish-circle-120031403.html)
+- Jun 30 - [New inquest date set into wife murdered in street](https://www.yahoo.com/news/inquest-date-set-wife-murdered-105604073.html)
 - Jun 30 - [Donald Trump Melts Down Over CNN’s Abby Phillip. Her Polite Clapback Goes Viral.](https://www.yahoo.com/news/donald-trump-melts-down-over-105047919.html)
-- Jun 30 - [BBC Says It ‘Should Have Pulled’ Livestream of Bob Vylan’s Glastonbury Set: ‘The Antisemitic Sentiments Were Utterly Unacceptable’](https://www.yahoo.com/news/bbc-says-pulled-livestream-bob-103519441.html)
-- Jun 30 - [China is quietly supplanting Russia as Cuba's main benefactor](https://finance.yahoo.com/news/china-quietly-supplanting-russia-cubas-101327756.html)
-- Jun 30 - [Minister says BBC has ‘questions to answer’ over Bob Vylan](https://www.yahoo.com/news/minister-says-bbc-questions-answer-085834433.html)
-- Jun 30 - ['Generali' sign atop insurer's skyscraper offices collapses in Milan](https://finance.yahoo.com/news/generali-sign-atop-insurers-skyscraper-073551744.html)
 <!-- feed end -->
