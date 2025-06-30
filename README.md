@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Oracle Inks Cloud Deal Worth $30B A Year](https://finance.yahoo.com/video/oracle-inks-cloud-deal-worth-180347291.html)
-- Jun 30 - [67 killed in Gaza as Israeli forces ‘strike cafe and fire at people seeking aid’](https://www.yahoo.com/news/least-22-killed-gaza-israeli-124333770.html)
-- Jun 30 - [7 Anti-Inflammatory Foods for an Energy Boost, Recommended by Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/7-anti-inflammatory-foods-energy-180000279.html)
-- Jun 30 - [What we know about Wess Roley, Idaho shooting suspect who ambushed firefighters](https://www.yahoo.com/news/know-wess-roley-idaho-shooting-175042853.html)
-- Jun 30 - [People Are Weirded Out After Trump Called An African Reporter "Beautiful," Despite Being Warned Against It](https://www.yahoo.com/news/people-weirded-trump-called-african-173909424.html)
+- Jun 30 - [Wife of Soccer Team Chairman Identified as Woman Killed in Jet Ski Accident](https://www.yahoo.com/news/wife-soccer-team-chairman-identified-195308325.html)
+- Jun 30 - [Over a Third of US Population Uses GenAI](https://finance.yahoo.com/video/over-third-us-population-uses-194659281.html)
+- Jun 30 - [With hurricane season brewing, Pentagon stops sharing satellite weather data](https://www.yahoo.com/news/hurricane-season-brewing-pentagon-stops-192727949.html)
+- Jun 30 - [After He Was Advised Against Commenting On A Reporter's Looks, President Trump Is Being Called A "Creep" By People Online When He Did It Anyway](https://www.yahoo.com/news/people-weirded-trump-called-african-173909424.html)
+- Jun 30 - [More than 300 charged in $14.6 billion health care fraud schemes takedown, Justice Department says](https://www.yahoo.com/news/more-300-charged-14-6-173429655.html)
 <!-- feed end -->
