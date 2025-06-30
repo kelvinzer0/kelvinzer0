@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Last-minute changes to Senate’s 'big, beautiful bill' stun clean energy industry (and Elon Musk)](https://finance.yahoo.com/news/last-minute-changes-to-senates-big-beautiful-bill-stun-clean-energy-industry-and-elon-musk-124435220.html)
-- Jun 30 - [‘Hero of Ukraine’ commander develops drone-proof uniforms](https://www.yahoo.com/news/hero-ukraine-commander-develops-drone-120000113.html)
-- Jun 30 - [Donald Trump Melts Down Over CNN’s Abby Phillip. Her Polite Clapback Goes Viral.](https://www.yahoo.com/news/donald-trump-melts-down-over-105047919.html)
-- Jun 30 - [Researchers issue urgent warning after nightmare creatures breed to form dangerous hybrid species: 'Effective camouflage and secretive behavior'](https://www.yahoo.com/news/researchers-issue-urgent-warning-nightmare-104529977.html)
-- Jun 30 - [Onlookers capture incredible video as massive sea animal wanders into bustling community far from shore: 'He's huge'](https://www.yahoo.com/news/onlookers-capture-incredible-video-massive-103035277.html)
+- Jun 30 - [US Supreme Court won't hear free speech fight over teacher fired for social media posts](https://www.yahoo.com/news/us-supreme-court-wont-hear-135207110.html)
+- Jun 30 - [Princess Diana’s favourite café risks closure over ‘illegal migrant workers and paying staff in food’](https://www.yahoo.com/news/princess-diana-favourite-caf-risks-132717222.html)
+- Jun 30 - [Two firefighters killed in Idaho sniper ambush, authorities say](https://www.yahoo.com/news/two-firefighters-killed-idaho-sniper-131247977.html)
+- Jun 30 - [Scientists Discovered a New Creature That Exists Between Life and Not-Life](https://www.yahoo.com/news/scientists-discovered-creature-exists-between-130000695.html)
+- Jun 30 - [Last-minute changes to Trump's 'big, beautiful bill' stun clean energy industry (and Elon Musk)](https://finance.yahoo.com/news/last-minute-changes-to-trumps-big-beautiful-bill-stun-clean-energy-industry-and-elon-musk-124435832.html)
 <!-- feed end -->
