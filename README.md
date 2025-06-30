@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Citi expects gold price to consolidate around $3,100-$3,500 in third quarter](https://finance.yahoo.com/news/citi-expects-gold-price-consolidate-155122462.html)
-- Jun 30 - [Iran-linked hackers may target U.S. firms and critical infrastructure, U.S. government warns](https://www.yahoo.com/news/iran-linked-hackers-may-target-153903288.html)
+- Jun 30 - [State Department Revokes Bob Vylan’s Visa Over Glastonbury Performance](https://www.yahoo.com/news/state-department-revokes-bob-vylan-163208322.html)
 - Jun 30 - [Kristi Noem secretly accepted huge sum of money from mystery donor - then failed to declare it: report](https://www.yahoo.com/news/kristi-noem-secretly-accepted-huge-152942068.html)
-- Jun 30 - [One chart shows how brutal the housing market has become for first-time buyers](https://finance.yahoo.com/news/one-chart-shows-brutal-housing-230808358.html)
-- Jun 30 - [US Supreme Court won't hear free speech fight over teacher fired for social media posts](https://www.yahoo.com/news/us-supreme-court-wont-hear-135207110.html)
+- Jun 30 - [Daytona 500 Winner Ricky Stenhouse Jr. Parts With His Charlotte-Area Equestrian Estate for a Record-Setting $12 Million](https://finance.yahoo.com/news/daytona-500-winner-ricky-stenhouse-163119627.html)
+- Jun 30 - [Supreme Court to hear case that could upend campaign finance coordination rules](https://www.yahoo.com/news/supreme-court-hear-case-could-161540964.html)
+- Jun 30 - [Boeing and GE Shares Climb as 787 Black Boxes Yield Clues](https://finance.yahoo.com/news/boeing-ge-shares-climb-787-160716841.html)
 <!-- feed end -->
