@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [The Dalai Lama, a tireless advocate for Tibet and its people](https://www.yahoo.com/news/dalai-lama-tireless-advocate-tibet-033545504.html)
+- Jun 30 - [Morning Bid: Risk flows as trade talks unclog](https://finance.yahoo.com/news/morning-bid-risk-flows-trade-043208595.html)
 - Jun 30 - [Canadian Prime Minister Carney says trade talks with US resume after Canada rescinded tech tax](https://www.yahoo.com/news/canadian-prime-minister-carney-says-023405325.html)
 - Jun 30 - [Two People Killed In 'Major' U.S. Highway Racing Accident](https://www.yahoo.com/news/two-people-killed-major-u-020106276.html)
-- Jun 30 - [Stock market today: Dow, S&P 500 and Nasdaq futures rise as stocks set to end June with a bang](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-and-nasdaq-futures-rise-as-stocks-set-to-end-june-with-a-bang-005248076.html)
+- Jun 30 - [Women Are Absolutely Destroying The Internet With These 15 Tweets That Had Me Rolling On The Floor](https://www.yahoo.com/entertainment/articles/women-absolutely-destroying-internet-15-004229178.html)
 - Jun 29 - [Child reportedly fell overboard on Disney cruise. Her dad jumped in after her.](https://www.yahoo.com/news/child-reportedly-fell-overboard-disney-231558158.html)
 <!-- feed end -->
