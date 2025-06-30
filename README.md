@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Carlyle: Military Industrial Complex is a Boom to Productivity](https://finance.yahoo.com/video/carlyle-military-industrial-complex-boom-094959589.html)
-- Jun 30 - [Contracts announced for National Highways’ $679m SPaTS3 Framework](https://finance.yahoo.com/news/contracts-announced-national-highways-679m-094021501.html)
-- Jun 30 - [Will This "Magnificent Seven" Stock Overtake Microsoft and Nvidia As the Largest Company in the World By 2030?](https://finance.yahoo.com/news/magnificent-seven-stock-overtake-microsoft-091500912.html)
-- Jun 30 - [Israeli settlers rampage at a military base in the West Bank](https://www.yahoo.com/news/israeli-settlers-rampage-military-west-084327604.html)
-- Jun 30 - [Photos of cockfighting in Afghan capital show a bloody pastime thriving in the shadows](https://www.yahoo.com/news/photos-cockfighting-afghan-capital-show-052539587.html)
+- Jun 30 - [Donald Trump Melts Down Over CNN’s Abby Phillip. Her Polite Clapback Goes Viral.](https://www.yahoo.com/news/donald-trump-melts-down-over-105047919.html)
+- Jun 30 - [BBC Says It ‘Should Have Pulled’ Livestream of Bob Vylan’s Glastonbury Set: ‘The Antisemitic Sentiments Were Utterly Unacceptable’](https://www.yahoo.com/news/bbc-says-pulled-livestream-bob-103519441.html)
+- Jun 30 - [China is quietly supplanting Russia as Cuba's main benefactor](https://finance.yahoo.com/news/china-quietly-supplanting-russia-cubas-101327756.html)
+- Jun 30 - [Minister says BBC has ‘questions to answer’ over Bob Vylan](https://www.yahoo.com/news/minister-says-bbc-questions-answer-085834433.html)
+- Jun 30 - ['Generali' sign atop insurer's skyscraper offices collapses in Milan](https://finance.yahoo.com/news/generali-sign-atop-insurers-skyscraper-073551744.html)
 <!-- feed end -->
