@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Wife of Soccer Team Chairman Identified as Woman Killed in Jet Ski Accident](https://www.yahoo.com/news/wife-soccer-team-chairman-identified-195308325.html)
+- Jun 30 - [Chaos after explosion in trash can at local fireworks show; 2 hurt](https://www.yahoo.com/news/chaos-explosion-trash-local-fireworks-201354346.html)
 - Jun 30 - [Over a Third of US Population Uses GenAI](https://finance.yahoo.com/video/over-third-us-population-uses-194659281.html)
-- Jun 30 - [With hurricane season brewing, Pentagon stops sharing satellite weather data](https://www.yahoo.com/news/hurricane-season-brewing-pentagon-stops-192727949.html)
+- Jun 30 - [Oracle soars, Amazon sinks, Home Depot's $4.3B acquisition](https://finance.yahoo.com/video/oracle-soars-amazon-sinks-home-182451045.html)
 - Jun 30 - [After He Was Advised Against Commenting On A Reporter's Looks, President Trump Is Being Called A "Creep" By People Online When He Did It Anyway](https://www.yahoo.com/news/people-weirded-trump-called-african-173909424.html)
 - Jun 30 - [More than 300 charged in $14.6 billion health care fraud schemes takedown, Justice Department says](https://www.yahoo.com/news/more-300-charged-14-6-173429655.html)
 <!-- feed end -->
