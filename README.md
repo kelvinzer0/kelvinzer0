@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Trump’s DOJ issues memo on plan to strip citizenship from some naturalized Americans](https://www.yahoo.com/news/trump-doj-issues-memo-plan-220155461.html)
-- Jun 30 - [Prep school teacher accused of having sex with teen - and confessing to a fellow educator about it](https://www.yahoo.com/news/prep-school-teacher-accused-having-213144656.html)
-- Jun 30 - [Army ROTC Programs at Dozens of Campuses Are Being Shut Down or Reorganized](https://www.yahoo.com/news/army-rotc-programs-dozens-campuses-211319653.html)
+- Jun 30 - [Diddy's Trial Takes Dramatic Turn Two Hours Into Deliberations As Jury Sends Note To Judge About Disobedient Juror](https://www.yahoo.com/news/diddys-trial-takes-dramatic-turn-211501068.html)
 - Jun 30 - [Trump vents online about service provider after conference call marred by glitch](https://www.yahoo.com/news/trump-vents-online-provider-conference-210340402.html)
-- Jun 30 - [Apple May Use Outside AI to Power Siri in Major Reversal](https://finance.yahoo.com/video/apple-may-outside-ai-power-210311104.html)
+- Jun 30 - [Federal judge seeks clarity on whether birthright citizenship order means babies could be deported](https://www.yahoo.com/news/federal-judge-seeks-clarity-whether-205953139.html)
+- Jun 30 - [Oracle soars, Amazon sinks, Home Depot's $4.3B acquisition](https://finance.yahoo.com/video/oracle-soars-amazon-sinks-home-182451045.html)
+- Jun 30 - [Opinion - The Supreme Court’s injunctions decision returns America to the constitutional horrors of Dred Scott](https://www.yahoo.com/news/opinion-supreme-court-injunctions-decision-180000424.html)
 <!-- feed end -->
