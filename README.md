@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Chaos after explosion in trash can at local fireworks show; 2 hurt](https://www.yahoo.com/news/chaos-explosion-trash-local-fireworks-201354346.html)
-- Jun 30 - [Over a Third of US Population Uses GenAI](https://finance.yahoo.com/video/over-third-us-population-uses-194659281.html)
-- Jun 30 - [Oracle soars, Amazon sinks, Home Depot's $4.3B acquisition](https://finance.yahoo.com/video/oracle-soars-amazon-sinks-home-182451045.html)
-- Jun 30 - [After He Was Advised Against Commenting On A Reporter's Looks, President Trump Is Being Called A "Creep" By People Online When He Did It Anyway](https://www.yahoo.com/news/people-weirded-trump-called-african-173909424.html)
-- Jun 30 - [More than 300 charged in $14.6 billion health care fraud schemes takedown, Justice Department says](https://www.yahoo.com/news/more-300-charged-14-6-173429655.html)
+- Jun 30 - [Trump’s DOJ issues memo on plan to strip citizenship from some naturalized Americans](https://www.yahoo.com/news/trump-doj-issues-memo-plan-220155461.html)
+- Jun 30 - [Prep school teacher accused of having sex with teen - and confessing to a fellow educator about it](https://www.yahoo.com/news/prep-school-teacher-accused-having-213144656.html)
+- Jun 30 - [Army ROTC Programs at Dozens of Campuses Are Being Shut Down or Reorganized](https://www.yahoo.com/news/army-rotc-programs-dozens-campuses-211319653.html)
+- Jun 30 - [Trump vents online about service provider after conference call marred by glitch](https://www.yahoo.com/news/trump-vents-online-provider-conference-210340402.html)
+- Jun 30 - [Apple May Use Outside AI to Power Siri in Major Reversal](https://finance.yahoo.com/video/apple-may-outside-ai-power-210311104.html)
 <!-- feed end -->
