@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Jewell: Dollar Investors Outside US 'More Diversified'](https://finance.yahoo.com/video/jewell-dollar-investors-outside-us-074348451.html)
-- Jun 30 - [Jury retires to decide verdict in Australia's mushroom murder trial](https://www.yahoo.com/news/jury-retires-decide-verdict-australias-033231045.html)
+- Jun 30 - [We’ve been living under Hitler’s spell – time to wake up](https://www.yahoo.com/news/ve-living-under-hitler-spell-082442163.html)
+- Jun 30 - [Dubai Property More Affordable Than London, New York](https://finance.yahoo.com/video/dubai-property-more-affordable-london-062917074.html)
 - Jun 30 - [Photos of cockfighting in Afghan capital show a bloody pastime thriving in the shadows](https://www.yahoo.com/news/photos-cockfighting-afghan-capital-show-052539587.html)
 - Jun 30 - ['Insane': Trump's Baffling New Comments On Japan Leave Critics Aghast](https://www.yahoo.com/news/insane-trumps-baffling-comments-japan-051337949.html)
-- Jun 30 - [Canadian Prime Minister Carney says trade talks with US resume after Canada rescinded tech tax](https://www.yahoo.com/news/canadian-prime-minister-carney-says-023405325.html)
+- Jun 30 - [University of Miami Student Makes Opinion On Kai Trump Very Clear](https://www.yahoo.com/news/university-miami-student-makes-opinion-032146167.html)
 <!-- feed end -->
