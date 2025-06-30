@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Morning Bid: Risk flows as trade talks unclog](https://finance.yahoo.com/news/morning-bid-risk-flows-trade-043208595.html)
-- Jun 30 - [Canadian Prime Minister Carney says trade talks with US resume after Canada rescinded tech tax](https://www.yahoo.com/news/canadian-prime-minister-carney-says-023405325.html)
+- Jun 30 - [Photos of cockfighting in Afghan capital show a bloody pastime thriving in the shadows](https://www.yahoo.com/news/photos-cockfighting-afghan-capital-show-052539587.html)
+- Jun 30 - ['Insane': Trump's Baffling New Comments On Japan Leave Critics Aghast](https://www.yahoo.com/news/insane-trumps-baffling-comments-japan-051337949.html)
 - Jun 30 - [Two People Killed In 'Major' U.S. Highway Racing Accident](https://www.yahoo.com/news/two-people-killed-major-u-020106276.html)
-- Jun 30 - [Women Are Absolutely Destroying The Internet With These 15 Tweets That Had Me Rolling On The Floor](https://www.yahoo.com/entertainment/articles/women-absolutely-destroying-internet-15-004229178.html)
+- Jun 29 - [CIA chief told lawmakers Iran nuclear program set back years with strikes on metal conversion site](https://www.yahoo.com/news/cia-chief-told-lawmakers-iran-234558866.html)
 - Jun 29 - [Child reportedly fell overboard on Disney cruise. Her dad jumped in after her.](https://www.yahoo.com/news/child-reportedly-fell-overboard-disney-231558158.html)
 <!-- feed end -->
