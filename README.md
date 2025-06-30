@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Joint Task Force on anti-Semitism accuses Harvard of Civil Rights Act violation](https://www.yahoo.com/news/joint-task-force-anti-semitism-174129876.html)
-- Jun 30 - [Why $3.8 trillion in unpaid deficits could unsettle bond markets](https://finance.yahoo.com/video/why-3-8-trillion-unpaid-174022794.html)
-- Jun 30 - [More than 300 charged in $14.6 billion health care fraud schemes takedown, Justice Department says](https://www.yahoo.com/news/more-300-charged-14-6-173429655.html)
-- Jun 30 - [US says it halts healthcare fraud schemes worth nearly $15 billion](https://www.yahoo.com/news/us-says-halts-healthcare-fraud-165804450.html)
-- Jun 30 - [Supreme Court to decide whether shutting down Michigan pipeline is a state or federal fight](https://www.yahoo.com/news/supreme-court-decide-whether-shutting-165619942.html)
+- Jun 30 - [Oracle Inks Cloud Deal Worth $30B A Year](https://finance.yahoo.com/video/oracle-inks-cloud-deal-worth-180347291.html)
+- Jun 30 - [67 killed in Gaza as Israeli forces ‘strike cafe and fire at people seeking aid’](https://www.yahoo.com/news/least-22-killed-gaza-israeli-124333770.html)
+- Jun 30 - [7 Anti-Inflammatory Foods for an Energy Boost, Recommended by Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/7-anti-inflammatory-foods-energy-180000279.html)
+- Jun 30 - [What we know about Wess Roley, Idaho shooting suspect who ambushed firefighters](https://www.yahoo.com/news/know-wess-roley-idaho-shooting-175042853.html)
+- Jun 30 - [People Are Weirded Out After Trump Called An African Reporter "Beautiful," Despite Being Warned Against It](https://www.yahoo.com/news/people-weirded-trump-called-african-173909424.html)
 <!-- feed end -->
