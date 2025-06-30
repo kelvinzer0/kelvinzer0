@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [We’ve been living under Hitler’s spell – time to wake up](https://www.yahoo.com/news/ve-living-under-hitler-spell-082442163.html)
-- Jun 30 - [Dubai Property More Affordable Than London, New York](https://finance.yahoo.com/video/dubai-property-more-affordable-london-062917074.html)
+- Jun 30 - [Carlyle: Military Industrial Complex is a Boom to Productivity](https://finance.yahoo.com/video/carlyle-military-industrial-complex-boom-094959589.html)
+- Jun 30 - [Contracts announced for National Highways’ $679m SPaTS3 Framework](https://finance.yahoo.com/news/contracts-announced-national-highways-679m-094021501.html)
+- Jun 30 - [Will This "Magnificent Seven" Stock Overtake Microsoft and Nvidia As the Largest Company in the World By 2030?](https://finance.yahoo.com/news/magnificent-seven-stock-overtake-microsoft-091500912.html)
+- Jun 30 - [Israeli settlers rampage at a military base in the West Bank](https://www.yahoo.com/news/israeli-settlers-rampage-military-west-084327604.html)
 - Jun 30 - [Photos of cockfighting in Afghan capital show a bloody pastime thriving in the shadows](https://www.yahoo.com/news/photos-cockfighting-afghan-capital-show-052539587.html)
-- Jun 30 - ['Insane': Trump's Baffling New Comments On Japan Leave Critics Aghast](https://www.yahoo.com/news/insane-trumps-baffling-comments-japan-051337949.html)
-- Jun 30 - [University of Miami Student Makes Opinion On Kai Trump Very Clear](https://www.yahoo.com/news/university-miami-student-makes-opinion-032146167.html)
 <!-- feed end -->
