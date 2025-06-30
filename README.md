@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Delta Airlines Cancels Almost 1,000 Flights](https://www.yahoo.com/news/delta-airlines-cancels-almost-1-003851161.html)
+- Jun 30 - [Canadian Prime Minister Carney says trade talks with US resume after Canada rescinded tech tax](https://www.yahoo.com/news/canadian-prime-minister-carney-says-023405325.html)
+- Jun 30 - [Black bear spotted for 2nd time in Greene County, police say](https://www.yahoo.com/news/black-bear-spotted-2nd-time-022829060.html)
 - Jun 29 - [Child reportedly fell overboard on Disney cruise. Her dad jumped in after her.](https://www.yahoo.com/news/child-reportedly-fell-overboard-disney-231558158.html)
 - Jun 29 - [BYU QB Jake Retzlaff reportedly transferring in wake of honor code suspension stemming from sexual assault allegation](https://sports.yahoo.com/college-football/breaking-news/article/byu-qb-jake-retzlaff-reportedly-transferring-in-wake-of-honor-code-suspension-stemming-from-sexual-assault-allegation-215634618.html)
-- Jun 29 - [Doctors And Nurses Are Revealing The "Small" Health Signs You Should Never Ignore, And It's Shocking](https://www.yahoo.com/news/doctors-nurses-revealing-small-health-202102255.html)
-- Jun 29 - [Cedar Point guests left dangling from new Siren's Curse for about 10 minutes on Saturday](https://www.yahoo.com/news/cedar-point-guests-left-dangling-185138639.html)
+- Jun 29 - [Fight at Amarillo school gym during men’s basketball game leads to arrests, gun scare](https://www.yahoo.com/news/fight-amarillo-school-gym-during-214737964.html)
 <!-- feed end -->
