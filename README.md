@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [My dad, the main breadwinner, just lost his job at 61. And he fears he won’t find work at his age — what now?](https://www.yahoo.com/lifestyle/articles/dad-main-breadwinner-just-lost-121500195.html)
-- Jun 30 - [GoFundMe is refurbishing a little-known financial tool in a bid to supercharge everyday giving](https://finance.yahoo.com/news/gofundme-refurbishing-little-known-financial-121145767.html)
-- Jun 30 - [Wall Street analysts bullish on Circle after blockbuster IPO, but warn on sky-high valuation](https://finance.yahoo.com/news/wall-street-analysts-bullish-circle-120031403.html)
-- Jun 30 - [New inquest date set into wife murdered in street](https://www.yahoo.com/news/inquest-date-set-wife-murdered-105604073.html)
+- Jun 30 - [Last-minute changes to Senate’s 'big, beautiful bill' stun clean energy industry (and Elon Musk)](https://finance.yahoo.com/news/last-minute-changes-to-senates-big-beautiful-bill-stun-clean-energy-industry-and-elon-musk-124435220.html)
+- Jun 30 - [‘Hero of Ukraine’ commander develops drone-proof uniforms](https://www.yahoo.com/news/hero-ukraine-commander-develops-drone-120000113.html)
 - Jun 30 - [Donald Trump Melts Down Over CNN’s Abby Phillip. Her Polite Clapback Goes Viral.](https://www.yahoo.com/news/donald-trump-melts-down-over-105047919.html)
+- Jun 30 - [Researchers issue urgent warning after nightmare creatures breed to form dangerous hybrid species: 'Effective camouflage and secretive behavior'](https://www.yahoo.com/news/researchers-issue-urgent-warning-nightmare-104529977.html)
+- Jun 30 - [Onlookers capture incredible video as massive sea animal wanders into bustling community far from shore: 'He's huge'](https://www.yahoo.com/news/onlookers-capture-incredible-video-massive-103035277.html)
 <!-- feed end -->
