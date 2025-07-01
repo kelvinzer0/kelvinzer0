@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [‘Finance makes me break out in hives’: I inherited $240K from my parents. Do I pay off my $258K mortgage and give up my job?](https://finance.yahoo.com/news/finance-makes-break-hives-inherited-094500908.html)
+- Jul 01 - [Fact Check: Don't fall for video showing Ronald Reagan criticizing Democrats](https://www.yahoo.com/news/fact-check-dont-fall-video-215600397.html)
 - Jul 01 - [Michigan attorney general says she is investigating a company promoting 'twin flame' romance](https://www.yahoo.com/news/michigan-attorney-general-says-she-213057851.html)
-- Jul 01 - [Lisa Murkowski Stares Down Reporter for 10 Seconds After Being Confronted Over ‘Big Beautiful Bill’ Vote | Video](https://www.yahoo.com/news/lisa-murkowski-stares-down-reporter-211200306.html)
 - Jul 01 - [Trump Threatens to Arrest 2 Political Opponents in Same Press Conference, Hours After Entertaining Elon Musk Deportation](https://www.yahoo.com/news/trump-threatens-arrest-2-political-203315289.html)
-- Jul 01 - [US Army soldiers reworked a new missile system in the field during a deployment that deeply frustrated China](https://www.yahoo.com/news/us-army-soldiers-reworked-missile-193421894.html)
-- Jul 01 - [82-Year-Old Woman Dies From Injuries Sustained During Attack in Colorado](https://www.yahoo.com/news/82-old-woman-dies-injuries-190314220.html)
+- Jul 01 - [Walmart Workers Vanish Overnight and Employees Sound the Alarm](https://www.yahoo.com/news/walmart-workers-vanish-overnight-employees-200230718.html)
 <!-- feed end -->
