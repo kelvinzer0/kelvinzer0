@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [How Labour’s welfare bill will cut benefits](https://www.yahoo.com/news/benefit-claimants-know-labour-welfare-123705833.html)
-- Jul 01 - [Government launch parental leave review](https://www.yahoo.com/news/government-launch-parental-leave-review-090510022.html)
+- Jul 01 - [Have fireworks gotten out of hand in the Fox Cities? Tell us your thoughts in this short survey](https://www.yahoo.com/news/fireworks-gotten-hand-fox-cities-100605556.html)
+- Jul 01 - [Ukrainian drone hits a plant deep inside Russia after record Russian drone attacks in June](https://www.yahoo.com/news/ukrainian-drone-strikes-russian-plant-100519928.html)
+- Jul 01 - [2 No-Brainer Growth Stocks to Buy With $200 in July and Hold at Least a Decade](https://finance.yahoo.com/news/2-no-brainer-growth-stocks-094700643.html)
 - Jul 01 - [Trump says without subsidies Musk would have to ‘head back home to South Africa’ - then threatens to investigate him with DOGE](https://www.yahoo.com/news/trump-threatens-doge-investigate-musk-074339020.html)
-- Jul 01 - [1 Magnificent Stock-Split Stock to Buy Hand Over Fist in July and 1 to Completely Avoid](https://finance.yahoo.com/news/1-magnificent-stock-split-stock-075100381.html)
-- Jun 30 - [Man shot Idaho firefighters who had asked him to move his vehicle, sheriff says](https://www.yahoo.com/news/man-shot-idaho-firefighters-had-222925467.html)
+- Jul 01 - [Wall Street Journal Warns Donald Trump May Have Just Sabotaged His Own Presidency](https://www.yahoo.com/news/wall-street-journal-warns-donald-065311187.html)
 <!-- feed end -->
