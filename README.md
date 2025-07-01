@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Rare cloud amazes beachgoers and weather experts in Portugal](https://www.yahoo.com/news/rare-cloud-amazes-beachgoers-weather-015055107.html)
-- Jul 01 - [Musk's xAI raises $5 billion each in fresh debt and equity, Morgan Stanley says](https://finance.yahoo.com/news/musks-xai-raises-5-billion-014546093.html)
-- Jul 01 - [An ancient village in the Himalayas ran out of water. Then, it moved and started over](https://www.yahoo.com/news/ancient-village-himalayas-ran-water-013741571.html)
-- Jul 01 - [Idaho shooting suspect's former roommate condemns 'disgusting' attack on firefighters](https://www.yahoo.com/news/idaho-shooting-suspects-former-roommate-005711038.html)
-- Jun 30 - [North Korean operatives and American accomplices accused in massive fraud that infiltrated the Fortune 500 and stole millions](https://www.yahoo.com/news/north-korean-operatives-american-accomplices-231245987.html)
+- Jun 30 - [Idaho Murders Victim's Family Cries Out As Bryan Kohberger Takes Plea Deal In Shock Twist: 'They've Failed Us'](https://www.yahoo.com/news/idaho-murders-victims-family-cries-234550735.html)
+- Jun 30 - [House GOP fumes over Senate megabill: ‘How did it get so much f‑‑‑ing worse?’](https://www.yahoo.com/news/house-gop-fumes-over-senate-224704548.html)
+- Jun 30 - [Diddy's Trial Takes Dramatic Turn Two Hours Into Deliberations As Jury Sends Note To Judge About Disobedient Juror](https://www.yahoo.com/news/diddys-trial-takes-dramatic-turn-211501068.html)
+- Jun 30 - [Federal judge seeks clarity on whether birthright citizenship order means babies could be deported](https://www.yahoo.com/news/federal-judge-seeks-clarity-whether-205953139.html)
+- Jun 30 - [This Satellite Died in 1967. For Some Reason, It Just Spoke to Us Again.](https://www.yahoo.com/news/satellite-died-1967-reason-just-195500925.html)
 <!-- feed end -->
