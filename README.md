@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Women dressed in revealing clothes known as ‘Lycra nuns’ kept church cult leader’s home spotless, sexual abuse trial hears](https://www.yahoo.com/news/church-england-priest-led-cult-124726856.html)
+- Jul 01 - [Gov. Newsom signs housing bill overhauling California's landmark environmental law](https://www.yahoo.com/news/gov-newsom-signs-housing-bill-150136890.html)
+- Jul 01 - [Xiaomi's YU7 car buyers face year-long wait for delivery](https://finance.yahoo.com/video/xiaomis-yu7-car-buyers-face-145007007.html)
+- Jul 01 - [Trump was bleeding so much on the hospital bed after attempted assassination that staff thought he had been hit five times](https://www.yahoo.com/news/trump-bleeding-much-hospital-bed-142957633.html)
 - Jul 01 - [Trump to Consider Deporting Musk: ‘We’ll Have to Take a Look,’ Says ‘DOGE Is the Monster That Might Have to Go Back and Eat Elon’](https://www.yahoo.com/news/trump-consider-deporting-musk-ll-135505541.html)
-- Jul 01 - [Judge tells 92-year-old he will die in prison after conviction in UK’s oldest solved cold case](https://www.yahoo.com/news/judge-tells-92-old-die-131547101.html)
-- Jul 01 - [The American-made M2 'Ma Deuce" machine gun is becoming Ukraine's weapon of choice for arming AI-enabled fighting robots](https://www.yahoo.com/news/american-made-m2-ma-deuce-125257292.html)
-- Jul 01 - [Iran assesses the damage and lashes out after Israeli and US strikes damage its nuclear sites](https://www.yahoo.com/news/iran-assesses-damage-lashes-israeli-122607070.html)
+- Jul 01 - [Boebert questions if US moon landing was real as bizarre ‘tin-foil hat’ interview goes off the rails](https://www.yahoo.com/news/boebert-questions-us-moon-landing-132730982.html)
 <!-- feed end -->
