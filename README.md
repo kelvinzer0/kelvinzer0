@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Idaho Murders Victim's Family Cries Out As Bryan Kohberger Takes Plea Deal In Shock Twist: 'They've Failed Us'](https://www.yahoo.com/news/idaho-murders-victims-family-cries-234550735.html)
 - Jun 30 - [House GOP fumes over Senate megabill: ‘How did it get so much f‑‑‑ing worse?’](https://www.yahoo.com/news/house-gop-fumes-over-senate-224704548.html)
-- Jun 30 - [Diddy's Trial Takes Dramatic Turn Two Hours Into Deliberations As Jury Sends Note To Judge About Disobedient Juror](https://www.yahoo.com/news/diddys-trial-takes-dramatic-turn-211501068.html)
+- Jun 30 - [VIDEO: Great white shark spotted near boat off San Diego coastline](https://www.yahoo.com/news/video-great-white-shark-spotted-224136808.html)
+- Jun 30 - [Outlaw Music Festival’s 10th Anniversary concert canceled, Event officials say](https://www.yahoo.com/news/outlaw-music-festival-10th-anniversary-221850694.html)
+- Jun 30 - [Trump’s DOJ issues memo on plan to strip citizenship from some naturalized Americans](https://www.yahoo.com/news/trump-doj-issues-memo-plan-220155461.html)
 - Jun 30 - [Federal judge seeks clarity on whether birthright citizenship order means babies could be deported](https://www.yahoo.com/news/federal-judge-seeks-clarity-whether-205953139.html)
-- Jun 30 - [This Satellite Died in 1967. For Some Reason, It Just Spoke to Us Again.](https://www.yahoo.com/news/satellite-died-1967-reason-just-195500925.html)
 <!-- feed end -->
