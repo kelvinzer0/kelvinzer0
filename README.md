@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Tennis Pro Gets Intoxicated After One Drink. It's a Sign of Something Lethal](https://www.yahoo.com/news/tennis-pro-gets-intoxicated-one-180805775.html)
+- Jul 01 - [Five-year-old boy died from allergic reaction after collapsing at school, inquest told](https://www.yahoo.com/news/five-old-boy-died-allergic-065111921.html)
+- Jul 01 - [Flight Turns Chaotic After 26,000-Foot Plunge Triggers Mask Deployment](https://www.yahoo.com/news/flight-turns-chaotic-26-000-180220927.html)
 - Jul 01 - [Social media video shows Ukrainian strike on Russian missile facility](https://www.yahoo.com/news/social-media-video-shows-ukrainian-175023732.html)
-- Jul 01 - [Ukraine struck Russian warplanes at a base its fighter-bombers flee to when other airfields are in danger, intel says](https://www.yahoo.com/news/ukraine-struck-russian-warplanes-fighter-163100387.html)
-- Jul 01 - [Germany launches additional measures against Russia's 'shadow fleet'](https://www.yahoo.com/news/germany-launches-additional-measures-against-161634913.html)
-- Jul 01 - [A short nap in the sun left me in pain for weeks](https://www.yahoo.com/lifestyle/article/shingles-asleep-sun-hot-weather-pain-161254511.html)
+- Jul 01 - [Arkansas State Police confirms remains found in 1989 identified as Vilonia man](https://www.yahoo.com/news/arkansas-state-police-confirms-remains-170611421.html)
+- Jul 01 - [Railgun Installed On Japanese Warship Seen In New Photos](https://www.yahoo.com/news/railgun-installed-japanese-warship-seen-164729398.html)
 <!-- feed end -->
