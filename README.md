@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 01 - [Church of England priest led cult and sexually abused a ‘staggering number of women’, jury told](https://www.yahoo.com/news/church-england-priest-led-cult-124726856.html)
-- Jul 01 - [Trump: ‘DOGE is the monster that might have to go back and eat Elon’](https://www.yahoo.com/news/trump-doge-monster-might-back-131108012.html)
-- Jul 01 - [Bob Vylan rejects criticism and says it's being targeted for speaking up about Gaza at Glastonbury](https://www.yahoo.com/news/bob-vylan-rejects-criticism-says-125959956.html)
-- Jul 01 - [Lebanon drafts reply to US demand for Hezbollah to disarm, sources say](https://www.yahoo.com/news/lebanon-drafts-reply-us-demand-125725083.html)
-- Jul 01 - [Five common medications that make it hard to cope in the heat](https://www.yahoo.com/news/five-common-types-medication-hard-141909526.html)
+- Jul 01 - [Idaho student murders: A timeline of the killings and investigation](https://www.yahoo.com/news/idaho-student-murders-timeline-killings-195200873.html)
+- Jul 01 - [Boebert questions if US moon landing was real as bizarre ‘tin-foil hat’ interview goes off the rails](https://www.yahoo.com/news/boebert-questions-us-moon-landing-132730982.html)
+- Jul 01 - [Judge tells 92-year-old he will die in prison after conviction in UK’s oldest solved cold case](https://www.yahoo.com/news/judge-tells-92-old-die-131547101.html)
+- Jul 01 - [Man Dressed as Medieval Knight in Critical Condition After He's Stabbed Through 'His Visor' During Reenactment, Say Police](https://www.yahoo.com/news/man-dressed-medieval-knight-critical-130833252.html)
 <!-- feed end -->
