@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 01 - [How Labour’s welfare bill will cut benefits](https://www.yahoo.com/news/benefit-claimants-know-labour-welfare-123705833.html)
+- Jul 01 - [Government launch parental leave review](https://www.yahoo.com/news/government-launch-parental-leave-review-090510022.html)
 - Jul 01 - [Trump says without subsidies Musk would have to ‘head back home to South Africa’ - then threatens to investigate him with DOGE](https://www.yahoo.com/news/trump-threatens-doge-investigate-musk-074339020.html)
-- Jul 01 - [Wall Street Journal Warns Donald Trump May Have Just Sabotaged His Own Presidency](https://www.yahoo.com/news/wall-street-journal-warns-donald-065311187.html)
-- Jul 01 - [Car dealers in China's Yangtze delta region warn of 'severe challenges'](https://finance.yahoo.com/news/car-dealers-chinas-yangtze-delta-060855162.html)
-- Jul 01 - [How much money do you need to retire?](https://uk.finance.yahoo.com/news/retirement-pension-saving-money-planning-050024856.html)
+- Jul 01 - [1 Magnificent Stock-Split Stock to Buy Hand Over Fist in July and 1 to Completely Avoid](https://finance.yahoo.com/news/1-magnificent-stock-split-stock-075100381.html)
+- Jun 30 - [Man shot Idaho firefighters who had asked him to move his vehicle, sheriff says](https://www.yahoo.com/news/man-shot-idaho-firefighters-had-222925467.html)
 <!-- feed end -->
