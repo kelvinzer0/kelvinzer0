@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Plane Passengers Write Farewell Notes After Oxygen Masks Drop and Boeing 737 Falls Nearly 26,000 Feet: Reports](https://www.yahoo.com/news/plane-passengers-write-farewell-notes-121104541.html)
-- Jul 01 - [Lululemon files lawsuit against Costco, claims company is selling 'dupes' of some of its products](https://www.yahoo.com/news/lululemon-files-lawsuit-against-costco-121052823.html)
-- Jul 01 - [Takeaways from AP's report on Attorney General Bondi's comments about evidence in Epstein case](https://www.yahoo.com/news/takeaways-aps-report-attorney-general-112856953.html)
-- Jul 01 - [Watching Area Near Florida For Possible Tropical Development](https://www.yahoo.com/news/watching-area-near-florida-possible-112655341.html)
-- Jul 01 - [Rare earth magnet users jolted into paying premium prices for ex-China supply](https://finance.yahoo.com/news/rare-earth-magnet-users-jolted-103239589.html)
+- Jul 01 - [Church of England priest led cult and sexually abused a ‘staggering number of women’, jury told](https://www.yahoo.com/news/church-england-priest-led-cult-124726856.html)
+- Jul 01 - [Trump: ‘DOGE is the monster that might have to go back and eat Elon’](https://www.yahoo.com/news/trump-doge-monster-might-back-131108012.html)
+- Jul 01 - [Bob Vylan rejects criticism and says it's being targeted for speaking up about Gaza at Glastonbury](https://www.yahoo.com/news/bob-vylan-rejects-criticism-says-125959956.html)
+- Jul 01 - [Lebanon drafts reply to US demand for Hezbollah to disarm, sources say](https://www.yahoo.com/news/lebanon-drafts-reply-us-demand-125725083.html)
+- Jul 01 - [Five common medications that make it hard to cope in the heat](https://www.yahoo.com/news/five-common-types-medication-hard-141909526.html)
 <!-- feed end -->
