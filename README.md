@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Michigan lawmakers question state’s top cop during oversight hearing](https://www.yahoo.com/news/michigan-lawmakers-state-top-cop-163812175.html)
+- Jul 01 - [Will Buy As Much Bitcoin As We Can: Twenty One CEO](https://finance.yahoo.com/video/buy-much-bitcoin-twenty-one-175051746.html)
+- Jul 01 - [Pictured: Girl, 7, who died after tree fell on her in park](https://www.yahoo.com/news/pictured-girl-7-died-tree-160833948.html)
 - Jul 01 - [Germany launches additional measures against Russia's 'shadow fleet'](https://www.yahoo.com/news/germany-launches-additional-measures-against-161634913.html)
-- Jul 01 - [A short nap in the sun left me in pain for weeks](https://www.yahoo.com/lifestyle/article/shingles-asleep-sun-hot-weather-pain-161254511.html)
+- Jul 01 - [Dear Tesla Stock Fans, Mark Your Calendars for July 2](https://finance.yahoo.com/news/dear-tesla-stock-fans-mark-151015976.html)
 - Jul 01 - [Gov. Newsom signs housing bill overhauling California's landmark environmental law](https://www.yahoo.com/news/gov-newsom-signs-housing-bill-150136890.html)
-- Jul 01 - [Trump was bleeding so much on the hospital bed after attempted assassination that staff thought he had been hit five times](https://www.yahoo.com/news/trump-bleeding-much-hospital-bed-142957633.html)
 <!-- feed end -->
