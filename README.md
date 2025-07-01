@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jun 30 - [Diddy's Trial Takes Dramatic Turn Two Hours Into Deliberations As Jury Sends Note To Judge About Disobedient Juror](https://www.yahoo.com/news/diddys-trial-takes-dramatic-turn-211501068.html)
-- Jun 30 - [Trump vents online about service provider after conference call marred by glitch](https://www.yahoo.com/news/trump-vents-online-provider-conference-210340402.html)
-- Jun 30 - [Federal judge seeks clarity on whether birthright citizenship order means babies could be deported](https://www.yahoo.com/news/federal-judge-seeks-clarity-whether-205953139.html)
-- Jun 30 - [Oracle soars, Amazon sinks, Home Depot's $4.3B acquisition](https://finance.yahoo.com/video/oracle-soars-amazon-sinks-home-182451045.html)
-- Jun 30 - [Opinion - The Supreme Court’s injunctions decision returns America to the constitutional horrors of Dred Scott](https://www.yahoo.com/news/opinion-supreme-court-injunctions-decision-180000424.html)
+- Jul 01 - [Rare cloud amazes beachgoers and weather experts in Portugal](https://www.yahoo.com/news/rare-cloud-amazes-beachgoers-weather-015055107.html)
+- Jul 01 - [Musk's xAI raises $5 billion each in fresh debt and equity, Morgan Stanley says](https://finance.yahoo.com/news/musks-xai-raises-5-billion-014546093.html)
+- Jul 01 - [An ancient village in the Himalayas ran out of water. Then, it moved and started over](https://www.yahoo.com/news/ancient-village-himalayas-ran-water-013741571.html)
+- Jul 01 - [Idaho shooting suspect's former roommate condemns 'disgusting' attack on firefighters](https://www.yahoo.com/news/idaho-shooting-suspects-former-roommate-005711038.html)
+- Jun 30 - [North Korean operatives and American accomplices accused in massive fraud that infiltrated the Fortune 500 and stole millions](https://www.yahoo.com/news/north-korean-operatives-american-accomplices-231245987.html)
 <!-- feed end -->
