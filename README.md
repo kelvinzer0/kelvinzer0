@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Church of England priest led cult and sexually abused a ‘staggering number of women’, jury told](https://www.yahoo.com/news/church-england-priest-led-cult-124726856.html)
-- Jul 01 - [Idaho student murders: A timeline of the killings and investigation](https://www.yahoo.com/news/idaho-student-murders-timeline-killings-195200873.html)
-- Jul 01 - [Boebert questions if US moon landing was real as bizarre ‘tin-foil hat’ interview goes off the rails](https://www.yahoo.com/news/boebert-questions-us-moon-landing-132730982.html)
+- Jul 01 - [Women dressed in revealing clothes known as ‘Lycra nuns’ kept church cult leader’s home spotless, sexual abuse trial hears](https://www.yahoo.com/news/church-england-priest-led-cult-124726856.html)
+- Jul 01 - [Trump to Consider Deporting Musk: ‘We’ll Have to Take a Look,’ Says ‘DOGE Is the Monster That Might Have to Go Back and Eat Elon’](https://www.yahoo.com/news/trump-consider-deporting-musk-ll-135505541.html)
 - Jul 01 - [Judge tells 92-year-old he will die in prison after conviction in UK’s oldest solved cold case](https://www.yahoo.com/news/judge-tells-92-old-die-131547101.html)
-- Jul 01 - [Man Dressed as Medieval Knight in Critical Condition After He's Stabbed Through 'His Visor' During Reenactment, Say Police](https://www.yahoo.com/news/man-dressed-medieval-knight-critical-130833252.html)
+- Jul 01 - [The American-made M2 'Ma Deuce" machine gun is becoming Ukraine's weapon of choice for arming AI-enabled fighting robots](https://www.yahoo.com/news/american-made-m2-ma-deuce-125257292.html)
+- Jul 01 - [Iran assesses the damage and lashes out after Israeli and US strikes damage its nuclear sites](https://www.yahoo.com/news/iran-assesses-damage-lashes-israeli-122607070.html)
 <!-- feed end -->
