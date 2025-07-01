@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 01 - [How much money do you need to retire?](https://uk.finance.yahoo.com/news/retirement-pension-saving-money-planning-050024856.html)
-- Jul 01 - [Idaho shooting suspect's former roommate condemns 'disgusting' attack on firefighters](https://www.yahoo.com/news/idaho-shooting-suspects-former-roommate-005711038.html)
 - Jun 30 - [House GOP fumes over Senate megabill: ‘How did it get so much f‑‑‑ing worse?’](https://www.yahoo.com/news/house-gop-fumes-over-senate-224704548.html)
-- Jun 30 - [VIDEO: Great white shark spotted near boat off San Diego coastline](https://www.yahoo.com/news/video-great-white-shark-spotted-224136808.html)
-- Jun 30 - [Federal judge seeks clarity on whether birthright citizenship order means babies could be deported](https://www.yahoo.com/news/federal-judge-seeks-clarity-whether-205953139.html)
+- Jun 30 - [Man shot Idaho firefighters who had asked him to move his vehicle, sheriff says](https://www.yahoo.com/news/man-shot-idaho-firefighters-had-222925467.html)
+- Jun 30 - [Trump’s DOJ issues memo on plan to strip citizenship from some naturalized Americans](https://www.yahoo.com/news/trump-doj-issues-memo-plan-220155461.html)
+- Jun 30 - [Siena Heights University announces closure after 105 years in Adrian. What we know](https://www.yahoo.com/news/siena-heights-university-announces-closure-210727505.html)
 <!-- feed end -->
