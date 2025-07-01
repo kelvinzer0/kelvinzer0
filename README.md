@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [FBI says it plans to move headquarters to different location in Washington](https://www.yahoo.com/news/fbi-says-plans-move-headquarters-204302672.html)
+- Jul 01 - [Michigan attorney general says she is investigating a company promoting 'twin flame' romance](https://www.yahoo.com/news/michigan-attorney-general-says-she-213057851.html)
+- Jul 01 - [Lisa Murkowski Stares Down Reporter for 10 Seconds After Being Confronted Over ‘Big Beautiful Bill’ Vote | Video](https://www.yahoo.com/news/lisa-murkowski-stares-down-reporter-211200306.html)
+- Jul 01 - [Trump Threatens to Arrest 2 Political Opponents in Same Press Conference, Hours After Entertaining Elon Musk Deportation](https://www.yahoo.com/news/trump-threatens-arrest-2-political-203315289.html)
 - Jul 01 - [US Army soldiers reworked a new missile system in the field during a deployment that deeply frustrated China](https://www.yahoo.com/news/us-army-soldiers-reworked-missile-193421894.html)
-- Jul 01 - [Social media video shows Ukrainian strike on Russian missile facility](https://www.yahoo.com/news/social-media-video-shows-ukrainian-175023732.html)
-- Jul 01 - [The Toyota RAV4 Just Showed The Tesla Model Y Who's Boss](https://autos.yahoo.com/toyota-rav4-just-showed-tesla-173500089.html)
-- Jul 01 - [Railgun Installed On Japanese Warship Seen In New Photos](https://www.yahoo.com/news/railgun-installed-japanese-warship-seen-164729398.html)
+- Jul 01 - [82-Year-Old Woman Dies From Injuries Sustained During Attack in Colorado](https://www.yahoo.com/news/82-old-woman-dies-injuries-190314220.html)
 <!-- feed end -->
