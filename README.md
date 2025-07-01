@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [Have fireworks gotten out of hand in the Fox Cities? Tell us your thoughts in this short survey](https://www.yahoo.com/news/fireworks-gotten-hand-fox-cities-100605556.html)
-- Jul 01 - [Ukrainian drone hits a plant deep inside Russia after record Russian drone attacks in June](https://www.yahoo.com/news/ukrainian-drone-strikes-russian-plant-100519928.html)
-- Jul 01 - [2 No-Brainer Growth Stocks to Buy With $200 in July and Hold at Least a Decade](https://finance.yahoo.com/news/2-no-brainer-growth-stocks-094700643.html)
-- Jul 01 - [Trump says without subsidies Musk would have to ‘head back home to South Africa’ - then threatens to investigate him with DOGE](https://www.yahoo.com/news/trump-threatens-doge-investigate-musk-074339020.html)
-- Jul 01 - [Wall Street Journal Warns Donald Trump May Have Just Sabotaged His Own Presidency](https://www.yahoo.com/news/wall-street-journal-warns-donald-065311187.html)
+- Jul 01 - [Plane Passengers Write Farewell Notes After Oxygen Masks Drop and Boeing 737 Falls Nearly 26,000 Feet: Reports](https://www.yahoo.com/news/plane-passengers-write-farewell-notes-121104541.html)
+- Jul 01 - [Lululemon files lawsuit against Costco, claims company is selling 'dupes' of some of its products](https://www.yahoo.com/news/lululemon-files-lawsuit-against-costco-121052823.html)
+- Jul 01 - [Takeaways from AP's report on Attorney General Bondi's comments about evidence in Epstein case](https://www.yahoo.com/news/takeaways-aps-report-attorney-general-112856953.html)
+- Jul 01 - [Watching Area Near Florida For Possible Tropical Development](https://www.yahoo.com/news/watching-area-near-florida-possible-112655341.html)
+- Jul 01 - [Rare earth magnet users jolted into paying premium prices for ex-China supply](https://finance.yahoo.com/news/rare-earth-magnet-users-jolted-103239589.html)
 <!-- feed end -->
