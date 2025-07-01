@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [US startup Lyten to take over Northvolt's energy storage systems factory in Poland](https://tech.yahoo.com/business/articles/us-startup-lyten-over-northvolts-070421476.html)
+- Jul 01 - [How Labour’s welfare bill will cut benefits](https://www.yahoo.com/news/benefit-claimants-know-labour-welfare-123705833.html)
+- Jul 01 - [Trump says without subsidies Musk would have to ‘head back home to South Africa’ - then threatens to investigate him with DOGE](https://www.yahoo.com/news/trump-threatens-doge-investigate-musk-074339020.html)
 - Jul 01 - [Wall Street Journal Warns Donald Trump May Have Just Sabotaged His Own Presidency](https://www.yahoo.com/news/wall-street-journal-warns-donald-065311187.html)
+- Jul 01 - [Car dealers in China's Yangtze delta region warn of 'severe challenges'](https://finance.yahoo.com/news/car-dealers-chinas-yangtze-delta-060855162.html)
 - Jul 01 - [How much money do you need to retire?](https://uk.finance.yahoo.com/news/retirement-pension-saving-money-planning-050024856.html)
-- Jun 30 - [House GOP fumes over Senate megabill: ‘How did it get so much f‑‑‑ing worse?’](https://www.yahoo.com/news/house-gop-fumes-over-senate-224704548.html)
-- Jun 30 - [Federal judge seeks clarity on whether birthright citizenship order means babies could be deported](https://www.yahoo.com/news/federal-judge-seeks-clarity-whether-205953139.html)
 <!-- feed end -->
