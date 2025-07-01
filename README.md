@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 01 - [Michigan lawmakers question state’s top cop during oversight hearing](https://www.yahoo.com/news/michigan-lawmakers-state-top-cop-163812175.html)
+- Jul 01 - [Germany launches additional measures against Russia's 'shadow fleet'](https://www.yahoo.com/news/germany-launches-additional-measures-against-161634913.html)
+- Jul 01 - [A short nap in the sun left me in pain for weeks](https://www.yahoo.com/lifestyle/article/shingles-asleep-sun-hot-weather-pain-161254511.html)
 - Jul 01 - [Gov. Newsom signs housing bill overhauling California's landmark environmental law](https://www.yahoo.com/news/gov-newsom-signs-housing-bill-150136890.html)
-- Jul 01 - [Xiaomi's YU7 car buyers face year-long wait for delivery](https://finance.yahoo.com/video/xiaomis-yu7-car-buyers-face-145007007.html)
 - Jul 01 - [Trump was bleeding so much on the hospital bed after attempted assassination that staff thought he had been hit five times](https://www.yahoo.com/news/trump-bleeding-much-hospital-bed-142957633.html)
-- Jul 01 - [Trump to Consider Deporting Musk: ‘We’ll Have to Take a Look,’ Says ‘DOGE Is the Monster That Might Have to Go Back and Eat Elon’](https://www.yahoo.com/news/trump-consider-deporting-musk-ll-135505541.html)
-- Jul 01 - [Boebert questions if US moon landing was real as bizarre ‘tin-foil hat’ interview goes off the rails](https://www.yahoo.com/news/boebert-questions-us-moon-landing-132730982.html)
 <!-- feed end -->
