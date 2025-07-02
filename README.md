@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Ala. Man Sucked into Storm Drain and Dragged 500 Feet After Chasing Kids' Soccer Balls into Flooded Yard: 'Saying My Byes'](https://www.yahoo.com/news/ala-man-sucked-storm-drain-115702500.html)
 - Jul 02 - [National Grid failures led to fire that caused Heathrow shutdown, report says](https://finance.yahoo.com/video/national-grid-failures-led-fire-105515014.html)
-- Jul 02 - [Meta vs. Nvidia: How to play Mag 7 in the second half of 2025](https://finance.yahoo.com/video/meta-vs-nvidia-play-mag-103024955.html)
+- Jul 02 - [Think you’re ready to retire? Don’t make the leap until you’ve hit these 6 key milestones](https://finance.yahoo.com/news/think-ready-retire-don-t-101600887.html)
 - Jul 02 - [Hamas orders Gaza clan leader to surrender, accuses him of treason](https://www.yahoo.com/news/hamas-orders-gaza-clan-leader-101016817.html)
 - Jul 02 - [The ‘Great Dying’ wiped out 90% of life, then came 5 million years of lethal heat. New fossils explain why](https://www.yahoo.com/news/great-dying-wiped-90-life-090025845.html)
-- Jul 02 - [Millions of seniors will see smaller Social Security checks starting this month](https://finance.yahoo.com/news/millions-of-seniors-will-see-smaller-social-security-checks-starting-this-month-090053678.html)
 <!-- feed end -->
