@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Sean 'Diddy' Combs' surprising reaction when he heard the verdict in his sex-crimes trial](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-surprising-reaction-165143422.html)
+- Jul 02 - [Why Taking Your Coffee Black Could Help You Live Longer](https://www.yahoo.com/news/why-taking-coffee-black-could-173122930.html)
+- Jul 02 - [The first genome sequenced from ancient Egypt reveals surprising ancestry, scientists say](https://www.yahoo.com/news/first-genome-sequenced-ancient-egypt-171434637.html)
 - Jul 02 - [Tensions are rising between Russia and Azerbaijan. Why is this happening now?](https://www.yahoo.com/news/tensions-rising-between-russia-azerbaijan-163130379.html)
-- Jul 02 - [Powerful windstorm topples dozens of power poles across Las Vegas](https://www.yahoo.com/news/powerful-windstorm-topples-dozens-power-160706172.html)
+- Jul 02 - [Your Social Security checks could get halved soon. Here's why.](https://finance.yahoo.com/video/social-security-checks-could-halved-162514158.html)
 - Jul 02 - [Trump asks Supreme Court to remove 3 Democrats on the Consumer Product Safety Commission](https://www.yahoo.com/news/trump-asks-supreme-court-remove-153557883.html)
-- Jul 02 - [Meet the Monster Quantum Computing Stock That Continues to Crush IonQ, Rigetti Computing, and Nvidia](https://finance.yahoo.com/news/meet-monster-quantum-computing-stock-152700427.html)
 <!-- feed end -->
