@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 01 - [‘Finance makes me break out in hives’: I inherited $240K from my parents. Do I pay off my $258K mortgage and give up my job?](https://finance.yahoo.com/news/finance-makes-break-hives-inherited-094500908.html)
-- Jul 01 - [Fact Check: Don't fall for video showing Ronald Reagan criticizing Democrats](https://www.yahoo.com/news/fact-check-dont-fall-video-215600397.html)
-- Jul 01 - [Michigan attorney general says she is investigating a company promoting 'twin flame' romance](https://www.yahoo.com/news/michigan-attorney-general-says-she-213057851.html)
-- Jul 01 - [Trump Threatens to Arrest 2 Political Opponents in Same Press Conference, Hours After Entertaining Elon Musk Deportation](https://www.yahoo.com/news/trump-threatens-arrest-2-political-203315289.html)
-- Jul 01 - [Walmart Workers Vanish Overnight and Employees Sound the Alarm](https://www.yahoo.com/news/walmart-workers-vanish-overnight-employees-200230718.html)
+- Jul 02 - [Exclusive-Intel's new CEO explores big shift in chip manufacturing business](https://tech.yahoo.com/business/articles/exclusive-intels-ceo-explores-big-012932074.html)
+- Jul 02 - [Coroner identifies men killed in Boone County plane crash](https://www.yahoo.com/news/coroner-identifies-men-killed-boone-003029776.html)
+- Jul 01 - [US won't send some weapons pledged to Ukraine following a Pentagon review of military aid](https://www.yahoo.com/news/us-wont-send-weapons-pledged-225615670.html)
+- Jul 01 - [Officials issue warning after hikers spot huge invasive lizard lurking in state park: 'If you see it, back away safely'](https://www.yahoo.com/news/officials-issue-warning-hikers-spot-103039414.html)
+- Jul 01 - [A-10 Warthog Already Has The Capability To Use Laser-Guided Rockets To Shoot-Down Drones](https://www.yahoo.com/news/10-warthog-already-capability-laser-220408291.html)
 <!-- feed end -->
