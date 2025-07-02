@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Netflix, Rivian, Microsoft: Trending Tickers](https://finance.yahoo.com/video/netflix-rivian-microsoft-trending-tickers-154849979.html)
+- Jul 02 - [Sean 'Diddy' Combs' surprising reaction when he heard the verdict in his sex-crimes trial](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-surprising-reaction-165143422.html)
+- Jul 02 - [Tensions are rising between Russia and Azerbaijan. Why is this happening now?](https://www.yahoo.com/news/tensions-rising-between-russia-azerbaijan-163130379.html)
+- Jul 02 - [Powerful windstorm topples dozens of power poles across Las Vegas](https://www.yahoo.com/news/powerful-windstorm-topples-dozens-power-160706172.html)
 - Jul 02 - [Trump asks Supreme Court to remove 3 Democrats on the Consumer Product Safety Commission](https://www.yahoo.com/news/trump-asks-supreme-court-remove-153557883.html)
-- Jul 02 - [Trump Made Bizarre Request At Hospital After Assassination Attempt: Book](https://www.yahoo.com/news/trump-made-bizarre-request-hospital-150613602.html)
-- Jul 02 - [Del Monte, the 139-year-old canned fruits and vegetables company, seeks bankruptcy protection](https://finance.yahoo.com/news/del-monte-139-old-canned-145454552.html)
-- Jul 02 - [X Goes Down: ‘Did Elon Finally Kill Twitter?’](https://www.yahoo.com/news/x-goes-down-did-elon-142526392.html)
+- Jul 02 - [Meet the Monster Quantum Computing Stock That Continues to Crush IonQ, Rigetti Computing, and Nvidia](https://finance.yahoo.com/news/meet-monster-quantum-computing-stock-152700427.html)
 <!-- feed end -->
