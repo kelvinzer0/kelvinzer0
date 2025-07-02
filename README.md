@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Sean "Diddy" Combs acquitted of sex trafficking, convicted on lesser charges](https://www.yahoo.com/news/jury-reaches-verdict-sean-diddy-141600856.html)
+- Jul 02 - [Netflix, Rivian, Microsoft: Trending Tickers](https://finance.yahoo.com/video/netflix-rivian-microsoft-trending-tickers-154849979.html)
+- Jul 02 - [Trump asks Supreme Court to remove 3 Democrats on the Consumer Product Safety Commission](https://www.yahoo.com/news/trump-asks-supreme-court-remove-153557883.html)
+- Jul 02 - [Trump Made Bizarre Request At Hospital After Assassination Attempt: Book](https://www.yahoo.com/news/trump-made-bizarre-request-hospital-150613602.html)
 - Jul 02 - [Del Monte, the 139-year-old canned fruits and vegetables company, seeks bankruptcy protection](https://finance.yahoo.com/news/del-monte-139-old-canned-145454552.html)
 - Jul 02 - [X Goes Down: ‘Did Elon Finally Kill Twitter?’](https://www.yahoo.com/news/x-goes-down-did-elon-142526392.html)
-- Jul 02 - [Nvidia Stock Is Rising. Why Wall Street’s Banking on a Fresh Rally.](https://www.barrons.com/articles/nvidia-stock-price-fresh-rally-ai-8367e47d?siteid=yhoof2&yptr=yahoo)
-- Jul 02 - [Microsoft announces another mass layoff, thousands of workers affected](https://www.yahoo.com/news/microsoft-announces-another-mass-layoff-140654614.html)
 <!-- feed end -->
