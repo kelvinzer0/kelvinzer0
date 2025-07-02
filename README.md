@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Astronomers may have discovered 3rd-known interstellar visitor](https://www.yahoo.com/news/astronomers-may-discovered-3rd-known-215528350.html)
+- Jul 02 - [Blueberry recall elevated to highest level due to listeria risk](https://www.yahoo.com/news/blueberry-recall-elevated-highest-level-212548943.html)
+- Jul 02 - [Trump taps 30-year-old with little government experience and links to Holocaust denier to lead federal agency](https://www.yahoo.com/news/trump-taps-30-old-little-204441771.html)
+- Jul 02 - [Why is there no life on Mars? Rover finds a clue](https://www.yahoo.com/news/why-no-life-mars-rover-191250471.html)
+- Jul 02 - [Trump’s “Alligator Alcatraz” Is Already Flooding](https://www.yahoo.com/news/trump-alligator-alcatraz-already-flooding-185223026.html)
 - Jul 02 - [ADP says the private sector is shrinking. That’s bad news for the job market—but possibly great news for Trump](https://finance.yahoo.com/news/adp-says-private-sector-shrinking-174700705.html)
-- Jul 02 - [The first genome sequenced from ancient Egypt reveals surprising ancestry, scientists say](https://www.yahoo.com/news/first-genome-sequenced-ancient-egypt-171434637.html)
-- Jul 02 - [Tensions are rising between Russia and Azerbaijan. Why is this happening now?](https://www.yahoo.com/news/tensions-rising-between-russia-azerbaijan-163130379.html)
-- Jul 02 - [Girl who went overboard on Disney Dream cruise fell 'backward through a porthole'](https://www.yahoo.com/news/girl-went-overboard-disney-dream-161113648.html)
 <!-- feed end -->
