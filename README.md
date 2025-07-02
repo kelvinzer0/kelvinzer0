@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Federal judge blocks Trump administration from ending temporary legal status for many Haitians](https://www.yahoo.com/news/federal-judge-blocks-trump-administration-040052880.html)
+- Jul 02 - [Resort, casino along Nevada-California border shifting 24/7 operations to different property](https://www.yahoo.com/news/resort-casino-along-nevada-california-020546384.html)
 - Jul 02 - [Intel's new CEO explores big shift in chip manufacturing business](https://finance.yahoo.com/news/exclusive-intels-ceo-explores-big-012932387.html)
 - Jul 02 - [Exclusive-Intel's new CEO explores big shift in chip manufacturing business](https://tech.yahoo.com/business/articles/exclusive-intels-ceo-explores-big-012932074.html)
-- Jul 01 - [US won't send some weapons pledged to Ukraine following a Pentagon review of military aid](https://www.yahoo.com/news/us-wont-send-weapons-pledged-225615670.html)
-- Jul 01 - [Mossad to Tehran: We already know your ‘secret’ war commander](https://www.yahoo.com/news/mossad-tehran-already-know-secret-224646894.html)
-- Jul 01 - [Over 33K customers without power, nearly 50 power poles damaged as Las Vegas valley sees high winds](https://www.yahoo.com/news/over-27k-customers-without-power-223720361.html)
+- Jul 02 - [20 states sue after the Trump administration releases private Medicaid data to deportation officials](https://www.yahoo.com/news/20-states-sue-trump-administration-003117784.html)
 <!-- feed end -->
