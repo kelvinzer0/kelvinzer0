@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [IDF soldier killed, eight wounded in fighting across northern Gaza](https://www.yahoo.com/news/idf-soldier-killed-eight-wounded-180431187.html)
-- Jul 02 - [Palantir, Tesla, And Nvidia Rewarded Patient Investors. Now, An Investor Is Asking, 'What Are You Currently Bullish On For The Long Term?'](https://finance.yahoo.com/news/palantir-tesla-nvidia-rewarded-patient-173150618.html)
+- Jul 02 - [Figma Files for US IPO](https://finance.yahoo.com/video/figma-files-us-ipo-194103907.html)
+- Jul 02 - [A more complicated kind of kill chain is making China's missiles a deadlier problem for US forces, a top general says](https://www.yahoo.com/news/more-complicated-kind-kill-chain-182041967.html)
+- Jul 02 - [Archer Aviation (NYSE:ACHR) Completes Test Flight Of Midnight Aircraft In Abu Dhabi](https://finance.yahoo.com/news/archer-aviation-nyse-achr-completes-180935292.html)
+- Jul 02 - [AOC Exposes Catch in “No Tax on Tips” Rule in Trump’s Budget](https://www.yahoo.com/news/aoc-exposes-catch-no-tax-180558008.html)
 - Jul 02 - [The first genome sequenced from ancient Egypt reveals surprising ancestry, scientists say](https://www.yahoo.com/news/first-genome-sequenced-ancient-egypt-171434637.html)
-- Jul 02 - [Your Social Security checks could get halved soon. Here's why.](https://finance.yahoo.com/video/social-security-checks-could-halved-162514158.html)
-- Jul 02 - [Trump asks Supreme Court to remove 3 Democrats on the Consumer Product Safety Commission](https://www.yahoo.com/news/trump-asks-supreme-court-remove-153557883.html)
 <!-- feed end -->
