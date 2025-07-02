@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Mortgage and refinance interest rates today, July 2, 2025: Mostly unchanged as U.S. budget bill nears finish line](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-july-2-2025-100034247.html)
+- Jul 02 - [Plane Passengers Left Stranded on Runway After Man Dies Onboard Flight Following 'Medical Episode': Reports](https://www.yahoo.com/news/plane-passengers-left-stranded-runway-094701575.html)
+- Jul 02 - [The ‘Great Dying’ wiped out 90% of life, then came 5 million years of lethal heat. New fossils explain why](https://www.yahoo.com/news/great-dying-wiped-90-life-090025845.html)
+- Jul 02 - [Gold holds gains amid US fiscal outlook and trade policy fears](https://uk.finance.yahoo.com/news/oil-price-gold-pound-dollar-latest-085327916.html)
 - Jul 02 - [Federal judge blocks Trump administration from ending temporary legal status for many Haitians](https://www.yahoo.com/news/federal-judge-blocks-trump-administration-040052880.html)
-- Jul 02 - [Authoritarianism Expert Reveals 'Chilling' Phrase Trump Used During New Threat](https://www.yahoo.com/news/authoritarianism-expert-reveals-chilling-phrase-035637910.html)
-- Jul 02 - [North Koreans swim and play at a beach resort touted as a boost for tourism](https://www.yahoo.com/news/north-koreans-swim-play-beach-023418905.html)
-- Jul 02 - [Intel's new CEO explores big shift in chip manufacturing business](https://finance.yahoo.com/news/exclusive-intels-ceo-explores-big-012932387.html)
-- Jul 02 - [Exclusive-Intel's new CEO explores big shift in chip manufacturing business](https://tech.yahoo.com/business/articles/exclusive-intels-ceo-explores-big-012932074.html)
 <!-- feed end -->
