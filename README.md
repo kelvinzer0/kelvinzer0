@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Mortgage and refinance interest rates today, July 2, 2025: Mostly unchanged as U.S. budget bill nears finish line](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-july-2-2025-100034247.html)
-- Jul 02 - [Plane Passengers Left Stranded on Runway After Man Dies Onboard Flight Following 'Medical Episode': Reports](https://www.yahoo.com/news/plane-passengers-left-stranded-runway-094701575.html)
+- Jul 02 - [National Grid failures led to fire that caused Heathrow shutdown, report says](https://finance.yahoo.com/video/national-grid-failures-led-fire-105515014.html)
+- Jul 02 - [Meta vs. Nvidia: How to play Mag 7 in the second half of 2025](https://finance.yahoo.com/video/meta-vs-nvidia-play-mag-103024955.html)
+- Jul 02 - [Hamas orders Gaza clan leader to surrender, accuses him of treason](https://www.yahoo.com/news/hamas-orders-gaza-clan-leader-101016817.html)
 - Jul 02 - [The ‘Great Dying’ wiped out 90% of life, then came 5 million years of lethal heat. New fossils explain why](https://www.yahoo.com/news/great-dying-wiped-90-life-090025845.html)
-- Jul 02 - [Gold holds gains amid US fiscal outlook and trade policy fears](https://uk.finance.yahoo.com/news/oil-price-gold-pound-dollar-latest-085327916.html)
-- Jul 02 - [Federal judge blocks Trump administration from ending temporary legal status for many Haitians](https://www.yahoo.com/news/federal-judge-blocks-trump-administration-040052880.html)
+- Jul 02 - [Millions of seniors will see smaller Social Security checks starting this month](https://finance.yahoo.com/news/millions-of-seniors-will-see-smaller-social-security-checks-starting-this-month-090053678.html)
 <!-- feed end -->
