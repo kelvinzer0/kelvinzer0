@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 02 - [Russia continues attacks on Kharkiv as US halts some shipments of weapons to Ukraine](https://www.yahoo.com/news/russia-continues-attacks-kharkiv-us-071918218.html)
+- Jul 02 - [Israel calls on China to rein in Iran's military and nuclear ambitions](https://www.yahoo.com/news/israel-calls-china-reign-irans-070720424.html)
+- Jul 02 - ['Can You Not Touch Me?': CNN Segment Turns Testy With Scott Jennings, Bakari Sellers](https://www.yahoo.com/news/not-touch-cnn-segment-turns-061522544.html)
 - Jul 02 - [Federal judge blocks Trump administration from ending temporary legal status for many Haitians](https://www.yahoo.com/news/federal-judge-blocks-trump-administration-040052880.html)
-- Jul 02 - [Resort, casino along Nevada-California border shifting 24/7 operations to different property](https://www.yahoo.com/news/resort-casino-along-nevada-california-020546384.html)
-- Jul 02 - [Intel's new CEO explores big shift in chip manufacturing business](https://finance.yahoo.com/news/exclusive-intels-ceo-explores-big-012932387.html)
-- Jul 02 - [Exclusive-Intel's new CEO explores big shift in chip manufacturing business](https://tech.yahoo.com/business/articles/exclusive-intels-ceo-explores-big-012932074.html)
-- Jul 02 - [20 states sue after the Trump administration releases private Medicaid data to deportation officials](https://www.yahoo.com/news/20-states-sue-trump-administration-003117784.html)
+- Jul 02 - [North Koreans swim and play at a beach resort touted as a boost for tourism](https://www.yahoo.com/news/north-koreans-swim-play-beach-023418905.html)
 <!-- feed end -->
