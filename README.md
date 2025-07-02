@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [These Real Estate Dividend Stocks Are Money-Printing Machines](https://finance.yahoo.com/news/real-estate-dividend-stocks-money-111700588.html)
 - Jul 02 - [Scientists stunned after finding remote island blanketed in dangerous material: 'Our findings are deeply concerning'](https://www.yahoo.com/news/scientists-stunned-finding-remote-island-111501144.html)
-- Jul 02 - [Meta vs. Nvidia: How to play Mag 7 in the second half of 2025](https://finance.yahoo.com/video/meta-vs-nvidia-play-mag-103024955.html)
+- Jul 02 - [Fireworks warehouse explodes in California](https://www.yahoo.com/news/fireworks-warehouse-explodes-california-101322530.html)
 - Jul 02 - [Hamas orders Gaza clan leader to surrender, accuses him of treason](https://www.yahoo.com/news/hamas-orders-gaza-clan-leader-101016817.html)
-- Jul 02 - [The ‘Great Dying’ wiped out 90% of life, then came 5 million years of lethal heat. New fossils explain why](https://www.yahoo.com/news/great-dying-wiped-90-life-090025845.html)
+- Jul 02 - [Mortgage and refinance interest rates today, July 2, 2025: Mostly unchanged as U.S. budget bill nears finish line](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-july-2-2025-100034247.html)
+- Jul 02 - [CNN Host Grills Squirming MAGA Panelist Over Trump-Musk War: ‘You Look Very Uncomfortable’](https://www.yahoo.com/news/cnn-host-grills-squirming-maga-095436136.html)
 <!-- feed end -->
