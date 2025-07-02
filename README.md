@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Scientists stunned after finding remote island blanketed in dangerous material: 'Our findings are deeply concerning'](https://www.yahoo.com/news/scientists-stunned-finding-remote-island-111501144.html)
-- Jul 02 - [Fireworks warehouse explodes in California](https://www.yahoo.com/news/fireworks-warehouse-explodes-california-101322530.html)
-- Jul 02 - [Hamas orders Gaza clan leader to surrender, accuses him of treason](https://www.yahoo.com/news/hamas-orders-gaza-clan-leader-101016817.html)
-- Jul 02 - [Mortgage and refinance interest rates today, July 2, 2025: Mostly unchanged as U.S. budget bill nears finish line](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-july-2-2025-100034247.html)
-- Jul 02 - [CNN Host Grills Squirming MAGA Panelist Over Trump-Musk War: ‘You Look Very Uncomfortable’](https://www.yahoo.com/news/cnn-host-grills-squirming-maga-095436136.html)
+- Jul 02 - [Sean "Diddy" Combs acquitted of sex trafficking, convicted on lesser charges](https://www.yahoo.com/news/jury-reaches-verdict-sean-diddy-141600856.html)
+- Jul 02 - [Del Monte, the 139-year-old canned fruits and vegetables company, seeks bankruptcy protection](https://finance.yahoo.com/news/del-monte-139-old-canned-145454552.html)
+- Jul 02 - [X Goes Down: ‘Did Elon Finally Kill Twitter?’](https://www.yahoo.com/news/x-goes-down-did-elon-142526392.html)
+- Jul 02 - [Nvidia Stock Is Rising. Why Wall Street’s Banking on a Fresh Rally.](https://www.barrons.com/articles/nvidia-stock-price-fresh-rally-ai-8367e47d?siteid=yhoof2&yptr=yahoo)
+- Jul 02 - [Microsoft announces another mass layoff, thousands of workers affected](https://www.yahoo.com/news/microsoft-announces-another-mass-layoff-140654614.html)
 <!-- feed end -->
