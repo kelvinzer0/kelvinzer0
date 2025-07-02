@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 02 - [Why Taking Your Coffee Black Could Help You Live Longer](https://www.yahoo.com/news/why-taking-coffee-black-could-173122930.html)
+- Jul 02 - [IDF soldier killed, eight wounded in fighting across northern Gaza](https://www.yahoo.com/news/idf-soldier-killed-eight-wounded-180431187.html)
+- Jul 02 - [Palantir, Tesla, And Nvidia Rewarded Patient Investors. Now, An Investor Is Asking, 'What Are You Currently Bullish On For The Long Term?'](https://finance.yahoo.com/news/palantir-tesla-nvidia-rewarded-patient-173150618.html)
 - Jul 02 - [The first genome sequenced from ancient Egypt reveals surprising ancestry, scientists say](https://www.yahoo.com/news/first-genome-sequenced-ancient-egypt-171434637.html)
-- Jul 02 - [Tensions are rising between Russia and Azerbaijan. Why is this happening now?](https://www.yahoo.com/news/tensions-rising-between-russia-azerbaijan-163130379.html)
 - Jul 02 - [Your Social Security checks could get halved soon. Here's why.](https://finance.yahoo.com/video/social-security-checks-could-halved-162514158.html)
 - Jul 02 - [Trump asks Supreme Court to remove 3 Democrats on the Consumer Product Safety Commission](https://www.yahoo.com/news/trump-asks-supreme-court-remove-153557883.html)
 <!-- feed end -->
