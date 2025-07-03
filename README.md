@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [In heart of Tehran: Iranian media releases footage of IAF strike in Quds Square](https://www.yahoo.com/news/heart-tehran-iranian-media-releases-160003549.html)
+- Jul 03 - [This Solar Play Is The IBD Stock Of The Day As Renewables May Be Down But They're Not Out](https://www.investors.com/research/ibd-stock-of-the-day/nextracker-stock-buy-zone-as-renewables-may-be-down-but-not-out/?src=A00220&yptr=yahoo)
+- Jul 03 - [UPS to offer voluntary buyout packages to its US drivers](https://finance.yahoo.com/news/ups-offer-voluntary-buyout-packages-163405744.html)
+- Jul 03 - [23-Year-Old Dad Dies After Being Hit by Construction Equipment. His Grandfather, the Foreman, Was There to Hold Him](https://www.yahoo.com/news/23-old-dad-dies-being-155829731.html)
+- Jul 03 - [I’m a Financial Advisor: My Clients Who Retire Early All Do These 3 Things](https://finance.yahoo.com/news/m-financial-advisor-clients-retire-143812466.html)
 - Jul 03 - [Drone "narco sub" — equipped with Starlink antenna — seized for first time](https://www.yahoo.com/news/drone-narco-sub-equipped-starlink-102921451.html)
-- Jul 03 - ["My Mom Almost Died From It": 21 Common Medical Conditions That Can Be Much, Much More Serious Than You Think](https://www.yahoo.com/news/mom-almost-died-21-common-133102864.html)
-- Jul 03 - [A Fusion Rocket Could Soon Reach a World We Haven’t Seen Since the Stone Age](https://www.yahoo.com/news/fusion-rocket-could-soon-reach-133000659.html)
-- Jul 03 - [This U.S. Airport Will Take You the Longest to Walk Through, According to a New Study](https://www.yahoo.com/lifestyle/articles/u-airport-longest-walk-according-121849860.html)
 <!-- feed end -->
