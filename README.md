@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Scene of car accident that killed Liverpool player Diogo Jota and his brother in Spain](https://www.yahoo.com/news/scene-car-accident-killed-liverpool-120256897.html)
-- Jul 03 - [Washington county suing homeowners for $7M after allegedly felling 142 protected trees to score better views](https://www.yahoo.com/news/washington-county-suing-homeowners-7m-103100617.html)
-- Jul 03 - [‘Totally Unhinged’: Trump Ripped After Bizarre Attack On Lawmaker’s ‘Ugly Face’](https://www.yahoo.com/news/totally-unhinged-trump-ripped-bizarre-060529020.html)
-- Jul 03 - [Video shows British-made fighter missiles, modified in 3 months to launch from the ground, scoring Russian drone kills](https://www.yahoo.com/news/video-shows-british-made-fighter-055211392.html)
-- Jul 03 - [Wordle hints today for #1,475: Clues and answer for Thursday, July 3](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1475-clues-and-answer-for-thursday-july-3-040135232.html)
+- Jul 03 - [Aftermath as Russian drone strikes residential building in Odesa](https://www.yahoo.com/news/aftermath-russian-drone-strikes-residential-133601069.html)
+- Jul 03 - [Grant Cardone says owning a home in the US isn’t an ‘investment’ if you live there — and he’d rather pay rent](https://finance.yahoo.com/news/grant-cardone-says-owning-home-133600463.html)
+- Jul 03 - ["My Mom Almost Died From It": 21 Common Medical Conditions That Can Be Much, Much More Serious Than You Think](https://www.yahoo.com/news/mom-almost-died-21-common-133102864.html)
+- Jul 03 - [Mortgage and refinance interest rates today, July 3, 2025: Higher as the budget bill and jobs report worry traders](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-july-3-2025-100024766.html)
+- Jul 03 - [BREAKING: 4 dead, 14 injured in River North mass drive-by shooting late Wednesday night, Chicago police confirm](https://www.yahoo.com/news/breaking-multiple-people-shot-river-075701133.html)
 <!-- feed end -->
