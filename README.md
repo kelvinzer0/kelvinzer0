@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [This Solar Play Is The IBD Stock Of The Day As Renewables May Be Down But They're Not Out](https://www.investors.com/research/ibd-stock-of-the-day/nextracker-stock-buy-zone-as-renewables-may-be-down-but-not-out/?src=A00220&yptr=yahoo)
-- Jul 03 - [UPS to offer voluntary buyout packages to its US drivers](https://finance.yahoo.com/news/ups-offer-voluntary-buyout-packages-163405744.html)
+- Jul 03 - [Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul fight](https://sports.yahoo.com/boxing/breaking-news/article/julio-cesar-chavez-jr-arrested-by-ice-4-days-after-jake-paul-fight-184241006.html)
+- Jul 03 - [US, China Ease Some Tech Restrictions](https://finance.yahoo.com/video/us-china-ease-tech-restrictions-180208145.html)
+- Jul 03 - [After Trump Warns Elon Musk To 'Close Up Shop,' China Rallies Behind World's Richest Man: 'There's No Need To Keep Putting Up With It'](https://finance.yahoo.com/news/trump-warns-elon-musk-close-180042378.html)
 - Jul 03 - [23-Year-Old Dad Dies After Being Hit by Construction Equipment. His Grandfather, the Foreman, Was There to Hold Him](https://www.yahoo.com/news/23-old-dad-dies-being-155829731.html)
-- Jul 03 - [I’m a Financial Advisor: My Clients Who Retire Early All Do These 3 Things](https://finance.yahoo.com/news/m-financial-advisor-clients-retire-143812466.html)
-- Jul 03 - [Drone "narco sub" — equipped with Starlink antenna — seized for first time](https://www.yahoo.com/news/drone-narco-sub-equipped-starlink-102921451.html)
+- Jul 03 - [Pit bull mix Pluto ready for adoption after video shows alleged abuse](https://www.yahoo.com/news/pit-bull-mix-pluto-ready-152430568.html)
 <!-- feed end -->
