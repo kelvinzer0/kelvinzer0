@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Julio César Chávez Jr. arrested by ICE 4 days after Jake Paul fight](https://sports.yahoo.com/boxing/breaking-news/article/julio-cesar-chavez-jr-arrested-by-ice-4-days-after-jake-paul-fight-184241006.html)
-- Jul 03 - [US, China Ease Some Tech Restrictions](https://finance.yahoo.com/video/us-china-ease-tech-restrictions-180208145.html)
+- Jul 03 - [Berlin calls on China to use influence on Putin to end Ukraine war](https://www.yahoo.com/news/berlin-calls-china-influence-putin-191733208.html)
+- Jul 03 - [Mexican boxer Julio César Chávez Jr. arrested by ICE for deportation, federal officials say](https://sports.yahoo.com/article/mexican-boxer-julio-c-sar-185424584.html)
 - Jul 03 - [After Trump Warns Elon Musk To 'Close Up Shop,' China Rallies Behind World's Richest Man: 'There's No Need To Keep Putting Up With It'](https://finance.yahoo.com/news/trump-warns-elon-musk-close-180042378.html)
-- Jul 03 - [23-Year-Old Dad Dies After Being Hit by Construction Equipment. His Grandfather, the Foreman, Was There to Hold Him](https://www.yahoo.com/news/23-old-dad-dies-being-155829731.html)
-- Jul 03 - [Pit bull mix Pluto ready for adoption after video shows alleged abuse](https://www.yahoo.com/news/pit-bull-mix-pluto-ready-152430568.html)
+- Jul 03 - [Garuda's $10 Billion Comeback? Airline in Surprise Talks for Massive Boeing Deal](https://finance.yahoo.com/news/garudas-10-billion-comeback-airline-150438454.html)
+- Jul 03 - [Gruesome images of crash emerge as cause of Diogo Jota tragedy is clarified](https://sports.yahoo.com/article/gruesome-images-crash-emerge-cause-141500945.html)
 <!-- feed end -->
