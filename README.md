@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Mexican boxer Julio César Chávez Jr. arrested by ICE for deportation, federal officials say](https://sports.yahoo.com/article/mexican-boxer-julio-c-sar-185424584.html)
+- Jul 03 - [Confederacy group sues Georgia park for planning an exhibit on slavery and segregation](https://www.yahoo.com/news/confederacy-group-sues-georgia-park-212944851.html)
+- Jul 03 - [Tax break for seniors: Trump bill includes additional $6,000 deduction](https://finance.yahoo.com/news/tax-break-for-seniors-trump-bill-includes-additional-6000-deduction-204604211.html)
+- Jul 03 - [Lawsuit targets Michael Saylor’s Strategy as firm's Bitcoin stash exceeds $65 billion](https://finance.yahoo.com/news/lawsuit-targets-michael-saylor-strategy-191620763.html)
+- Jul 03 - [UPS drivers to receive buyout offer as company shrinks parcel network](https://finance.yahoo.com/news/ups-drivers-receive-buyout-offer-190307243.html)
 - Jul 03 - [Three reasons why Republicans cut Medicaid](https://www.yahoo.com/news/why-republicans-t-quit-medicaid-184536906.html)
-- Jul 03 - [Passenger misinterprets seat neighbor's ‘RIP’ text, forcing flight to divert](https://www.yahoo.com/news/passenger-misinterprets-seat-neighbors-rip-182831722.html)
-- Jul 03 - [After Trump Warns Elon Musk To 'Close Up Shop,' China Rallies Behind World's Richest Man: 'There's No Need To Keep Putting Up With It'](https://finance.yahoo.com/news/trump-warns-elon-musk-close-180042378.html)
-- Jul 03 - [California's largest blaze explodes in size as dry, hot weather raises wildfire risk statewide](https://www.yahoo.com/news/californias-largest-blaze-explodes-size-164433926.html)
 <!-- feed end -->
