@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 03 - [Third-ever confirmed interstellar object blazing through Solar System](https://www.yahoo.com/news/possible-interstellar-object-spotted-zooming-192425592.html)
+- Jul 03 - [Chinese aircraft carrier sails into Hong Kong for first time](https://www.yahoo.com/news/chinese-aircraft-carrier-sails-hong-015521194.html)
 - Jul 03 - [A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
 - Jul 02 - [3 Giant Dividend Stocks to Buy to Shield Your Portfolio Now](https://finance.yahoo.com/news/3-giant-dividend-stocks-buy-233002120.html)
 - Jul 02 - [2026 Chevrolet Corvette Pricing Will Shock Your Wallet](https://autos.yahoo.com/articles/2026-chevrolet-corvette-pricing-shock-224440031.html)
-- Jul 02 - [Blueberry recall elevated to highest level due to listeria risk](https://www.yahoo.com/news/blueberry-recall-elevated-highest-level-212548943.html)
 <!-- feed end -->
