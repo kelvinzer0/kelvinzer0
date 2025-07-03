@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Russian Navy deputy head killed by Ukraine, says Moscow](https://www.yahoo.com/news/deputy-head-russian-navy-killed-093205085.html)
-- Jul 03 - ["Yes, Human Soup Would Describe It": Morticians, ER Nurses, And Other People Who Work With The Dead Are Sharing Their Wildest Experiences On The Job](https://www.yahoo.com/news/yes-human-soup-describe-morticians-091603391.html)
+- Jul 03 - [Scene of car accident that killed Liverpool player Diogo Jota and his brother in Spain](https://www.yahoo.com/news/scene-car-accident-killed-liverpool-120256897.html)
+- Jul 03 - [Washington county suing homeowners for $7M after allegedly felling 142 protected trees to score better views](https://www.yahoo.com/news/washington-county-suing-homeowners-7m-103100617.html)
+- Jul 03 - [‘Totally Unhinged’: Trump Ripped After Bizarre Attack On Lawmaker’s ‘Ugly Face’](https://www.yahoo.com/news/totally-unhinged-trump-ripped-bizarre-060529020.html)
 - Jul 03 - [Video shows British-made fighter missiles, modified in 3 months to launch from the ground, scoring Russian drone kills](https://www.yahoo.com/news/video-shows-british-made-fighter-055211392.html)
-- Jul 03 - [Large Unidentified Object Detected Entering Our Solar System](https://www.yahoo.com/news/large-unidentified-object-detected-entering-022543865.html)
-- Jul 03 - [A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
+- Jul 03 - [Wordle hints today for #1,475: Clues and answer for Thursday, July 3](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1475-clues-and-answer-for-thursday-july-3-040135232.html)
 <!-- feed end -->
