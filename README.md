@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Berlin calls on China to use influence on Putin to end Ukraine war](https://www.yahoo.com/news/berlin-calls-china-influence-putin-191733208.html)
 - Jul 03 - [Mexican boxer Julio César Chávez Jr. arrested by ICE for deportation, federal officials say](https://sports.yahoo.com/article/mexican-boxer-julio-c-sar-185424584.html)
+- Jul 03 - [Three reasons why Republicans cut Medicaid](https://www.yahoo.com/news/why-republicans-t-quit-medicaid-184536906.html)
+- Jul 03 - [Passenger misinterprets seat neighbor's ‘RIP’ text, forcing flight to divert](https://www.yahoo.com/news/passenger-misinterprets-seat-neighbors-rip-182831722.html)
 - Jul 03 - [After Trump Warns Elon Musk To 'Close Up Shop,' China Rallies Behind World's Richest Man: 'There's No Need To Keep Putting Up With It'](https://finance.yahoo.com/news/trump-warns-elon-musk-close-180042378.html)
-- Jul 03 - [Garuda's $10 Billion Comeback? Airline in Surprise Talks for Massive Boeing Deal](https://finance.yahoo.com/news/garudas-10-billion-comeback-airline-150438454.html)
-- Jul 03 - [Gruesome images of crash emerge as cause of Diogo Jota tragedy is clarified](https://sports.yahoo.com/article/gruesome-images-crash-emerge-cause-141500945.html)
+- Jul 03 - [California's largest blaze explodes in size as dry, hot weather raises wildfire risk statewide](https://www.yahoo.com/news/californias-largest-blaze-explodes-size-164433926.html)
 <!-- feed end -->
