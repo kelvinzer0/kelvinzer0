@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Video shows British-made fighter missiles, modified in 3 months to launch from the ground, scoring Russian drone kills](https://www.yahoo.com/news/video-shows-british-made-fighter-055211392.html)
+- Jul 03 - [This Ivy League student sent a DOGE-style email to 3,805 employees as school costs top $90,000 per year](https://www.yahoo.com/lifestyle/articles/ivy-league-student-sent-doge-093700459.html)
+- Jul 03 - [Social Security Retirees Just Got Good News About President Trump's Big Beautiful Bill](https://finance.yahoo.com/news/social-security-retirees-just-got-083000223.html)
+- Jul 03 - [Chinese carrier Shandong moors in Hong Kong on 'great power' visit](https://www.yahoo.com/news/chinese-carrier-shandong-moors-hong-073557419.html)
+- Jul 03 - [Wordle hints today for #1,475: Clues and answer for Thursday, July 3](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1475-clues-and-answer-for-thursday-july-3-040135232.html)
 - Jul 03 - [Third-ever confirmed interstellar object blazing through Solar System](https://www.yahoo.com/news/possible-interstellar-object-spotted-zooming-192425592.html)
-- Jul 03 - [Chinese aircraft carrier sails into Hong Kong for first time](https://www.yahoo.com/news/chinese-aircraft-carrier-sails-hong-015521194.html)
-- Jul 03 - [Piece of plane found in North Carolina driveway may belong to Delta flight](https://www.yahoo.com/news/piece-plane-found-north-carolina-005614509.html)
-- Jul 03 - [A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
 <!-- feed end -->
