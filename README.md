@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Ramit Sethi says you need these 9 'money milestones' before 40 if you want to be rich — how many have you hit?](https://finance.yahoo.com/news/ramit-sethi-says-9-money-223300550.html)
+- Jul 03 - [Boeing's new CFO Malave to receive $1.05 million as annual base salary](https://finance.yahoo.com/news/boeings-cfo-malave-receive-1-220137566.html)
 - Jul 03 - [Confederacy group sues Georgia park for planning an exhibit on slavery and segregation](https://www.yahoo.com/news/confederacy-group-sues-georgia-park-212944851.html)
 - Jul 03 - [Tax break for seniors: Trump bill includes additional $6,000 deduction](https://finance.yahoo.com/news/tax-break-for-seniors-trump-bill-includes-additional-6000-deduction-204604211.html)
-- Jul 03 - [Lawsuit targets Michael Saylor’s Strategy as firm's Bitcoin stash exceeds $65 billion](https://finance.yahoo.com/news/lawsuit-targets-michael-saylor-strategy-191620763.html)
-- Jul 03 - [UPS drivers to receive buyout offer as company shrinks parcel network](https://finance.yahoo.com/news/ups-drivers-receive-buyout-offer-190307243.html)
-- Jul 03 - [Three reasons why Republicans cut Medicaid](https://www.yahoo.com/news/why-republicans-t-quit-medicaid-184536906.html)
+- Jul 03 - [EPA suspends and investigates around 140 employees who signed a letter critical of the agency](https://www.yahoo.com/news/epa-suspends-investigates-around-140-204046277.html)
 <!-- feed end -->
