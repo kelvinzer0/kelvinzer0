@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [A Q-Tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
-- Jul 02 - [Convicted killer says his lover had no part in murder of her husband](https://www.yahoo.com/news/convicted-killer-says-lover-had-161500464.html)
-- Jul 02 - [Trump turns to Supreme Court in fight to oust Biden-era consumer safety officials](https://www.yahoo.com/news/trump-turns-supreme-court-fight-232912236.html)
+- Jul 03 - [A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
 - Jul 02 - [Blueberry recall elevated to highest level due to listeria risk](https://www.yahoo.com/news/blueberry-recall-elevated-highest-level-212548943.html)
+- Jul 02 - [Northrop Stock Fell. The New Navy Fighter Jet Might Not Happen.](https://www.barrons.com/articles/northrop-stock-navy-jet-bdccb094?siteid=yhoof2&yptr=yahoo)
+- Jul 02 - [US contractors say their colleagues are firing live ammo as Palestinians seek food in Gaza](https://www.yahoo.com/news/us-contractors-colleagues-firing-live-194854979.html)
 - Jul 02 - [AOC Exposes Catch in “No Tax on Tips” Rule in Trump’s Budget](https://www.yahoo.com/news/aoc-exposes-catch-no-tax-180558008.html)
 <!-- feed end -->
