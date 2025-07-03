@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 03 - [Video shows British-made fighter missiles, modified in 3 months to launch from the ground, scoring Russian drone kills](https://www.yahoo.com/news/video-shows-british-made-fighter-055211392.html)
+- Jul 03 - [Third-ever confirmed interstellar object blazing through Solar System](https://www.yahoo.com/news/possible-interstellar-object-spotted-zooming-192425592.html)
 - Jul 03 - [Chinese aircraft carrier sails into Hong Kong for first time](https://www.yahoo.com/news/chinese-aircraft-carrier-sails-hong-015521194.html)
-- Jul 02 - [2026 Chevrolet Corvette Pricing Will Shock Your Wallet](https://autos.yahoo.com/articles/2026-chevrolet-corvette-pricing-shock-224440031.html)
-- Jul 02 - [Blueberry recall elevated to highest level due to listeria risk](https://www.yahoo.com/news/blueberry-recall-elevated-highest-level-212548943.html)
-- Jul 02 - [Trump taps 30-year-old with little government experience and links to Holocaust denier to lead federal agency](https://www.yahoo.com/news/trump-taps-30-old-little-204441771.html)
+- Jul 03 - [Piece of plane found in North Carolina driveway may belong to Delta flight](https://www.yahoo.com/news/piece-plane-found-north-carolina-005614509.html)
+- Jul 03 - [A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
 <!-- feed end -->
