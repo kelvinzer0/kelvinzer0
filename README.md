@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Euro zone services sector returned to modest growth in June, PMI shows](https://finance.yahoo.com/video/euro-zone-services-sector-returned-104045169.html)
+- Jul 03 - [Russian Navy deputy head killed by Ukraine, says Moscow](https://www.yahoo.com/news/deputy-head-russian-navy-killed-093205085.html)
+- Jul 03 - ["Yes, Human Soup Would Describe It": Morticians, ER Nurses, And Other People Who Work With The Dead Are Sharing Their Wildest Experiences On The Job](https://www.yahoo.com/news/yes-human-soup-describe-morticians-091603391.html)
 - Jul 03 - [Video shows British-made fighter missiles, modified in 3 months to launch from the ground, scoring Russian drone kills](https://www.yahoo.com/news/video-shows-british-made-fighter-055211392.html)
-- Jul 03 - ['That Was You': GOP Lawmaker Hit With Blunt Reminder Of His Own Words On Live TV](https://www.yahoo.com/news/gop-lawmaker-hit-blunt-reminder-035851776.html)
-- Jul 03 - [Third-ever confirmed interstellar object blazing through Solar System](https://www.yahoo.com/news/possible-interstellar-object-spotted-zooming-192425592.html)
-- Jul 03 - [Chinese aircraft carrier sails into Hong Kong for first time](https://www.yahoo.com/news/chinese-aircraft-carrier-sails-hong-015521194.html)
+- Jul 03 - [Large Unidentified Object Detected Entering Our Solar System](https://www.yahoo.com/news/large-unidentified-object-detected-entering-022543865.html)
+- Jul 03 - [A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
 <!-- feed end -->
