@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Third-ever confirmed interstellar object blazing through Solar System](https://www.yahoo.com/news/possible-interstellar-object-spotted-zooming-192425592.html)
+- Jul 03 - [A Q-tip and spotless car were key evidence linking Bryan Kohberger to murders of 4 Idaho students](https://www.yahoo.com/news/q-tip-spotless-car-were-003329007.html)
+- Jul 02 - [3 Giant Dividend Stocks to Buy to Shield Your Portfolio Now](https://finance.yahoo.com/news/3-giant-dividend-stocks-buy-233002120.html)
+- Jul 02 - [2026 Chevrolet Corvette Pricing Will Shock Your Wallet](https://autos.yahoo.com/articles/2026-chevrolet-corvette-pricing-shock-224440031.html)
 - Jul 02 - [Blueberry recall elevated to highest level due to listeria risk](https://www.yahoo.com/news/blueberry-recall-elevated-highest-level-212548943.html)
-- Jul 02 - [Trump taps 30-year-old with little government experience and links to Holocaust denier to lead federal agency](https://www.yahoo.com/news/trump-taps-30-old-little-204441771.html)
-- Jul 02 - [Northrop Stock Fell. The New Navy Fighter Jet Might Not Happen.](https://www.barrons.com/articles/northrop-stock-navy-jet-bdccb094?siteid=yhoof2&yptr=yahoo)
-- Jul 02 - [AOC Exposes Catch in “No Tax on Tips” Rule in Trump’s Budget](https://www.yahoo.com/news/aoc-exposes-catch-no-tax-180558008.html)
-- Jul 02 - [Democrats quickly turn Murkowski’s Trump megabill confession against her and launch bid to make JD Vance pay](https://www.yahoo.com/news/democrats-quickly-turn-murkowski-trump-172324424.html)
 <!-- feed end -->
