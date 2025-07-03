@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 03 - [Garuda's $10 Billion Comeback? Airline in Surprise Talks for Massive Boeing Deal](https://finance.yahoo.com/news/garudas-10-billion-comeback-airline-150438454.html)
 - Jul 03 - [Drone "narco sub" — equipped with Starlink antenna — seized for first time](https://www.yahoo.com/news/drone-narco-sub-equipped-starlink-102921451.html)
-- Jul 03 - [Gruesome images of crash emerge as cause of Diogo Jota tragedy is clarified](https://sports.yahoo.com/article/gruesome-images-crash-emerge-cause-141500945.html)
 - Jul 03 - ["My Mom Almost Died From It": 21 Common Medical Conditions That Can Be Much, Much More Serious Than You Think](https://www.yahoo.com/news/mom-almost-died-21-common-133102864.html)
-- Jul 03 - [ACLU sues to block ICE raids in Southern California, alleging constitutional violations](https://www.yahoo.com/news/aclu-sues-block-ice-raids-123305839.html)
+- Jul 03 - [This U.S. Airport Will Take You the Longest to Walk Through, According to a New Study](https://www.yahoo.com/lifestyle/articles/u-airport-longest-walk-according-121849860.html)
 - Jul 03 - [Scene of car accident that killed Liverpool player Diogo Jota and his brother in Spain](https://www.yahoo.com/news/scene-car-accident-killed-liverpool-120256897.html)
 <!-- feed end -->
