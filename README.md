@@ -63,5 +63,5 @@ https://kelvinzer0.github.io
 - Jul 02 - [Blueberry recall elevated to highest level due to listeria risk](https://www.yahoo.com/news/blueberry-recall-elevated-highest-level-212548943.html)
 - Jul 02 - [Northrop Stock Fell. The New Navy Fighter Jet Might Not Happen.](https://www.barrons.com/articles/northrop-stock-navy-jet-bdccb094?siteid=yhoof2&yptr=yahoo)
 - Jul 02 - [US contractors say their colleagues are firing live ammo as Palestinians seek food in Gaza](https://www.yahoo.com/news/us-contractors-colleagues-firing-live-194854979.html)
-- Jul 02 - [AOC Exposes Catch in “No Tax on Tips” Rule in Trump’s Budget](https://www.yahoo.com/news/aoc-exposes-catch-no-tax-180558008.html)
+- Jul 02 - [The first genome sequenced from ancient Egypt reveals surprising ancestry, scientists say](https://www.yahoo.com/news/first-genome-sequenced-ancient-egypt-171434637.html)
 <!-- feed end -->
