@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Aftermath as Russian drone strikes residential building in Odesa](https://www.yahoo.com/news/aftermath-russian-drone-strikes-residential-133601069.html)
-- Jul 03 - [Grant Cardone says owning a home in the US isn’t an ‘investment’ if you live there — and he’d rather pay rent](https://finance.yahoo.com/news/grant-cardone-says-owning-home-133600463.html)
+- Jul 03 - [Drone "narco sub" — equipped with Starlink antenna — seized for first time](https://www.yahoo.com/news/drone-narco-sub-equipped-starlink-102921451.html)
+- Jul 03 - [Gruesome images of crash emerge as cause of Diogo Jota tragedy is clarified](https://sports.yahoo.com/article/gruesome-images-crash-emerge-cause-141500945.html)
 - Jul 03 - ["My Mom Almost Died From It": 21 Common Medical Conditions That Can Be Much, Much More Serious Than You Think](https://www.yahoo.com/news/mom-almost-died-21-common-133102864.html)
-- Jul 03 - [Mortgage and refinance interest rates today, July 3, 2025: Higher as the budget bill and jobs report worry traders](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-thursday-july-3-2025-100024766.html)
-- Jul 03 - [BREAKING: 4 dead, 14 injured in River North mass drive-by shooting late Wednesday night, Chicago police confirm](https://www.yahoo.com/news/breaking-multiple-people-shot-river-075701133.html)
+- Jul 03 - [ACLU sues to block ICE raids in Southern California, alleging constitutional violations](https://www.yahoo.com/news/aclu-sues-block-ice-raids-123305839.html)
+- Jul 03 - [Scene of car accident that killed Liverpool player Diogo Jota and his brother in Spain](https://www.yahoo.com/news/scene-car-accident-killed-liverpool-120256897.html)
 <!-- feed end -->
