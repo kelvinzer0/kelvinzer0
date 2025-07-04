@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [End of tax-free loophole for low-value goods disrupts air shipments to US from China](https://finance.yahoo.com/news/end-tax-free-loophole-low-043125864.html)
 - Jul 04 - [North Korean crosses the heavily fortified border to South Korea](https://www.yahoo.com/news/north-korean-crosses-heavily-fortified-013200730.html)
+- Jul 04 - [Wisconsin Republican Deletes Post That Appeared To Celebrate Millions Of People Losing Health Insurance](https://www.yahoo.com/news/wisconsin-republican-deletes-post-appeared-002459499.html)
 - Jul 04 - [Wildfire explodes to more than 52,000 acres in 1 day](https://www.yahoo.com/news/wildfire-explodes-more-35-000-193139651.html)
-- Jul 04 - [Arbitrators in Exxon, Hess dispute over Chevron deal have reached a decision, sources say](https://finance.yahoo.com/news/arbitrators-exxon-hess-dispute-over-000310552.html)
 - Jul 03 - [How your income taxes will change after Trump signs the ‘big, beautiful bill’ into law](https://finance.yahoo.com/news/incombe-taxes-change-trump-signs-213058459.html)
-- Jul 03 - [Mexican boxer Julio César Chávez Jr. arrested by ICE for deportation, federal officials say](https://sports.yahoo.com/article/mexican-boxer-julio-c-sar-185424584.html)
 <!-- feed end -->
