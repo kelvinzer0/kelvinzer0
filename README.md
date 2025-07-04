@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [North Korean crosses the heavily fortified border to South Korea](https://www.yahoo.com/news/north-korean-crosses-heavily-fortified-013200730.html)
+- Jul 04 - [Wisconsin Republican Deletes Post That Appeared To Celebrate Millions Of People Losing Health Insurance](https://www.yahoo.com/news/wisconsin-republican-deletes-post-appeared-002459499.html)
 - Jul 03 - [How your income taxes will change after Trump signs the ‘big, beautiful bill’ into law](https://finance.yahoo.com/news/incombe-taxes-change-trump-signs-213058459.html)
 - Jul 03 - [Confederacy group sues Georgia park for planning an exhibit on slavery and segregation](https://www.yahoo.com/news/confederacy-group-sues-georgia-park-212944851.html)
-- Jul 03 - [Three reasons why Republicans cut Medicaid](https://www.yahoo.com/news/why-republicans-t-quit-medicaid-184536906.html)
-- Jul 03 - [Passenger misinterprets seat neighbor's ‘RIP’ text, forcing flight to divert](https://www.yahoo.com/news/passenger-misinterprets-seat-neighbors-rip-182831722.html)
-- Jul 03 - [California's largest blaze explodes in size as dry, hot weather raises wildfire risk statewide](https://www.yahoo.com/news/californias-largest-blaze-explodes-size-164433926.html)
+- Jul 03 - [New York City Woman Finds Distressed Dog with 'Broken Jaw' Discarded in 'Heavy Duty Trash Bags'](https://www.yahoo.com/entertainment/videos/york-city-woman-finds-distressed-201805935.html)
 <!-- feed end -->
