@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Viral quake doomsday rumors spook tourists to Japan](https://www.yahoo.com/news/viral-quake-doomsday-rumors-spook-064254257.html)
 - Jul 04 - [End of tax-free loophole for low-value goods disrupts air shipments to US from China](https://finance.yahoo.com/news/end-tax-free-loophole-low-043125864.html)
 - Jul 04 - [Full 'Idiocracy': Trump's Bonkers Plan For White House Event Gets Panned By Critics](https://www.yahoo.com/news/full-idiocracy-trumps-bonkers-plan-025745281.html)
 - Jul 04 - [North Korean crosses the heavily fortified border to South Korea](https://www.yahoo.com/news/north-korean-crosses-heavily-fortified-013200730.html)
-- Jul 04 - [Arbitrators in Exxon, Hess dispute over Chevron deal have reached a decision, sources say](https://finance.yahoo.com/news/arbitrators-exxon-hess-dispute-over-000310552.html)
+- Jul 04 - [Wisconsin Republican Deletes Post That Appeared To Celebrate Millions Of People Losing Health Insurance](https://www.yahoo.com/news/wisconsin-republican-deletes-post-appeared-002459499.html)
+- Jul 04 - [Cruise Passenger Went on a Solo Hike In Alaska. When It Was Time to Reboard, They Were Nowhere to Be Found](https://www.yahoo.com/news/cruise-passenger-went-solo-hike-000204300.html)
 <!-- feed end -->
