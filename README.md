@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [South Korea trade minister to leave for U.S. on Friday as tariff deadline looms](https://www.yahoo.com/news/south-korea-trade-minister-leave-031114959.html)
 - Jul 04 - [North Korean crosses the heavily fortified border to South Korea](https://www.yahoo.com/news/north-korean-crosses-heavily-fortified-013200730.html)
-- Jul 04 - [Wisconsin Republican Deletes Post That Appeared To Celebrate Millions Of People Losing Health Insurance](https://www.yahoo.com/news/wisconsin-republican-deletes-post-appeared-002459499.html)
 - Jul 03 - [How your income taxes will change after Trump signs the ‘big, beautiful bill’ into law](https://finance.yahoo.com/news/incombe-taxes-change-trump-signs-213058459.html)
 - Jul 03 - [Confederacy group sues Georgia park for planning an exhibit on slavery and segregation](https://www.yahoo.com/news/confederacy-group-sues-georgia-park-212944851.html)
-- Jul 03 - [New York City Woman Finds Distressed Dog with 'Broken Jaw' Discarded in 'Heavy Duty Trash Bags'](https://www.yahoo.com/entertainment/videos/york-city-woman-finds-distressed-201805935.html)
+- Jul 03 - [Three reasons why Republicans cut Medicaid](https://www.yahoo.com/news/why-republicans-t-quit-medicaid-184536906.html)
 <!-- feed end -->
