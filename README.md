@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Hamas says it delivered 'positive response' on Gaza ceasefire plan](https://www.yahoo.com/news/hamas-says-consulting-other-palestinian-092248716.html)
-- Jul 04 - [Judge blocks immigrants' deportation to South Sudan one day after Supreme Court clears the way](https://www.yahoo.com/news/judge-blocks-immigrants-deportation-south-190421841.html)
+- Jul 04 - [Man found dead on side of Ohio road; suspect arrested in another county](https://www.yahoo.com/news/man-found-dead-side-ohio-204831077.html)
+- Jul 04 - [‘We want an answer’: They fear their relatives are among the hundreds of bodies piled up at a crematorium in Mexico](https://www.yahoo.com/news/want-answer-fear-relatives-among-194537136.html)
 - Jul 04 - [US Air Force suspends SpaceX rocket project on Pacific atoll, report says](https://www.yahoo.com/news/us-air-force-suspends-spacex-185306770.html)
-- Jul 04 - [China tells EU it can’t accept Russia losing its war against Ukraine, official says](https://www.yahoo.com/news/china-tells-eu-t-accept-163804994.html)
+- Jul 04 - [Obama Trolls Trump in Independence Day Message](https://www.yahoo.com/news/obama-trolls-trump-independence-day-162425042.html)
 - Jul 04 - [Mexico President Sheinbaum hopes deported boxer Chávez Jr. will serve time in Mexico](https://www.yahoo.com/news/mexico-president-sheinbaum-hopes-deported-155500309.html)
 <!-- feed end -->
