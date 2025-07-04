@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [Calgary Stampede, Osheaga and more: A doctor's tips on heat safety, hydration and substance control for summer festivals in Canada](https://www.yahoo.com/lifestyle/article/calgary-stampede-osheaga-and-more-a-doctors-tips-on-heat-safety-hydration-and-substance-control-for-summer-festivals-in-canada-181956476.html)
 - Jul 04 - [Indefinite jail terms ‘not right and not fair’, Lords say in call to end IPP injustice](https://www.yahoo.com/news/indefinite-jail-terms-not-not-155146393.html)
+- Jul 04 - [Social Security Administration praises Trump’s agenda bill in widely sent out statement](https://www.yahoo.com/news/social-security-administration-praises-trump-175732364.html)
 - Jul 04 - [Man broke police officer’s nose in airport attack, court hears](https://www.yahoo.com/news/man-broke-police-officer-nose-110548169.html)
 - Jul 04 - [Coral transplants could help save Miami’s iconic reefs from climate change](https://www.yahoo.com/news/coral-transplants-could-help-save-165401591.html)
-- Jul 04 - [China tells EU it can’t accept Russia losing its war against Ukraine, official says](https://www.yahoo.com/news/china-tells-eu-t-accept-163804994.html)
-- Jul 04 - [Mexico President Sheinbaum hopes deported boxer Chávez Jr. will serve time in Mexico](https://www.yahoo.com/news/mexico-president-sheinbaum-hopes-deported-155500309.html)
 <!-- feed end -->
