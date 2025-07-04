@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Turkey arrests ten suspects after wildfires, interior minister says](https://www.yahoo.com/news/turkey-arrests-ten-suspects-wildfires-191224911.html)
-- Jul 04 - [The Benefits of Iced Tea—and How Much to Drink to Get Them](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/benefits-iced-tea-much-drink-190100073.html)
+- Jul 04 - [Hamas says it delivered 'positive response' on Gaza ceasefire plan](https://www.yahoo.com/news/hamas-says-consulting-other-palestinian-092248716.html)
+- Jul 04 - [Judge blocks immigrants' deportation to South Sudan one day after Supreme Court clears the way](https://www.yahoo.com/news/judge-blocks-immigrants-deportation-south-190421841.html)
 - Jul 04 - [US Air Force suspends SpaceX rocket project on Pacific atoll, report says](https://www.yahoo.com/news/us-air-force-suspends-spacex-185306770.html)
-- Jul 04 - [Why Tesla’s Cybertruck has been such a flop](https://finance.yahoo.com/news/behold-epic-flop-cybertruck-140025865.html)
 - Jul 04 - [China tells EU it can’t accept Russia losing its war against Ukraine, official says](https://www.yahoo.com/news/china-tells-eu-t-accept-163804994.html)
+- Jul 04 - [Mexico President Sheinbaum hopes deported boxer Chávez Jr. will serve time in Mexico](https://www.yahoo.com/news/mexico-president-sheinbaum-hopes-deported-155500309.html)
 <!-- feed end -->
