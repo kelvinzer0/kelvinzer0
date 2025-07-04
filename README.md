@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Fireworks found exploding as fire burns four Los Angeles homes](https://www.yahoo.com/news/fireworks-found-exploding-fire-burns-103306418.html)
+- Jul 04 - [I just bought a house and my girlfriend wants her name on the deed — despite not helping with the down payment](https://www.yahoo.com/lifestyle/articles/just-bought-house-girlfriend-wants-103100844.html)
+- Jul 04 - [What is happening in South Korea? Seoul has caught the lovebug that nobody wants](https://www.yahoo.com/news/happening-south-korea-seoul-caught-090117447.html)
 - Jul 04 - [Russian use of chemical weapons against Ukraine 'widespread', Dutch defence minister says](https://www.yahoo.com/news/exclusive-russian-chemical-weapons-against-063528712.html)
 - Jul 04 - [Report shows Trump milks presidency for badly needed bailout](https://www.yahoo.com/news/report-shows-trump-milks-presidency-045201171.html)
-- Jul 04 - [End of tax-free loophole for low-value goods disrupts air shipments to US from China](https://finance.yahoo.com/news/end-tax-free-loophole-low-043125864.html)
 - Jul 04 - [North Korean crosses the heavily fortified border to South Korea](https://www.yahoo.com/news/north-korean-crosses-heavily-fortified-013200730.html)
 <!-- feed end -->
