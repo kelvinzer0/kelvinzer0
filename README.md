@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Exclusive-Regulators warned Air India Express about delay on Airbus engine fix, forging records](https://www.yahoo.com/news/exclusive-regulators-warned-air-india-091415134.html)
-- Jul 04 - [What's open and closed on July Fourth](https://www.yahoo.com/news/whats-open-closed-july-fourth-090942060.html)
+- Jul 04 - [Fireworks found exploding as fire burns four Los Angeles homes](https://www.yahoo.com/news/fireworks-found-exploding-fire-burns-103306418.html)
 - Jul 04 - [Russian use of chemical weapons against Ukraine 'widespread', Dutch defence minister says](https://www.yahoo.com/news/exclusive-russian-chemical-weapons-against-063528712.html)
+- Jul 04 - [Report shows Trump milks presidency for badly needed bailout](https://www.yahoo.com/news/report-shows-trump-milks-presidency-045201171.html)
+- Jul 04 - [End of tax-free loophole for low-value goods disrupts air shipments to US from China](https://finance.yahoo.com/news/end-tax-free-loophole-low-043125864.html)
 - Jul 04 - [North Korean crosses the heavily fortified border to South Korea](https://www.yahoo.com/news/north-korean-crosses-heavily-fortified-013200730.html)
-- Jul 04 - [Arbitrators in Exxon, Hess dispute over Chevron deal have reached a decision, sources say](https://finance.yahoo.com/news/arbitrators-exxon-hess-dispute-over-000310552.html)
 <!-- feed end -->
