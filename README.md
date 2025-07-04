@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [I just bought a house and my girlfriend wants her name on the deed — despite not helping with the down payment](https://www.yahoo.com/lifestyle/articles/just-bought-house-girlfriend-wants-103100844.html)
-- Jul 04 - [What is happening in South Korea? Seoul has caught the lovebug that nobody wants](https://www.yahoo.com/news/happening-south-korea-seoul-caught-090117447.html)
-- Jul 04 - [Russian use of chemical weapons against Ukraine 'widespread', Dutch defence minister says](https://www.yahoo.com/news/exclusive-russian-chemical-weapons-against-063528712.html)
-- Jul 04 - [Report shows Trump milks presidency for badly needed bailout](https://www.yahoo.com/news/report-shows-trump-milks-presidency-045201171.html)
-- Jul 04 - [North Korean crosses the heavily fortified border to South Korea](https://www.yahoo.com/news/north-korean-crosses-heavily-fortified-013200730.html)
+- Jul 04 - [South Bend trailer park residents face a chilling choice — remove their window A/C units or risk eviction](https://www.yahoo.com/news/south-bend-trailer-park-residents-110000002.html)
+- Jul 04 - [Missing doctor who left cruise ship in Alaska to take a hike found dead](https://www.yahoo.com/news/authorities-search-doctor-missing-alaska-181039164.html)
+- Jul 04 - [American bombs in Iran also reverberate in China and North Korea](https://www.yahoo.com/news/american-bombs-iran-reverberate-china-104707880.html)
+- Jul 04 - [Airport authorities make horrifying discovery after noticing movement in traveler's luggage: 'Inflicts untold harm'](https://www.yahoo.com/news/airport-authorities-horrifying-discovery-noticing-101556269.html)
+- Jul 04 - [Arbitrators reach verdict on Exxon and Chevron dispute over Hess acquisition](https://finance.yahoo.com/news/arbitrators-reach-verdict-exxon-chevron-092038828.html)
 <!-- feed end -->
