@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [125,000-year-old ‘fat factory’ run by Neanderthals discovered in Germany](https://www.yahoo.com/news/125-000-old-fat-factory-141618687.html)
-- Jul 04 - [26-Year-Old New Orleans Police Officer and U.S. Army Reservist Dies from Complications Following BBL Surgery: Reports](https://www.yahoo.com/news/26-old-orleans-police-officer-114930821.html)
-- Jul 04 - [Millions don't use AC. Why Americans are turning off air conditioners this summer](https://www.yahoo.com/news/millions-dont-ac-why-americans-110118732.html)
-- Jul 04 - [Expert issues warning on dangerous truth behind beautiful plant: 'Causes so much harm'](https://www.yahoo.com/news/expert-issues-warning-dangerous-truth-110039759.html)
-- Jul 04 - [Airport authorities make horrifying discovery after noticing movement in traveler's luggage: 'Inflicts untold harm'](https://www.yahoo.com/news/airport-authorities-horrifying-discovery-noticing-101556269.html)
+- Jul 04 - [Indefinite jail terms ‘not right and not fair’, Lords say in call to end IPP injustice](https://www.yahoo.com/news/indefinite-jail-terms-not-not-155146393.html)
+- Jul 04 - [Man broke police officer’s nose in airport attack, court hears](https://www.yahoo.com/news/man-broke-police-officer-nose-110548169.html)
+- Jul 04 - [Coral transplants could help save Miami’s iconic reefs from climate change](https://www.yahoo.com/news/coral-transplants-could-help-save-165401591.html)
+- Jul 04 - [China tells EU it can’t accept Russia losing its war against Ukraine, official says](https://www.yahoo.com/news/china-tells-eu-t-accept-163804994.html)
+- Jul 04 - [Mexico President Sheinbaum hopes deported boxer Chávez Jr. will serve time in Mexico](https://www.yahoo.com/news/mexico-president-sheinbaum-hopes-deported-155500309.html)
 <!-- feed end -->
