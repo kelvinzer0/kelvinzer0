@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [Putin may be mocking Trump over Ukraine – but the US president won’t do anything about it](https://www.yahoo.com/news/putin-may-mocking-trump-over-120158593.html)
-- Jul 04 - [Dutch intelligence services say Russia has stepped up use of banned chemical weapons in Ukraine](https://www.yahoo.com/news/dutch-intelligence-services-russia-stepped-145808137.html)
-- Jul 04 - [China spares major cognac makers from EU brandy dumping duties](https://finance.yahoo.com/video/china-spares-major-cognac-makers-144451543.html)
 - Jul 04 - [125,000-year-old ‘fat factory’ run by Neanderthals discovered in Germany](https://www.yahoo.com/news/125-000-old-fat-factory-141618687.html)
+- Jul 04 - [If I Could Load Up on Any Artificial Intelligence (AI) Stock, It Would Be This One (Hint: It's Not Nvidia)](https://finance.yahoo.com/news/could-load-artificial-intelligence-ai-140000610.html)
 - Jul 04 - [41 Americans Revealed Their Monthly Rent Costs, And I'm Honestly Questioning If I Should Move](https://www.yahoo.com/lifestyle/articles/41-americans-revealed-monthly-rent-133103959.html)
+- Jul 04 - [26-Year-Old New Orleans Police Officer and U.S. Army Reservist Dies from Complications Following BBL Surgery: Reports](https://www.yahoo.com/news/26-old-orleans-police-officer-114930821.html)
+- Jul 04 - [China helped Pakistan with 'live inputs' in conflict with India, Indian Army deputy chief says](https://www.yahoo.com/news/china-helped-pakistan-live-inputs-110909881.html)
 <!-- feed end -->
