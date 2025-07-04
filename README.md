@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 04 - [‘Cool’ people tend to have these six things in common, study finds](https://www.yahoo.com/lifestyle/articles/coolest-person-july-4-barbecue-110024434.html)
-- Jul 04 - [26-Year-Old New Orleans Police Officer and U.S. Army Reservist Dies from Complications Following BBL Surgery: Reports](https://www.yahoo.com/news/26-old-orleans-police-officer-114930821.html)
-- Jul 04 - [Ron DeSantis slams property taxes in America — he compares it to paying annual taxes on your TV from Best Buy](https://finance.yahoo.com/news/ron-desantis-slams-property-taxes-113700442.html)
-- Jul 04 - [Missing doctor who left cruise ship in Alaska to take a hike found dead](https://www.yahoo.com/news/authorities-search-doctor-missing-alaska-181039164.html)
-- Jul 04 - [American bombs in Iran also reverberate in China and North Korea](https://www.yahoo.com/news/american-bombs-iran-reverberate-china-104707880.html)
+- Jul 04 - [Putin may be mocking Trump over Ukraine – but the US president won’t do anything about it](https://www.yahoo.com/news/putin-may-mocking-trump-over-120158593.html)
+- Jul 04 - [Dutch intelligence services say Russia has stepped up use of banned chemical weapons in Ukraine](https://www.yahoo.com/news/dutch-intelligence-services-russia-stepped-145808137.html)
+- Jul 04 - [China spares major cognac makers from EU brandy dumping duties](https://finance.yahoo.com/video/china-spares-major-cognac-makers-144451543.html)
+- Jul 04 - [125,000-year-old ‘fat factory’ run by Neanderthals discovered in Germany](https://www.yahoo.com/news/125-000-old-fat-factory-141618687.html)
+- Jul 04 - [41 Americans Revealed Their Monthly Rent Costs, And I'm Honestly Questioning If I Should Move](https://www.yahoo.com/lifestyle/articles/41-americans-revealed-monthly-rent-133103959.html)
 <!-- feed end -->
