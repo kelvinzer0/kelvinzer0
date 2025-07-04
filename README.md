@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 03 - [Ramit Sethi says you need these 9 'money milestones' before 40 if you want to be rich — how many have you hit?](https://finance.yahoo.com/news/ramit-sethi-says-9-money-223300550.html)
-- Jul 03 - [Boeing's new CFO Malave to receive $1.05 million as annual base salary](https://finance.yahoo.com/news/boeings-cfo-malave-receive-1-220137566.html)
+- Jul 03 - [How your income taxes will change after Trump signs the ‘big, beautiful bill’ into law](https://finance.yahoo.com/news/incombe-taxes-change-trump-signs-213058459.html)
 - Jul 03 - [Confederacy group sues Georgia park for planning an exhibit on slavery and segregation](https://www.yahoo.com/news/confederacy-group-sues-georgia-park-212944851.html)
-- Jul 03 - [Tax break for seniors: Trump bill includes additional $6,000 deduction](https://finance.yahoo.com/news/tax-break-for-seniors-trump-bill-includes-additional-6000-deduction-204604211.html)
-- Jul 03 - [EPA suspends and investigates around 140 employees who signed a letter critical of the agency](https://www.yahoo.com/news/epa-suspends-investigates-around-140-204046277.html)
+- Jul 03 - [Three reasons why Republicans cut Medicaid](https://www.yahoo.com/news/why-republicans-t-quit-medicaid-184536906.html)
+- Jul 03 - [Passenger misinterprets seat neighbor's ‘RIP’ text, forcing flight to divert](https://www.yahoo.com/news/passenger-misinterprets-seat-neighbors-rip-182831722.html)
+- Jul 03 - [California's largest blaze explodes in size as dry, hot weather raises wildfire risk statewide](https://www.yahoo.com/news/californias-largest-blaze-explodes-size-164433926.html)
 <!-- feed end -->
