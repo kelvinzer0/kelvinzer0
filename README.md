@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [24 dead in Texas floods and more than 20 children missing from a girls summer camp](https://www.yahoo.com/news/least-13-dead-texas-floods-230630954.html)
+- Jul 04 - [Crowds fill Downtown Nashville for 'Let Freedom Sing' July 4th event with music, fireworks](https://www.yahoo.com/news/crowds-fill-downtown-nashville-let-234946766.html)
+- Jul 04 - [We moved from Salt Lake City to a small Texas town. The high property taxes shocked us, but the small-town vibe is worth it.](https://www.yahoo.com/lifestyle/articles/moved-salt-lake-city-small-232901613.html)
 - Jul 04 - [Elon Musk Backs Warren Buffett's Brutal '5-Minute Deficit Fix' To Ban Congress From Reelection If They Blow the Budget: '100% This Is the Way'](https://finance.yahoo.com/news/elon-musk-backs-warren-buffetts-230021114.html)
-- Jul 04 - [Donald Trump orders entry fee, DEI changes at national parks](https://www.yahoo.com/news/donald-trump-orders-entry-fee-220511301.html)
-- Jul 04 - [Here are the 6 levels of wealth for retirement-age Americans — are you at the top or bottom of the pyramida](https://finance.yahoo.com/news/6-levels-wealth-retirement-age-211200878.html)
-- Jul 04 - [Judge briefly blocks immigrants' deportation to South Sudan, but legal path eventually cleared](https://www.yahoo.com/news/judge-blocks-immigrants-deportation-south-190421841.html)
-- Jul 04 - [US Air Force suspends SpaceX rocket project on Pacific atoll, report says](https://www.yahoo.com/news/us-air-force-suspends-spacex-185306770.html)
+- Jul 04 - [Texas families plead for information on at least 23 girls missing from summer camp after floods](https://www.yahoo.com/news/texas-families-plead-information-more-225358428.html)
 <!-- feed end -->
