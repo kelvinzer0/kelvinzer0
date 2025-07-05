@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 05 - [Mexicans protest against gentrification and US migration](https://www.yahoo.com/news/mexicans-protest-against-gentrification-us-095048138.html)
-- Jul 05 - [Texas flooding: Desperate families post pictures of children as 23 girls remain missing](https://www.yahoo.com/news/texas-flooding-desperate-families-post-074954885.html)
-- Jul 05 - [Sweden invented ‘flight shaming’. Now it is begging airlines to return](https://www.yahoo.com/news/sweden-invented-flight-shaming-now-060000316.html)
 - Jul 05 - [Patient used AI to find Providence's innovative heart surgery. What role should the technology play in health care?](https://www.yahoo.com/news/patient-used-ai-providences-innovative-035900021.html)
 - Jul 05 - [People Are Sharing The Under-Hyped Jobs That Are Actually Really, Really Great, And It Might Be Time For A Career Change](https://www.yahoo.com/lifestyle/articles/people-sharing-under-hyped-jobs-021602395.html)
+- Jul 05 - [Mega Millions winning numbers for July 4: Jackpot rises to $60 million](https://www.yahoo.com/news/mega-millions-winning-numbers-july-010034766.html)
+- Jul 04 - [Elon Musk Backs Warren Buffett's Brutal '5-Minute Deficit Fix' To Ban Congress From Reelection If They Blow the Budget: '100% This Is the Way'](https://finance.yahoo.com/news/elon-musk-backs-warren-buffetts-230021114.html)
 <!-- feed end -->
