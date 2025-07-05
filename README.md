@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 04 - [We moved from Salt Lake City to a small Texas town. The high property taxes shocked us, but the small-town vibe is worth it.](https://www.yahoo.com/lifestyle/articles/moved-salt-lake-city-small-232901613.html)
+- Jul 04 - [Texas families plead for information on more than 20 girls missing from summer camp after floods](https://www.yahoo.com/news/texas-families-plead-information-more-225358428.html)
+- Jul 04 - [Donald Trump orders entry fee, DEI changes at national parks](https://www.yahoo.com/news/donald-trump-orders-entry-fee-220511301.html)
 - Jul 04 - [Here are the 6 levels of wealth for retirement-age Americans — are you at the top or bottom of the pyramida](https://finance.yahoo.com/news/6-levels-wealth-retirement-age-211200878.html)
-- Jul 04 - [Man found dead on side of Ohio road; suspect arrested in another county](https://www.yahoo.com/news/man-found-dead-side-ohio-204831077.html)
-- Jul 04 - [China tells EU it can’t accept Russia losing its war against Ukraine, official says](https://www.yahoo.com/news/china-tells-eu-t-accept-163804994.html)
-- Jul 04 - [Obama Trolls Trump in Independence Day Message](https://www.yahoo.com/news/obama-trolls-trump-independence-day-162425042.html)
-- Jul 04 - [Mexico President Sheinbaum hopes deported boxer Chávez Jr. will serve time in Mexico](https://www.yahoo.com/news/mexico-president-sheinbaum-hopes-deported-155500309.html)
+- Jul 04 - [‘We want an answer’: They fear their relatives are among the hundreds of bodies piled up at a crematorium in Mexico](https://www.yahoo.com/news/want-answer-fear-relatives-among-194537136.html)
 <!-- feed end -->
