@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Musk calls Bannon a ‘fat, drunken slob’ and says he should be arrested as their feud rages on](https://www.yahoo.com/news/musk-calls-bannon-fat-drunken-153812442.html)
-- Jul 05 - [Downtown mass shooting leaves 2 dead, 5 injured hours after firework celebration](https://www.yahoo.com/news/downtown-mass-shooting-leaves-2-151253273.html)
+- Jul 05 - [Tropical Storm Chantal to make landfall in South Carolina Sunday morning](https://www.yahoo.com/news/tropical-storm-chantal-landfall-south-152941386.html)
 - Jul 05 - [Ukraine's top general warns of possible new Russian offensive in northeast](https://www.yahoo.com/news/ukraines-top-general-warns-possible-144009850.html)
 - Jul 05 - [Arizona renter says he was fined $4,000 for leaving negative reviews about property — but is that even legal?](https://www.yahoo.com/news/arizona-renter-says-fined-4-135000010.html)
-- Jul 05 - [New Details Revealed About the Nearly 2 Dozen Young Girls Confirmed Missing from Christian Camp After Devastating Texas Floods](https://www.yahoo.com/news/details-revealed-nearly-2-dozen-130151904.html)
+- Jul 05 - [‘I caught a brazen shoplifter stealing beer – he didn’t even get punished’](https://www.yahoo.com/news/caught-brazen-shoplifter-stealing-beer-114038871.html)
+- Jul 05 - [IDF unit Refaim's data-layered warfare one of the most effective weapons against Hamas, Hezbollah](https://www.yahoo.com/news/idf-unit-refaims-data-layered-114616466.html)
 <!-- feed end -->
