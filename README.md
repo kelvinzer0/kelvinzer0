@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 05 - [Elon Musk Creates His Own Political Party to Take Down Trump — and Gives It a MAGA-Friendly Name](https://www.yahoo.com/news/elon-musk-creates-own-political-202003500.html)
-- Jul 05 - [Zelensky: Ukraine agrees deals for 'hundreds of thousands' of drones](https://www.yahoo.com/news/zelensky-ukraine-agrees-deals-hundreds-201721951.html)
 - Jul 05 - [Trump to Texas: 'Our Secretary of Homeland Security, Kristi Noem, will be there shortly'](https://www.yahoo.com/news/trump-texas-secretary-homeland-security-195833506.html)
 - Jul 05 - [Rescue efforts are underway near Camp Mystic as Texas experiences mass flooding](https://www.yahoo.com/news/rescue-efforts-underway-near-camp-183031113.html)
-- Jul 05 - [Saturn's Moon Titan Captured By The James Webb Space Telescope](https://www.yahoo.com/news/saturns-moon-titan-captured-james-143000487.html)
+- Jul 05 - [Over 16 Million People Have Seen France's New Mural Of Lady Liberty Hiding Her Face With Her Hands, And They Have A LOT Of Opinions](https://www.yahoo.com/news/thats-incredible-picture-most-americans-182321331.html)
+- Jul 05 - [Mom Accused of 'Excluding' Local 9-Year-Old Boy from Outings Because He's 'Not Potty Trained': 'That Is Not My Responsibility'](https://www.yahoo.com/news/mom-accused-excluding-local-9-180000778.html)
 <!-- feed end -->
