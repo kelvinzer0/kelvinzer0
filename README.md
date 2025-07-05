@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Tropical Storm Chantal forms, forecast to reach Carolinas by Sunday](https://www.yahoo.com/news/tropical-storm-chantal-forms-forecast-180022657.html)
+- Jul 05 - [Elon Musk Creates His Own Political Party to Take Down Trump — and Gives It a MAGA-Friendly Name](https://www.yahoo.com/news/elon-musk-creates-own-political-202003500.html)
+- Jul 05 - [Zelensky: Ukraine agrees deals for 'hundreds of thousands' of drones](https://www.yahoo.com/news/zelensky-ukraine-agrees-deals-hundreds-201721951.html)
 - Jul 05 - [Trump to Texas: 'Our Secretary of Homeland Security, Kristi Noem, will be there shortly'](https://www.yahoo.com/news/trump-texas-secretary-homeland-security-195833506.html)
-- Jul 05 - [Amazon is selling a 'reliable' $24 magnetic pickup tool for $12, and shoppers say it's 'very handy to have around'](https://autos.yahoo.com/articles/amazon-selling-reliable-24-magnetic-190000886.html)
-- Jul 05 - ["That's An Incredible Picture Of How Most Americans Feel Right Now" — People Are Praising France's New Lady Liberty "Protest" Mural That's Going Mega-Viral](https://www.yahoo.com/news/thats-incredible-picture-most-americans-182321331.html)
-- Jul 05 - [I Asked ChatGPT What Would Happen If Billionaires Paid Taxes at the Same Rate as the Middle Class](https://finance.yahoo.com/news/asked-chatgpt-happen-billionaires-paid-170130161.html)
+- Jul 05 - [Rescue efforts are underway near Camp Mystic as Texas experiences mass flooding](https://www.yahoo.com/news/rescue-efforts-underway-near-camp-183031113.html)
+- Jul 05 - [Saturn's Moon Titan Captured By The James Webb Space Telescope](https://www.yahoo.com/news/saturns-moon-titan-captured-james-143000487.html)
 <!-- feed end -->
