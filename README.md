@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 05 - [Wildlife officials crack down on unexpected black market operating in Bay Area: 'High demand'](https://www.yahoo.com/news/wildlife-officials-crack-down-unexpected-113048852.html)
+- Jul 05 - [11 injured as Russia attacks Ukraine with hundreds of drones](https://www.yahoo.com/news/11-injured-russia-attacks-ukraine-104300395.html)
 - Jul 05 - [Serial killer fears grip Texas community after dozens of bodies pulled from lake: 'Cannot be ignored'](https://www.yahoo.com/news/serial-killer-fears-grip-texas-100016071.html)
-- Jul 05 - [Trump's Brazen New Lie Leads To Instant Fact-Check On Social Media](https://www.yahoo.com/news/trumps-brazen-lie-leads-instant-031110886.html)
-- Jul 05 - ["Totally Under-Hyped, Yet The Pay Is To Die For": Here Are The Really, Really Great Jobs That Are Flying Under The Radar In Case You're Currently Updating Your Résumé](https://www.yahoo.com/lifestyle/articles/people-sharing-under-hyped-jobs-021602395.html)
-- Jul 05 - [Expert Reveals Diddy Faces Very Long Prison Sentence Due To Hint From Judge](https://www.yahoo.com/news/expert-reveals-diddy-faces-very-001557404.html)
-- Jul 04 - [Elon Musk Backs Warren Buffett's Brutal '5-Minute Deficit Fix' To Ban Congress From Reelection If They Blow the Budget: '100% This Is the Way'](https://finance.yahoo.com/news/elon-musk-backs-warren-buffetts-230021114.html)
+- Jul 05 - [Mexicans protest against gentrification and US migration](https://www.yahoo.com/news/mexicans-protest-against-gentrification-us-095048138.html)
+- Jul 05 - [Costco Recalls Popular Items Over Safety Concerns, Urges Shoppers to Act Fast](https://www.yahoo.com/news/costco-recalls-popular-items-over-081604568.html)
 <!-- feed end -->
