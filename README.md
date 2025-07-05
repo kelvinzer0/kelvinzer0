@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [People Are Sharing The Under-Hyped Jobs That Are Actually Really, Really Great, And It Might Be Time For A Career Change](https://www.yahoo.com/lifestyle/articles/people-sharing-under-hyped-jobs-021602395.html)
-- Jul 04 - [Missing Texas campers: Faces, names of girls emerge](https://www.yahoo.com/news/missing-texas-campers-faces-names-223228755.html)
+- Jul 04 - [Elon Musk Backs Warren Buffett's Brutal '5-Minute Deficit Fix' To Ban Congress From Reelection If They Blow the Budget: '100% This Is the Way'](https://finance.yahoo.com/news/elon-musk-backs-warren-buffetts-230021114.html)
 - Jul 04 - [Donald Trump orders entry fee, DEI changes at national parks](https://www.yahoo.com/news/donald-trump-orders-entry-fee-220511301.html)
 - Jul 04 - [Here are the 6 levels of wealth for retirement-age Americans — are you at the top or bottom of the pyramida](https://finance.yahoo.com/news/6-levels-wealth-retirement-age-211200878.html)
-- Jul 04 - [‘We want an answer’: They fear their relatives are among the hundreds of bodies piled up at a crematorium in Mexico](https://www.yahoo.com/news/want-answer-fear-relatives-among-194537136.html)
+- Jul 04 - [Judge briefly blocks immigrants' deportation to South Sudan, but legal path eventually cleared](https://www.yahoo.com/news/judge-blocks-immigrants-deportation-south-190421841.html)
+- Jul 04 - [US Air Force suspends SpaceX rocket project on Pacific atoll, report says](https://www.yahoo.com/news/us-air-force-suspends-spacex-185306770.html)
 <!-- feed end -->
