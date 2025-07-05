@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Mexicans protest against gentrification and US migration](https://www.yahoo.com/news/mexicans-protest-against-gentrification-us-095048138.html)
-- Jul 05 - [Patient used AI to find Providence's innovative heart surgery. What role should the technology play in health care?](https://www.yahoo.com/news/patient-used-ai-providences-innovative-035900021.html)
-- Jul 05 - [People Are Sharing The Under-Hyped Jobs That Are Actually Really, Really Great, And It Might Be Time For A Career Change](https://www.yahoo.com/lifestyle/articles/people-sharing-under-hyped-jobs-021602395.html)
-- Jul 05 - [Mega Millions winning numbers for July 4: Jackpot rises to $60 million](https://www.yahoo.com/news/mega-millions-winning-numbers-july-010034766.html)
+- Jul 05 - [Hezbollah stages parade in central Beirut, rattling and outraging Lebanese citizens](https://www.yahoo.com/news/hezbollah-stages-parade-central-beirut-104303865.html)
+- Jul 05 - [Deadly social media trend threatens kids, homeowners defending themselves: 'children are going to get killed’](https://www.yahoo.com/news/deadly-social-media-trend-threatens-080005438.html)
+- Jul 05 - [Expert Reveals Diddy Faces Very Long Prison Sentence Due To Hint From Judge](https://www.yahoo.com/news/expert-reveals-diddy-faces-very-001557404.html)
+- Jul 04 - [The Bitcoin Power Shift No One's Talking About](https://finance.yahoo.com/news/bitcoin-power-shift-no-ones-232255078.html)
 - Jul 04 - [Elon Musk Backs Warren Buffett's Brutal '5-Minute Deficit Fix' To Ban Congress From Reelection If They Blow the Budget: '100% This Is the Way'](https://finance.yahoo.com/news/elon-musk-backs-warren-buffetts-230021114.html)
 <!-- feed end -->
