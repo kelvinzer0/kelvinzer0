@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Photos show aftermath of 'catastrophic' flooding in Texas](https://www.yahoo.com/news/photos-show-aftermath-catastrophic-flooding-181348173.html)
-- Jul 05 - [Israel to send delegation to Qatar for Gaza ceasefire talks](https://www.yahoo.com/news/israel-send-delegation-qatar-gaza-181034393.html)
+- Jul 05 - [Washington man scammed out of $500K after conmen told him his SSN had been stolen — how to protect yourself](https://www.yahoo.com/news/washington-man-scammed-500k-conmen-190000311.html)
+- Jul 05 - [People Are Sharing The Signs From Your Body That You Should Never Ignore, And It's Critical Info](https://health.yahoo.com/conditions/cancer/articles/people-sharing-signs-body-never-183102959.html)
+- Jul 05 - [Rescue efforts are underway near Camp Mystic as Texas experiences mass flooding](https://www.yahoo.com/news/rescue-efforts-underway-near-camp-183031113.html)
+- Jul 05 - [Teen Dies After Celebratory Backflip Causes Severe Brain Damage](https://www.yahoo.com/news/teen-dies-celebratory-backflip-causes-171616746.html)
 - Jul 05 - [I Asked ChatGPT What Would Happen If Billionaires Paid Taxes at the Same Rate as the Middle Class](https://finance.yahoo.com/news/asked-chatgpt-happen-billionaires-paid-170130161.html)
-- Jul 05 - [Why Texas Hill Country, where a devastating flood killed dozens, is one of the deadliest places in the US for flash flooding](https://www.yahoo.com/news/why-texas-hill-country-where-160717909.html)
-- Jul 05 - [Ukraine's top general warns of possible new Russian offensive in northeast](https://www.yahoo.com/news/ukraines-top-general-warns-possible-144009850.html)
 <!-- feed end -->
