@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Washington man scammed out of $500K after conmen told him his SSN had been stolen — how to protect yourself](https://www.yahoo.com/news/washington-man-scammed-500k-conmen-190000311.html)
-- Jul 05 - [People Are Sharing The Signs From Your Body That You Should Never Ignore, And It's Critical Info](https://health.yahoo.com/conditions/cancer/articles/people-sharing-signs-body-never-183102959.html)
-- Jul 05 - [Rescue efforts are underway near Camp Mystic as Texas experiences mass flooding](https://www.yahoo.com/news/rescue-efforts-underway-near-camp-183031113.html)
-- Jul 05 - [Teen Dies After Celebratory Backflip Causes Severe Brain Damage](https://www.yahoo.com/news/teen-dies-celebratory-backflip-causes-171616746.html)
+- Jul 05 - ["That's An Incredible Picture Of How Most Americans Feel Right Now" — People Are Praising France's New Lady Liberty "Protest" Mural That's Going Mega-Viral](https://www.yahoo.com/news/thats-incredible-picture-most-americans-182321331.html)
+- Jul 05 - [Mom Accused of 'Excluding' Local 9-Year-Old Boy from Outings Because He's 'Not Potty Trained': 'That Is Not My Responsibility'](https://www.yahoo.com/news/mom-accused-excluding-local-9-180000778.html)
 - Jul 05 - [I Asked ChatGPT What Would Happen If Billionaires Paid Taxes at the Same Rate as the Middle Class](https://finance.yahoo.com/news/asked-chatgpt-happen-billionaires-paid-170130161.html)
+- Jul 05 - [Subway riders deliver street justice to brute who grabbed screaming woman on platform](https://www.yahoo.com/news/subway-riders-deliver-street-justice-165720543.html)
+- Jul 05 - [Why Texas Hill Country, where a devastating flood killed dozens, is one of the deadliest places in the US for flash flooding](https://www.yahoo.com/news/why-texas-hill-country-where-160717909.html)
 <!-- feed end -->
