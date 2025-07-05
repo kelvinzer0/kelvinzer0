@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 05 - [24 dead in Texas floods and more than 20 children missing from a girls summer camp](https://www.yahoo.com/news/least-13-dead-texas-floods-230630954.html)
-- Jul 04 - [Crowds fill Downtown Nashville for 'Let Freedom Sing' July 4th event with music, fireworks](https://www.yahoo.com/news/crowds-fill-downtown-nashville-let-234946766.html)
-- Jul 04 - [We moved from Salt Lake City to a small Texas town. The high property taxes shocked us, but the small-town vibe is worth it.](https://www.yahoo.com/lifestyle/articles/moved-salt-lake-city-small-232901613.html)
-- Jul 04 - [Elon Musk Backs Warren Buffett's Brutal '5-Minute Deficit Fix' To Ban Congress From Reelection If They Blow the Budget: '100% This Is the Way'](https://finance.yahoo.com/news/elon-musk-backs-warren-buffetts-230021114.html)
-- Jul 04 - [Texas families plead for information on at least 23 girls missing from summer camp after floods](https://www.yahoo.com/news/texas-families-plead-information-more-225358428.html)
+- Jul 05 - [Trump's Brazen New Lie Leads To Instant Fact-Check On Social Media](https://www.yahoo.com/news/trumps-brazen-lie-leads-instant-031110886.html)
+- Jul 05 - [Protests against surging mass tourism in Mexico City end in vandalism, harassment of tourists](https://www.yahoo.com/news/protests-against-surge-mass-tourism-013550742.html)
+- Jul 05 - [Expert Reveals Diddy Faces Very Long Prison Sentence Due To Hint From Judge](https://www.yahoo.com/news/expert-reveals-diddy-faces-very-001557404.html)
+- Jul 04 - [Donald Trump orders entry fee, DEI changes at national parks](https://www.yahoo.com/news/donald-trump-orders-entry-fee-220511301.html)
 <!-- feed end -->
