@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [24 dead in Texas floods and more than 20 children missing from a girls summer camp](https://www.yahoo.com/news/least-13-dead-texas-floods-230630954.html)
-- Jul 05 - [Trump's Brazen New Lie Leads To Instant Fact-Check On Social Media](https://www.yahoo.com/news/trumps-brazen-lie-leads-instant-031110886.html)
+- Jul 05 - [Patient used AI to find Providence's innovative heart surgery. What role should the technology play in health care?](https://www.yahoo.com/news/patient-used-ai-providences-innovative-035900021.html)
+- Jul 05 - [People Are Sharing The Under-Hyped Jobs That Are Actually Really, Really Great, And It Might Be Time For A Career Change](https://www.yahoo.com/lifestyle/articles/people-sharing-under-hyped-jobs-021602395.html)
 - Jul 04 - [Elon Musk Backs Warren Buffett's Brutal '5-Minute Deficit Fix' To Ban Congress From Reelection If They Blow the Budget: '100% This Is the Way'](https://finance.yahoo.com/news/elon-musk-backs-warren-buffetts-230021114.html)
-- Jul 04 - [Missing Texas campers: Faces, names of girls emerge](https://www.yahoo.com/news/missing-texas-campers-faces-names-223228755.html)
 - Jul 04 - [Donald Trump orders entry fee, DEI changes at national parks](https://www.yahoo.com/news/donald-trump-orders-entry-fee-220511301.html)
+- Jul 04 - [Here are the 6 levels of wealth for retirement-age Americans — are you at the top or bottom of the pyramida](https://finance.yahoo.com/news/6-levels-wealth-retirement-age-211200878.html)
 <!-- feed end -->
