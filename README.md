@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 05 - [24 dead in Texas floods and more than 20 children missing from a girls summer camp](https://www.yahoo.com/news/least-13-dead-texas-floods-230630954.html)
 - Jul 05 - [Trump's Brazen New Lie Leads To Instant Fact-Check On Social Media](https://www.yahoo.com/news/trumps-brazen-lie-leads-instant-031110886.html)
+- Jul 05 - [People Are Sharing The Under-Hyped Jobs That Are Actually Really, Really Great, And It Might Be Time For A Career Change](https://www.yahoo.com/lifestyle/articles/people-sharing-under-hyped-jobs-021602395.html)
 - Jul 05 - [Protests against surging mass tourism in Mexico City end in vandalism, harassment of tourists](https://www.yahoo.com/news/protests-against-surge-mass-tourism-013550742.html)
 - Jul 05 - [Expert Reveals Diddy Faces Very Long Prison Sentence Due To Hint From Judge](https://www.yahoo.com/news/expert-reveals-diddy-faces-very-001557404.html)
-- Jul 04 - [Donald Trump orders entry fee, DEI changes at national parks](https://www.yahoo.com/news/donald-trump-orders-entry-fee-220511301.html)
 <!-- feed end -->
