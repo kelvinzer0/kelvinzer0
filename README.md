@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Wildlife officials crack down on unexpected black market operating in Bay Area: 'High demand'](https://www.yahoo.com/news/wildlife-officials-crack-down-unexpected-113048852.html)
-- Jul 05 - [11 injured as Russia attacks Ukraine with hundreds of drones](https://www.yahoo.com/news/11-injured-russia-attacks-ukraine-104300395.html)
-- Jul 05 - [Serial killer fears grip Texas community after dozens of bodies pulled from lake: 'Cannot be ignored'](https://www.yahoo.com/news/serial-killer-fears-grip-texas-100016071.html)
-- Jul 05 - [Mexicans protest against gentrification and US migration](https://www.yahoo.com/news/mexicans-protest-against-gentrification-us-095048138.html)
-- Jul 05 - [Costco Recalls Popular Items Over Safety Concerns, Urges Shoppers to Act Fast](https://www.yahoo.com/news/costco-recalls-popular-items-over-081604568.html)
+- Jul 05 - [I’m a Self-Made Millionaire: 6 Steps I Took To Become Rich on an Average Salary](https://finance.yahoo.com/news/m-self-made-millionaire-6-160042052.html)
+- Jul 05 - [Ukraine's top general warns of possible new Russian offensive in northeast](https://www.yahoo.com/news/ukraines-top-general-warns-possible-144009850.html)
+- Jul 05 - [Russian air defences shoot down four drones headed for Moscow, mayor says](https://www.yahoo.com/news/russian-air-defences-shoot-down-143810819.html)
+- Jul 05 - [Arizona renter says he was fined $4,000 for leaving negative reviews about property — but is that even legal?](https://www.yahoo.com/news/arizona-renter-says-fined-4-135000010.html)
+- Jul 05 - [‘I caught a brazen shoplifter stealing beer – he didn’t even get punished’](https://www.yahoo.com/news/caught-brazen-shoplifter-stealing-beer-114038871.html)
 <!-- feed end -->
