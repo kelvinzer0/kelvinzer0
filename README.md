@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Archaeologists unveil 3,500-year-old city in Peru](https://www.yahoo.com/news/archaeologists-unveil-3-500-old-133144634.html)
-- Jul 06 - [Uganda's 80-year-old president in bid to extend 40-year rule](https://www.yahoo.com/news/ugandas-80-old-president-bid-113540429.html)
-- Jul 06 - [How a single shed in a Florida backyard triggered a flurry of HOA lawsuits costing local homeowners thousands](https://www.yahoo.com/news/single-shed-florida-backyard-triggered-093000211.html)
-- Jul 06 - [China retaliates against EU with a ban on European medical devices](https://www.yahoo.com/news/china-retaliates-against-eu-ban-092621347.html)
-- Jul 06 - [French intelligence: China used embassies to undermine sales of France's flagship Rafale fighter jet](https://www.yahoo.com/news/french-intelligence-china-used-embassies-080404879.html)
+- Jul 06 - [Eurostar train evacuated after four-hour wait in northern France](https://www.yahoo.com/news/eurostar-train-evacuated-four-hour-140547784.html)
+- Jul 06 - [Elon Musk says he's formed the 'America Party.' Mark Cuban and Anthony Scaramucci are interested.](https://www.yahoo.com/news/elon-musk-says-hes-formed-001743315.html)
+- Jul 06 - [US efforts to predict weather hit by staffing cuts: ex-NOAA chief](https://www.yahoo.com/news/us-efforts-predict-weather-hit-133342621.html)
+- Jul 06 - [Gold, silver become legal tender in Texas under new law](https://finance.yahoo.com/news/gold-silver-become-legal-tender-130000901.html)
+- Jul 06 - [Bitcoin's 5% Problem: Why Most People Still Don't Own Crypto—And What That Means for Its Future](https://finance.yahoo.com/news/bitcoins-5-problem-why-most-123030689.html)
 <!-- feed end -->
