@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Why Texas Hill Country, where a devastating flood killed dozens, is one of the deadliest places in the US for flash flooding](https://www.yahoo.com/news/why-texas-hill-country-where-160717909.html)
+- Jul 05 - [Texas officials face scrutiny over response to catastrophic and deadly flooding](https://www.yahoo.com/news/texas-officials-face-scrutiny-over-231534930.html)
+- Jul 05 - [China’s Mysterious Ekranoplan Seen In Full For First Time](https://www.yahoo.com/news/china-mysterious-ekranoplan-seen-full-231409258.html)
+- Jul 05 - [If You Want A Car That'll Cruise Past 200,000 Miles, This Is Our Shortlist](https://autos.yahoo.com/articles/want-car-thatll-cruise-past-204500195.html)
 - Jul 05 - [Elon Musk Creates His Own Political Party to Take Down Trump — and Gives It a MAGA-Friendly Name](https://www.yahoo.com/news/elon-musk-creates-own-political-202003500.html)
-- Jul 05 - [Trump to Texas: 'Our Secretary of Homeland Security, Kristi Noem, will be there shortly'](https://www.yahoo.com/news/trump-texas-secretary-homeland-security-195833506.html)
-- Jul 05 - [Rescue efforts are underway near Camp Mystic as Texas experiences mass flooding](https://www.yahoo.com/news/rescue-efforts-underway-near-camp-183031113.html)
-- Jul 05 - [Over 16 Million People Have Seen France's New Mural Of Lady Liberty Hiding Her Face With Her Hands, And They Have A LOT Of Opinions](https://www.yahoo.com/news/thats-incredible-picture-most-americans-182321331.html)
-- Jul 05 - [Mom Accused of 'Excluding' Local 9-Year-Old Boy from Outings Because He's 'Not Potty Trained': 'That Is Not My Responsibility'](https://www.yahoo.com/news/mom-accused-excluding-local-9-180000778.html)
 <!-- feed end -->
