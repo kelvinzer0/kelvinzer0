@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Residents of this Florida condo pushed to sell for $1M a unit — rather than pay to meet state's safety code](https://www.yahoo.com/news/residents-florida-condo-pushed-sell-101500452.html)
+- Jul 06 - [China retaliates against EU with a ban on European medical devices](https://www.yahoo.com/news/china-retaliates-against-eu-ban-092621347.html)
 - Jul 06 - [French intelligence: China used embassies to undermine sales of France's flagship Rafale fighter jet](https://www.yahoo.com/news/french-intelligence-china-used-embassies-080404879.html)
 - Jul 06 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
 - Jul 06 - [‘I caught a brazen shoplifter stealing beer – he didn’t even get punished’](https://www.yahoo.com/news/caught-brazen-shoplifter-stealing-beer-114038871.html)
-- Jul 06 - ['I returned to my old office to sell ties after being made redundant'](https://uk.finance.yahoo.com/news/tie-brand-reef-knots-lifestyle-british-business-050028476.html)
-- Jul 06 - [Wordle hints today for #1,478: Clues and answer for Sunday, July 6](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1478-clues-and-answer-for-sunday-july-6-040106331.html)
 <!-- feed end -->
