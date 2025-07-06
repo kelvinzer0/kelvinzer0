@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Rescuers search in Camp Mystic area for survivors of Texas flash floods](https://www.yahoo.com/news/rescuers-search-camp-mystic-area-031406585.html)
 - Jul 05 - [Texas officials face scrutiny over response to catastrophic and deadly flooding](https://www.yahoo.com/news/texas-officials-face-scrutiny-over-231534930.html)
 - Jul 05 - [China’s Mysterious Ekranoplan Seen In Full For First Time](https://www.yahoo.com/news/china-mysterious-ekranoplan-seen-full-231409258.html)
+- Jul 05 - [Lila Bonner, 1 of the Young Girls Who Went Missing from Texas Camp amid Catastrophic Floods, Confirmed Dead: 'Unimaginable Grief'](https://www.yahoo.com/news/lila-bonner-1-young-girls-231042182.html)
 - Jul 05 - [Elon Musk Creates His Own Political Party to Take Down Trump — and Gives It a MAGA-Friendly Name](https://www.yahoo.com/news/elon-musk-creates-own-political-202003500.html)
-- Jul 05 - [Musk announces forming of 'America Party' in further break from Trump](https://www.yahoo.com/news/musk-says-america-party-formed-195737216.html)
+- Jul 05 - [Zelensky: Ukraine agrees deals for 'hundreds of thousands' of drones](https://www.yahoo.com/news/zelensky-ukraine-agrees-deals-hundreds-201721951.html)
 <!-- feed end -->
