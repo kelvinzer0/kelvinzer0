@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 05 - [Texas officials face scrutiny over response to catastrophic and deadly flooding](https://www.yahoo.com/news/texas-officials-face-scrutiny-over-231534930.html)
+- Jul 06 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
+- Jul 06 - [‘I caught a brazen shoplifter stealing beer – he didn’t even get punished’](https://www.yahoo.com/news/caught-brazen-shoplifter-stealing-beer-114038871.html)
+- Jul 06 - [Japan to export used destroyers to Philippines to deter China, Yomiuri reports](https://www.yahoo.com/news/japan-export-used-destroyers-philippines-051510435.html)
+- Jul 05 - [1 hurt in Albion shooting](https://www.yahoo.com/news/1-hurt-albion-shooting-224914979.html)
 - Jul 05 - [MAGA Congressional Candidate Calls Texas Floods ‘Fake’: It’s ‘Murder’](https://www.yahoo.com/news/maga-congressional-candidate-calls-texas-215509077.html)
-- Jul 05 - [Elon Musk Creates His Own Political Party to Take Down Trump — and Gives It a MAGA-Friendly Name](https://www.yahoo.com/news/elon-musk-creates-own-political-202003500.html)
-- Jul 05 - [Zelensky: Ukraine agrees deals for 'hundreds of thousands' of drones](https://www.yahoo.com/news/zelensky-ukraine-agrees-deals-hundreds-201721951.html)
-- Jul 05 - [Trump Admin Insider Blows Lid Off Tariffs: ‘It’s All Fake’](https://www.yahoo.com/news/trump-admin-insider-blows-lid-185800867.html)
 <!-- feed end -->
