@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Explosion rips through Domino's restaurant after car crashes into building](https://www.yahoo.com/news/dominos-restaurant-explodes-car-crashes-163848013.html)
+- Jul 06 - [Man arrested after teenager raped in public toilet](https://www.yahoo.com/news/man-arrested-teenager-raped-public-194047473.html)
 - Jul 06 - [Bodies of all 7 missing people found at a California fireworks warehouse that exploded](https://www.yahoo.com/news/bodies-7-missing-people-found-190949086.html)
-- Jul 06 - [Video: Motorcyclist Hits Deer At Highway Speed And Keeps Upright](https://autos.yahoo.com/articles/video-motorcyclist-hits-deer-highway-183000722.html)
-- Jul 06 - [2-year-old boy hit by stray bullet Saturday night while watching fireworks](https://www.yahoo.com/news/2-old-hit-stray-bullet-182921256.html)
-- Jul 06 - [Sean 'Diddy' Combs gets standing ovation from inmates after court victory, his lawyer says](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-gets-standing-163518478.html)
+- Jul 06 - [First Red Sea naval attack in months raises alarms](https://www.yahoo.com/news/first-red-sea-naval-attack-190545338.html)
+- Jul 06 - [The dangerous anti-abortion victory buried in Trump’s megabill](https://www.yahoo.com/news/dangerous-anti-abortion-victory-buried-185107546.html)
+- Jul 06 - [Hundreds of people in New Hampshire have had their property sold out from under them by scammers. Here’s why](https://www.yahoo.com/news/hundreds-people-hampshire-had-property-183100613.html)
 <!-- feed end -->
