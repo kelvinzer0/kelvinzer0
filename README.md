@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 06 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
 - Jul 06 - [‘I caught a brazen shoplifter stealing beer – he didn’t even get punished’](https://www.yahoo.com/news/caught-brazen-shoplifter-stealing-beer-114038871.html)
-- Jul 06 - [Japan to export used destroyers to Philippines to deter China, Yomiuri reports](https://www.yahoo.com/news/japan-export-used-destroyers-philippines-051510435.html)
-- Jul 05 - [1 hurt in Albion shooting](https://www.yahoo.com/news/1-hurt-albion-shooting-224914979.html)
 - Jul 05 - [MAGA Congressional Candidate Calls Texas Floods ‘Fake’: It’s ‘Murder’](https://www.yahoo.com/news/maga-congressional-candidate-calls-texas-215509077.html)
+- Jul 05 - [Hamas requests 'unacceptable' changes to Gaza deal, PMO says](https://www.yahoo.com/news/hamas-requests-unacceptable-changes-gaza-202732666.html)
+- Jul 05 - [Elon Musk Creates His Own Political Party to Take Down Trump — and Gives It a MAGA-Friendly Name](https://www.yahoo.com/news/elon-musk-creates-own-political-202003500.html)
 <!-- feed end -->
