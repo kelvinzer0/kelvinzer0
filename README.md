@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [The Hill's Headlines - July 6, 2025](https://www.yahoo.com/news/hills-headlines-july-6-2025-161700360.html)
+- Jul 06 - [26 Feet In 45 Minutes: Deadly Flash Flooding In Texas](https://www.yahoo.com/news/26-feet-45-minutes-deadly-164359960.html)
 - Jul 06 - [Elon Musk says he's formed the 'America Party.' Mark Cuban and Anthony Scaramucci are interested.](https://www.yahoo.com/news/elon-musk-says-hes-formed-001743315.html)
+- Jul 06 - [Buckingham Palace Shares New IG Photos of Surprising Royal Family Member: the King’s Brother](https://www.yahoo.com/entertainment/articles/buckingham-palace-shares-ig-photos-153421235.html)
 - Jul 06 - [Grand Forks man accused of possessing methamphetamine, cocaine and marijuana with intent to deliver](https://www.yahoo.com/news/grand-forks-man-accused-possessing-143500686.html)
-- Jul 06 - [US efforts to predict weather hit by staffing cuts: ex-NOAA chief](https://www.yahoo.com/news/us-efforts-predict-weather-hit-133342621.html)
 - Jul 06 - [Stock market melt-up is being fueled by blind belief in lots of rate cuts in 2026](https://finance.yahoo.com/news/stock-market-melt-up-is-being-fueled-by-blind-belief-in-lots-of-rate-cuts-in-2026-123008774.html)
 <!-- feed end -->
