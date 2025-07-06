@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [Explosion rips through Domino's restaurant after car crashes into building](https://www.yahoo.com/news/dominos-restaurant-explodes-car-crashes-163848013.html)
+- Jul 06 - [Bodies of all 7 missing people found at a California fireworks warehouse that exploded](https://www.yahoo.com/news/bodies-7-missing-people-found-190949086.html)
+- Jul 06 - [US economy can 'power through' tariff-fueled growth slowdown](https://finance.yahoo.com/video/us-economy-power-tariff-fueled-190031219.html)
 - Jul 06 - [Hundreds of people in New Hampshire have had their property sold out from under them by scammers. Here’s why](https://www.yahoo.com/news/hundreds-people-hampshire-had-property-183100613.html)
-- Jul 06 - [Utah strip mall explodes in fiery blast after vehicle crash](https://www.yahoo.com/news/utah-strip-mall-explodes-fiery-170008852.html)
-- Jul 06 - [The real risk of a recession, and other key points about the US economy right now](https://finance.yahoo.com/news/the-real-risk-of-a-recession-and-other-key-points-about-the-us-economy-right-now-164822925.html)
-- Jul 06 - [Elon Musk says he's formed the 'America Party.' Mark Cuban and Anthony Scaramucci are interested.](https://www.yahoo.com/news/elon-musk-says-hes-formed-001743315.html)
-- Jul 06 - [Thailand to offer US more trade concessions to avert 36% tariff, Bloomberg News reports](https://finance.yahoo.com/news/thailand-offer-us-more-trade-150345031.html)
+- Jul 06 - [2-year-old boy hit by stray bullet Saturday night while watching fireworks](https://www.yahoo.com/news/2-old-hit-stray-bullet-182921256.html)
 <!-- feed end -->
