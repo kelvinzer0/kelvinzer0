@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 06 - [Pensacola women charged in nationwide $14.6 billion healthcare scheme. How did it work?](https://www.yahoo.com/news/pensacola-women-charged-nationwide-14-090446182.html)
+- Jul 06 - [French intelligence: China used embassies to undermine sales of France's flagship Rafale fighter jet](https://www.yahoo.com/news/french-intelligence-china-used-embassies-080404879.html)
 - Jul 06 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
 - Jul 06 - [‘I caught a brazen shoplifter stealing beer – he didn’t even get punished’](https://www.yahoo.com/news/caught-brazen-shoplifter-stealing-beer-114038871.html)
-- Jul 06 - [Japan to export used destroyers to Philippines to deter China, Yomiuri reports](https://www.yahoo.com/news/japan-export-used-destroyers-philippines-051510435.html)
-- Jul 05 - [Texas officials face scrutiny over response to catastrophic and deadly flooding](https://www.yahoo.com/news/texas-officials-face-scrutiny-over-231534930.html)
+- Jul 06 - ['I returned to my old office to sell ties after being made redundant'](https://uk.finance.yahoo.com/news/tie-brand-reef-knots-lifestyle-british-business-050028476.html)
+- Jul 06 - [Wordle hints today for #1,478: Clues and answer for Sunday, July 6](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1478-clues-and-answer-for-sunday-july-6-040106331.html)
 <!-- feed end -->
