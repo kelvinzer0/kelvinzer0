@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 06 - [1 Warren Buffett Stock to Buy Hand Over Fist in July](https://finance.yahoo.com/news/1-warren-buffett-stock-buy-220500711.html)
+- Jul 06 - [Why Donald Trump's Trump Steaks Failed After Just 2 Months](https://www.yahoo.com/lifestyle/articles/why-donald-trumps-trump-steaks-220000280.html)
+- Jul 06 - [Desperate search for survivors continues after Texas flooding kills at least 79](https://www.yahoo.com/news/desperate-search-survivors-continues-texas-210902537.html)
 - Jul 06 - [Man arrested after teenager raped in public toilet](https://www.yahoo.com/news/man-arrested-teenager-raped-public-194047473.html)
 - Jul 06 - [Bodies of all 7 missing people found at a California fireworks warehouse that exploded](https://www.yahoo.com/news/bodies-7-missing-people-found-190949086.html)
-- Jul 06 - [First Red Sea naval attack in months raises alarms](https://www.yahoo.com/news/first-red-sea-naval-attack-190545338.html)
-- Jul 06 - [The dangerous anti-abortion victory buried in Trump’s megabill](https://www.yahoo.com/news/dangerous-anti-abortion-victory-buried-185107546.html)
-- Jul 06 - [Hundreds of people in New Hampshire have had their property sold out from under them by scammers. Here’s why](https://www.yahoo.com/news/hundreds-people-hampshire-had-property-183100613.html)
 <!-- feed end -->
