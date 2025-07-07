@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Anti-woke activist applauds his ‘friends’ at the New York Times for Zohran Mamdani college application ‘scoop’](https://www.yahoo.com/news/anti-woke-activist-applauds-friends-145049443.html)
-- Jul 07 - [Chevron preps quick closing of Hess deal and awaits result of Exxon dispute](https://finance.yahoo.com/news/chevron-preps-quick-closing-hess-155620661.html)
-- Jul 07 - [Israel bombs British ship seized by Houthis](https://www.yahoo.com/news/israel-bombs-british-ship-seized-152016944.html)
-- Jul 07 - [Iran deports 300,000 Afghans over Israel spying fears](https://www.yahoo.com/news/iran-deports-300-000-afghans-134916355.html)
-- Jul 07 - [Russia's transportation minister found dead in what officials say was an apparent suicide](https://www.yahoo.com/news/russias-ex-minister-found-dead-143324016.html)
+- Jul 07 - [Authority plans anti-social behaviour clampdown](https://www.yahoo.com/news/authority-plans-anti-social-behaviour-163149066.html)
+- Jul 07 - [Maps show where devastating flash flooding hit Texas](https://www.yahoo.com/news/maps-show-where-devastating-flash-161448742.html)
+- Jul 07 - [The hit that wasn’t: When Saddam Hussein offered to kill Khomeini and the Shah said no](https://www.yahoo.com/news/hit-wasn-t-saddam-hussein-151447204.html)
+- Jul 07 - [Iconic Muscle Cars and the Surprisingly Ordinary Modern Cars That Can Outrun Them](https://autos.yahoo.com/articles/iconic-muscle-cars-surprisingly-ordinary-150048881.html)
+- Jul 07 - [MAGA Spirals After Shock Trump Conclusion on Jeffrey Epstein](https://www.yahoo.com/news/maga-spirals-shock-trump-conclusion-142608044.html)
 <!-- feed end -->
