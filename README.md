@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Dow to close three European chemical plants, cut 800 jobs](https://finance.yahoo.com/news/dow-close-three-european-chemical-113749459.html)
+- Jul 07 - [A Vermont dairy farm was raided. The mixed messages from Washington since then have increased fears](https://www.yahoo.com/news/vermont-dairy-farm-raided-mixed-110551704.html)
+- Jul 07 - [British Army soldiers sacked for sharing Oct 7 helmet-cam footage](https://www.yahoo.com/news/british-army-soldiers-sacked-sharing-110203621.html)
 - Jul 07 - [Russia fires over 100 drones at Ukraine as Kremlin dismisses transport chief after travel chaos](https://www.yahoo.com/news/russia-fires-over-100-drones-104003457.html)
-- Jul 07 - [Florida man, 60, says he lost $1.6M in an elaborate investment scam — fronted by a woman he’d known for years](https://finance.yahoo.com/news/florida-man-60-says-lost-103100024.html)
-- Jul 07 - ['Vast power of this water': Area official discusses devastation after Texas floods](https://www.yahoo.com/news/vast-power-water-area-official-102934484.html)
-- Jul 07 - [Zacks Market Edge Highlights: PANW, PLTR and AVGO](https://finance.yahoo.com/news/zacks-market-edge-highlights-panw-084800096.html)
-- Jul 07 - [Owners of pet lion arrested after it jumped a wall and attacked a woman and two children in Pakistan](https://www.yahoo.com/news/owners-pet-lion-arrested-jumped-072957898.html)
+- Jul 07 - [Paramedic jailed for spiking pregnant lover with abortion drug](https://www.yahoo.com/news/paramedic-jailed-secretly-spiking-pregnant-103839436.html)
 <!-- feed end -->
