@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Anti-woke activist applauds his ‘friends’ at the New York Times for Zohran Mamdani college application ‘scoop’](https://www.yahoo.com/news/anti-woke-activist-applauds-friends-145049443.html)
-- Jul 07 - [French Olympian Ysaora Thibus cleared of doping after successfully arguing she was contaminated through kissing her partner](https://sports.yahoo.com/olympics/breaking-news/article/french-olympian-ysaora-thibus-cleared-of-doping-after-successfully-arguing-she-was-contaminated-through-kissing-her-partner-182348854.html)
-- Jul 07 - [Trump trade advisor bashes Tim Cook for Silicon Valley's 'longest-running soap opera'](https://finance.yahoo.com/news/trump-trade-advisor-bashes-tim-180826279.html)
-- Jul 07 - [Mark Ruffalo Slams Joe Rogan Over Response to ICE Immigration Raids: “It’s a Little Late Now”](https://www.yahoo.com/news/mark-ruffalo-slams-joe-rogan-175209234.html)
-- Jul 07 - [Apple deals are officially Prime Day-worthy one day ahead of the sale](https://tech.yahoo.com/phones/deals/articles/20-best-apple-deals-live-182630842.html)
+- Jul 07 - [Dow slips 400 points on renewed tariff fears](https://finance.yahoo.com/video/dow-slips-400-points-renewed-201101478.html)
+- Jul 07 - [Young BMW driver and passenger die after fiery Queens Belt Parkway wreck](https://www.yahoo.com/news/young-bmw-driver-passenger-die-192300518.html)
+- Jul 07 - [Shark attacks surfer in Florida, victim taken to hospital](https://www.yahoo.com/news/shark-attacks-surfer-florida-victim-190909369.html)
+- Jul 07 - [Israel bombs British ship seized by Houthis](https://www.yahoo.com/news/israel-bombs-british-ship-seized-152016944.html)
+- Jul 07 - [Trump administration says it will deport Kilmar Abrego Garcia before his trial if he’s released from criminal custody](https://www.yahoo.com/news/trump-administration-says-deport-kilmar-172457143.html)
 <!-- feed end -->
