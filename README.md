@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Authority plans anti-social behaviour clampdown](https://www.yahoo.com/news/authority-plans-anti-social-behaviour-163149066.html)
-- Jul 07 - [Maps show where devastating flash flooding hit Texas](https://www.yahoo.com/news/maps-show-where-devastating-flash-161448742.html)
-- Jul 07 - [The hit that wasn’t: When Saddam Hussein offered to kill Khomeini and the Shah said no](https://www.yahoo.com/news/hit-wasn-t-saddam-hussein-151447204.html)
-- Jul 07 - [Iconic Muscle Cars and the Surprisingly Ordinary Modern Cars That Can Outrun Them](https://autos.yahoo.com/articles/iconic-muscle-cars-surprisingly-ordinary-150048881.html)
-- Jul 07 - [MAGA Spirals After Shock Trump Conclusion on Jeffrey Epstein](https://www.yahoo.com/news/maga-spirals-shock-trump-conclusion-142608044.html)
+- Jul 07 - [Trump accuses Brazilian authorities of 'witch hunt' against former leader Bolsonaro](https://www.yahoo.com/news/trump-accuses-brazilian-authorities-witch-180643912.html)
+- Jul 07 - [Leon County Schools earns another 'B' grade from state, but two schools soared](https://www.yahoo.com/news/leon-county-schools-earns-another-174455857.html)
+- Jul 07 - [Elizabeth Warren Posted This Troubling Video Describing How Senate Republicans Reacted After They Voted On The "One Big Beautiful Bill"](https://www.yahoo.com/news/elizabeth-warren-posted-troubling-video-172626931.html)
+- Jul 07 - [New Fuzes For GBU-57 Massive Ordnance Penetrators Requested By USAF](https://www.yahoo.com/news/fuzes-gbu-57-massive-ordnance-171906447.html)
+- Jul 07 - [Wildfires are ‘disaster waiting to happen’, farmers warn](https://www.yahoo.com/news/wildfires-disaster-waiting-happen-farmers-170706651.html)
 <!-- feed end -->
