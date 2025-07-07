@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Tesla short sellers set to pocket about $1.4 billion in profits after stock slump](https://finance.yahoo.com/news/tesla-short-sellers-set-pocket-134257111.html)
-- Jul 07 - [Stock market today: Dow, S&P 500, Nasdaq fall as Trump amps up tariff threats with deadline looming](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-fall-as-trump-amps-up-tariff-threats-with-deadline-looming-133217493.html)
-- Jul 07 - [CoreWeave, Core Scientific stocks sink after companies confirm $9 billion deal amid AI data center boom](https://finance.yahoo.com/news/coreweave-core-scientific-stocks-sink-after-companies-confirm-9-billion-deal-amid-ai-data-center-boom-132317711.html)
-- Jul 07 - [Autopsy reveals cause of death for Brazilian tourist who fell into volcano](https://www.yahoo.com/news/autopsy-reveals-cause-death-brazilian-121148419.html)
-- Jul 07 - [‘Going to crash the economy’: Joe slams spending bill, warns of coming impact](https://www.yahoo.com/news/going-crash-economy-joe-slams-114445341.html)
+- Jul 07 - [Erdogan, pro-Kurdish MPs meet in 'new phase' of rapprochement](https://www.yahoo.com/news/erdogan-pro-kurdish-mps-meet-141907981.html)
+- Jul 07 - [Verus Engineering Turns the Stingray Into a Downforce Monster](https://autos.yahoo.com/articles/verus-engineering-turns-stingray-downforce-141500728.html)
+- Jul 07 - [Coast Guard Swimmer Who Rescued 165 from Camp Mystic amid Texas Floods Speaks Out: 'Real Heroes Were the Kids on the Ground'](https://www.yahoo.com/news/coast-guard-swimmer-rescued-165-141113466.html)
+- Jul 07 - [Russia says minister fired by Putin killed himself](https://www.yahoo.com/news/russia-says-minister-fired-putin-140638987.html)
+- Jul 07 - [Citi lifts Nvidia's price target on booming sovereign AI demand](https://finance.yahoo.com/news/citi-lifts-nvidias-price-target-on-booming-sovereign-ai-demand-133311040.html)
 <!-- feed end -->
