@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Republican Chris Carr raises $1.25M more for 2026 Georgia governor bid](https://www.yahoo.com/news/republican-chris-carr-raises-1-210315761.html)
-- Jul 07 - [Videos Show Water Rising Within Minutes During Deadly Texas Flash Flood](https://www.yahoo.com/news/videos-show-water-rising-within-204347065.html)
 - Jul 07 - [RFK Jr. promoted a food company he says will make Americans healthy. Their meals are ultraprocessed](https://www.yahoo.com/news/rfk-jr-promoted-food-company-203923787.html)
-- Jul 07 - [Son Wants To Cash Out On Dad's $6 Million Business. Dave Ramsey Brings Up A Teary Man Who Regretted Selling For $400 Million](https://finance.yahoo.com/news/son-wants-cash-dads-6-203044018.html)
-- Jul 07 - [Before the government overhauls special educational needs, lessons must be learnt](https://www.yahoo.com/news/government-overhauls-special-educational-needs-194926908.html)
+- Jul 07 - [Ongoing "beef" and dragging a body: Jackson police share details of July 4 murders](https://www.yahoo.com/news/ongoing-beef-dragging-bodies-jackson-200406979.html)
+- Jul 07 - [Kenmore man sentenced for injuring woman in hit-and-run after Bills game](https://www.yahoo.com/news/kenmore-man-sentenced-injuring-woman-195417427.html)
+- Jul 07 - [White House pushing back tariff deadline to August 1](https://www.yahoo.com/news/white-house-pushing-back-tariff-194539093.html)
+- Jul 07 - [Trump’s response to flooding in Texas reflects glaring inequality](https://www.yahoo.com/news/trump-response-flooding-texas-reflects-194005646.html)
 <!-- feed end -->
