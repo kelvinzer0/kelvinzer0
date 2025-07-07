@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Owners of pet lion arrested after it jumped a wall and attacked a woman and two children in Pakistan](https://www.yahoo.com/news/owners-pet-lion-arrested-jumped-072957898.html)
-- Jul 07 - [Russia's Putin sacks transport minister Starovoit, appoints his deputy](https://www.yahoo.com/news/russian-president-vladimir-putin-dismisses-071311323.html)
-- Jul 07 - [Road shut for 15 weeks to install reservoir barriers](https://www.yahoo.com/news/road-shut-15-weeks-install-063156195.html)
-- Jul 07 - [President Donald Trump Receives Golf 'Warning'](https://www.yahoo.com/news/president-donald-trump-receives-golf-054852144.html)
-- Jul 07 - [French police are slashing boats but migrants are still determined to reach the UK](https://www.yahoo.com/news/french-police-slashing-migrant-boats-052307952.html)
+- Jul 07 - [Could a $10,000 Investment in Cardano Turn Into $1 Million by 2035?](https://finance.yahoo.com/news/could-10-000-investment-cardano-093300469.html)
+- Jul 07 - [Philippine police take 15 officers into custody over the feared killings of cockfighters](https://www.yahoo.com/news/philippine-police-15-officers-custody-091817372.html)
+- Jul 07 - [At an Ohio food bank, fears that Republican cuts will overwhelm an overstretched program](https://www.yahoo.com/news/ohio-food-bank-fears-republican-090013785.html)
+- Jul 07 - [Family hubs to open across every council in England](https://www.yahoo.com/news/family-hubs-open-across-every-085318966.html)
+- Jul 07 - [Tourist left dog in hot locker so she could explore castle, say police](https://www.yahoo.com/news/tourist-left-dog-hot-locker-081639275.html)
 <!-- feed end -->
