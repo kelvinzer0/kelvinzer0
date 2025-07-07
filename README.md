@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Dow to close three European chemical plants, cut 800 jobs](https://finance.yahoo.com/news/dow-close-three-european-chemical-113749459.html)
+- Jul 07 - [Stock market today: Dow, S&P 500, Nasdaq fall as Trump amps up tariff threats with deadline looming](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-fall-as-trump-amps-up-tariff-threats-with-deadline-looming-133217493.html)
+- Jul 07 - [Autopsy reveals cause of death for Brazilian tourist who fell into volcano](https://www.yahoo.com/news/autopsy-reveals-cause-death-brazilian-121148419.html)
+- Jul 07 - [‘Going to crash the economy’: Joe slams spending bill, warns of coming impact](https://www.yahoo.com/news/going-crash-economy-joe-slams-114445341.html)
 - Jul 07 - [A Vermont dairy farm was raided. The mixed messages from Washington since then have increased fears](https://www.yahoo.com/news/vermont-dairy-farm-raided-mixed-110551704.html)
 - Jul 07 - [British Army soldiers sacked for sharing Oct 7 helmet-cam footage](https://www.yahoo.com/news/british-army-soldiers-sacked-sharing-110203621.html)
-- Jul 07 - [Russia fires over 100 drones at Ukraine as Kremlin dismisses transport chief after travel chaos](https://www.yahoo.com/news/russia-fires-over-100-drones-104003457.html)
-- Jul 07 - [Paramedic jailed for spiking pregnant lover with abortion drug](https://www.yahoo.com/news/paramedic-jailed-secretly-spiking-pregnant-103839436.html)
 <!-- feed end -->
