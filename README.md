@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Calls grow for China's household sector to be bigger economic driver](https://finance.yahoo.com/news/calls-grow-chinas-household-sector-055435484.html)
+- Jul 07 - [Death toll rises in Texas floods, Trump plans visit](https://www.yahoo.com/news/death-toll-rises-texas-floods-054336685.html)
 - Jul 07 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
+- Jul 07 - [Trump Officials Are Doing Everything They Can To Obscure The Actual Fallout Of His Tax Bill](https://www.yahoo.com/news/trump-officials-doing-everything-obscure-012358934.html)
 - Jul 07 - [Elon Musk says he's formed the 'America Party.' Trump says he's gone 'off the rails.'](https://www.yahoo.com/news/elon-musk-says-hes-formed-001743315.html)
-- Jul 07 - [Stock market today: Dow, S&P 500, Nasdaq futures fall as Trump targets August 1 for country-by-country tariffs](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-fall-as-trump-targets-august-1-for-country-by-country-tariffs-001624277.html)
-- Jul 06 - [Distraught Dad Says He Found the Body of a ‘Little Boy’ While Calling Out His Missing Daughter’s Name amid Texas Floods](https://www.yahoo.com/news/distraught-dad-says-found-body-233132998.html)
+- Jul 07 - [Texas high school says Camp Mystic counselor was among those killed in flooding](https://www.yahoo.com/news/camp-mystic-counselor-died-texas-001700522.html)
 <!-- feed end -->
