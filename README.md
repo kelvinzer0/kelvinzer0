@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Death toll rises in Texas floods, Trump plans visit](https://www.yahoo.com/news/death-toll-rises-texas-floods-054336685.html)
+- Jul 07 - [Russian President Vladimir Putin dismisses transport minister Starovoit](https://www.yahoo.com/news/russian-president-vladimir-putin-dismisses-071311323.html)
 - Jul 07 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
 - Jul 07 - [Trump Officials Are Doing Everything They Can To Obscure The Actual Fallout Of His Tax Bill](https://www.yahoo.com/news/trump-officials-doing-everything-obscure-012358934.html)
+- Jul 07 - [Trump Pretends Not to Hear Difficult Question on Texas Deaths](https://www.yahoo.com/news/trump-pretends-not-hear-difficult-010750055.html)
 - Jul 07 - [Elon Musk says he's formed the 'America Party.' Trump says he's gone 'off the rails.'](https://www.yahoo.com/news/elon-musk-says-hes-formed-001743315.html)
-- Jul 07 - [Texas high school says Camp Mystic counselor was among those killed in flooding](https://www.yahoo.com/news/camp-mystic-counselor-died-texas-001700522.html)
 <!-- feed end -->
