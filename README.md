@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 07 - [Biden's former doctor asks to delay testimony to House panel, citing patient privilege concerns](https://www.yahoo.com/news/bidens-former-doctor-asks-delay-223513703.html)
+- Jul 07 - [Nissan May Consider Deal With Foxconn to Save Japanese Car Plant](https://autos.yahoo.com/articles/nissan-may-consider-deal-foxconn-220000979.html)
+- Jul 07 - [Here are the next tailwinds for bitcoin](https://finance.yahoo.com/video/next-catalysts-bitcoin-214305109.html)
 - Jul 07 - [RFK Jr. promoted a food company he says will make Americans healthy. Their meals are ultraprocessed](https://www.yahoo.com/news/rfk-jr-promoted-food-company-203923787.html)
-- Jul 07 - [Ongoing "beef" and dragging a body: Jackson police share details of July 4 murders](https://www.yahoo.com/news/ongoing-beef-dragging-bodies-jackson-200406979.html)
-- Jul 07 - [Kenmore man sentenced for injuring woman in hit-and-run after Bills game](https://www.yahoo.com/news/kenmore-man-sentenced-injuring-woman-195417427.html)
-- Jul 07 - [White House pushing back tariff deadline to August 1](https://www.yahoo.com/news/white-house-pushing-back-tariff-194539093.html)
 - Jul 07 - [Trump’s response to flooding in Texas reflects glaring inequality](https://www.yahoo.com/news/trump-response-flooding-texas-reflects-194005646.html)
 <!-- feed end -->
