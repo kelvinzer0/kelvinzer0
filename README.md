@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Dow slips 400 points on renewed tariff fears](https://finance.yahoo.com/video/dow-slips-400-points-renewed-201101478.html)
-- Jul 07 - [Young BMW driver and passenger die after fiery Queens Belt Parkway wreck](https://www.yahoo.com/news/young-bmw-driver-passenger-die-192300518.html)
-- Jul 07 - [Shark attacks surfer in Florida, victim taken to hospital](https://www.yahoo.com/news/shark-attacks-surfer-florida-victim-190909369.html)
-- Jul 07 - [Israel bombs British ship seized by Houthis](https://www.yahoo.com/news/israel-bombs-british-ship-seized-152016944.html)
-- Jul 07 - [Trump administration says it will deport Kilmar Abrego Garcia before his trial if he’s released from criminal custody](https://www.yahoo.com/news/trump-administration-says-deport-kilmar-172457143.html)
+- Jul 07 - [Republican Chris Carr raises $1.25M more for 2026 Georgia governor bid](https://www.yahoo.com/news/republican-chris-carr-raises-1-210315761.html)
+- Jul 07 - [Videos Show Water Rising Within Minutes During Deadly Texas Flash Flood](https://www.yahoo.com/news/videos-show-water-rising-within-204347065.html)
+- Jul 07 - [RFK Jr. promoted a food company he says will make Americans healthy. Their meals are ultraprocessed](https://www.yahoo.com/news/rfk-jr-promoted-food-company-203923787.html)
+- Jul 07 - [Son Wants To Cash Out On Dad's $6 Million Business. Dave Ramsey Brings Up A Teary Man Who Regretted Selling For $400 Million](https://finance.yahoo.com/news/son-wants-cash-dads-6-203044018.html)
+- Jul 07 - [Before the government overhauls special educational needs, lessons must be learnt](https://www.yahoo.com/news/government-overhauls-special-educational-needs-194926908.html)
 <!-- feed end -->
