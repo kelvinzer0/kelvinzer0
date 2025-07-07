@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Russian President Vladimir Putin dismisses transport minister Starovoit](https://www.yahoo.com/news/russian-president-vladimir-putin-dismisses-071311323.html)
-- Jul 07 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
-- Jul 07 - [Trump Officials Are Doing Everything They Can To Obscure The Actual Fallout Of His Tax Bill](https://www.yahoo.com/news/trump-officials-doing-everything-obscure-012358934.html)
-- Jul 07 - [Trump Pretends Not to Hear Difficult Question on Texas Deaths](https://www.yahoo.com/news/trump-pretends-not-hear-difficult-010750055.html)
-- Jul 07 - [Elon Musk says he's formed the 'America Party.' Trump says he's gone 'off the rails.'](https://www.yahoo.com/news/elon-musk-says-hes-formed-001743315.html)
+- Jul 07 - [Owners of pet lion arrested after it jumped a wall and attacked a woman and two children in Pakistan](https://www.yahoo.com/news/owners-pet-lion-arrested-jumped-072957898.html)
+- Jul 07 - [Russia's Putin sacks transport minister Starovoit, appoints his deputy](https://www.yahoo.com/news/russian-president-vladimir-putin-dismisses-071311323.html)
+- Jul 07 - [Road shut for 15 weeks to install reservoir barriers](https://www.yahoo.com/news/road-shut-15-weeks-install-063156195.html)
+- Jul 07 - [President Donald Trump Receives Golf 'Warning'](https://www.yahoo.com/news/president-donald-trump-receives-golf-054852144.html)
+- Jul 07 - [French police are slashing boats but migrants are still determined to reach the UK](https://www.yahoo.com/news/french-police-slashing-migrant-boats-052307952.html)
 <!-- feed end -->
