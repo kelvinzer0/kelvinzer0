@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Could a $10,000 Investment in Cardano Turn Into $1 Million by 2035?](https://finance.yahoo.com/news/could-10-000-investment-cardano-093300469.html)
-- Jul 07 - [Philippine police take 15 officers into custody over the feared killings of cockfighters](https://www.yahoo.com/news/philippine-police-15-officers-custody-091817372.html)
-- Jul 07 - [At an Ohio food bank, fears that Republican cuts will overwhelm an overstretched program](https://www.yahoo.com/news/ohio-food-bank-fears-republican-090013785.html)
-- Jul 07 - [Family hubs to open across every council in England](https://www.yahoo.com/news/family-hubs-open-across-every-085318966.html)
-- Jul 07 - [Tourist left dog in hot locker so she could explore castle, say police](https://www.yahoo.com/news/tourist-left-dog-hot-locker-081639275.html)
+- Jul 07 - [Russia fires over 100 drones at Ukraine as Kremlin dismisses transport chief after travel chaos](https://www.yahoo.com/news/russia-fires-over-100-drones-104003457.html)
+- Jul 07 - [Florida man, 60, says he lost $1.6M in an elaborate investment scam — fronted by a woman he’d known for years](https://finance.yahoo.com/news/florida-man-60-says-lost-103100024.html)
+- Jul 07 - ['Vast power of this water': Area official discusses devastation after Texas floods](https://www.yahoo.com/news/vast-power-water-area-official-102934484.html)
+- Jul 07 - [Zacks Market Edge Highlights: PANW, PLTR and AVGO](https://finance.yahoo.com/news/zacks-market-edge-highlights-panw-084800096.html)
+- Jul 07 - [Owners of pet lion arrested after it jumped a wall and attacked a woman and two children in Pakistan](https://www.yahoo.com/news/owners-pet-lion-arrested-jumped-072957898.html)
 <!-- feed end -->
