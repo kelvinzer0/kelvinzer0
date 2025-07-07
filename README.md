@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Trump accuses Brazilian authorities of 'witch hunt' against former leader Bolsonaro](https://www.yahoo.com/news/trump-accuses-brazilian-authorities-witch-180643912.html)
-- Jul 07 - [Leon County Schools earns another 'B' grade from state, but two schools soared](https://www.yahoo.com/news/leon-county-schools-earns-another-174455857.html)
-- Jul 07 - [Elizabeth Warren Posted This Troubling Video Describing How Senate Republicans Reacted After They Voted On The "One Big Beautiful Bill"](https://www.yahoo.com/news/elizabeth-warren-posted-troubling-video-172626931.html)
-- Jul 07 - [New Fuzes For GBU-57 Massive Ordnance Penetrators Requested By USAF](https://www.yahoo.com/news/fuzes-gbu-57-massive-ordnance-171906447.html)
-- Jul 07 - [Wildfires are ‘disaster waiting to happen’, farmers warn](https://www.yahoo.com/news/wildfires-disaster-waiting-happen-farmers-170706651.html)
+- Jul 07 - [Anti-woke activist applauds his ‘friends’ at the New York Times for Zohran Mamdani college application ‘scoop’](https://www.yahoo.com/news/anti-woke-activist-applauds-friends-145049443.html)
+- Jul 07 - [French Olympian Ysaora Thibus cleared of doping after successfully arguing she was contaminated through kissing her partner](https://sports.yahoo.com/olympics/breaking-news/article/french-olympian-ysaora-thibus-cleared-of-doping-after-successfully-arguing-she-was-contaminated-through-kissing-her-partner-182348854.html)
+- Jul 07 - [Trump trade advisor bashes Tim Cook for Silicon Valley's 'longest-running soap opera'](https://finance.yahoo.com/news/trump-trade-advisor-bashes-tim-180826279.html)
+- Jul 07 - [Mark Ruffalo Slams Joe Rogan Over Response to ICE Immigration Raids: “It’s a Little Late Now”](https://www.yahoo.com/news/mark-ruffalo-slams-joe-rogan-175209234.html)
+- Jul 07 - [Apple deals are officially Prime Day-worthy one day ahead of the sale](https://tech.yahoo.com/phones/deals/articles/20-best-apple-deals-live-182630842.html)
 <!-- feed end -->
