@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [Erdogan, pro-Kurdish MPs meet in 'new phase' of rapprochement](https://www.yahoo.com/news/erdogan-pro-kurdish-mps-meet-141907981.html)
-- Jul 07 - [Verus Engineering Turns the Stingray Into a Downforce Monster](https://autos.yahoo.com/articles/verus-engineering-turns-stingray-downforce-141500728.html)
-- Jul 07 - [Coast Guard Swimmer Who Rescued 165 from Camp Mystic amid Texas Floods Speaks Out: 'Real Heroes Were the Kids on the Ground'](https://www.yahoo.com/news/coast-guard-swimmer-rescued-165-141113466.html)
-- Jul 07 - [Russia says minister fired by Putin killed himself](https://www.yahoo.com/news/russia-says-minister-fired-putin-140638987.html)
-- Jul 07 - [Citi lifts Nvidia's price target on booming sovereign AI demand](https://finance.yahoo.com/news/citi-lifts-nvidias-price-target-on-booming-sovereign-ai-demand-133311040.html)
+- Jul 07 - [Anti-woke activist applauds his ‘friends’ at the New York Times for Zohran Mamdani college application ‘scoop’](https://www.yahoo.com/news/anti-woke-activist-applauds-friends-145049443.html)
+- Jul 07 - [Chevron preps quick closing of Hess deal and awaits result of Exxon dispute](https://finance.yahoo.com/news/chevron-preps-quick-closing-hess-155620661.html)
+- Jul 07 - [Israel bombs British ship seized by Houthis](https://www.yahoo.com/news/israel-bombs-british-ship-seized-152016944.html)
+- Jul 07 - [Iran deports 300,000 Afghans over Israel spying fears](https://www.yahoo.com/news/iran-deports-300-000-afghans-134916355.html)
+- Jul 07 - [Russia's transportation minister found dead in what officials say was an apparent suicide](https://www.yahoo.com/news/russias-ex-minister-found-dead-143324016.html)
 <!-- feed end -->
