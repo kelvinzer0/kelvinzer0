@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 07 - [US Trading Partners Chase Deals Ahead of Deadline](https://finance.yahoo.com/video/us-trading-partners-chase-deals-005931385.html)
+- Jul 07 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
 - Jul 07 - [Elon Musk says he's formed the 'America Party.' Trump says he's gone 'off the rails.'](https://www.yahoo.com/news/elon-musk-says-hes-formed-001743315.html)
 - Jul 07 - [Stock market today: Dow, S&P 500, Nasdaq futures fall as Trump targets August 1 for country-by-country tariffs](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-fall-as-trump-targets-august-1-for-country-by-country-tariffs-001624277.html)
-- Jul 06 - [Phoenix officer has minor injuries after being assaulted in an alley, police say](https://www.yahoo.com/news/phoenix-officer-minor-injuries-being-233932918.html)
-- Jul 06 - [Distraught Dad Says He Found the Body of a ‘Little Boy’ While Calling Out His Missing Daughter’s Name amid Texas Floods](https://www.yahoo.com/news/distraught-dad-says-found-body-233132998.html)
+- Jul 06 - [Met officer recalls terrifying moment she realised true horror of 7/7 attacks](https://www.yahoo.com/news/met-officer-recalls-terrifying-moment-230200235.html)
+- Jul 06 - [Cardiologists Are Begging People With Hypertension To Stop Doing This One Thing ASAP](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-people-hypertension-stop-212500547.html)
 <!-- feed end -->
