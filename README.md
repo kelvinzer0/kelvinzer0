@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [South Korea Canceling AH-64 Apache Order A Sign Of What’s To Come](https://www.yahoo.com/news/south-korea-canceling-ah-64-003319178.html)
+- Jul 07 - [Russian minister dies by suicide hours after getting fired by Putin, officials say](https://www.yahoo.com/news/russian-minister-dies-suicide-hours-141658825.html)
+- Jul 07 - [‘Absolute nightmare’: Chautauqua Lake homeowners voice concerns over algae, weeds](https://www.yahoo.com/news/absolute-nightmare-chautauqua-lake-homeowners-230224486.html)
+- Jul 07 - [Apple's top AI executive Ruoming Pang leaves for Meta, Bloomberg News reports](https://finance.yahoo.com/news/apples-top-ai-executive-ruoming-224044121.html)
 - Jul 07 - [Biden's former doctor asks to delay testimony to House panel, citing patient privilege concerns](https://www.yahoo.com/news/bidens-former-doctor-asks-delay-223513703.html)
-- Jul 07 - [Nissan May Consider Deal With Foxconn to Save Japanese Car Plant](https://autos.yahoo.com/articles/nissan-may-consider-deal-foxconn-220000979.html)
-- Jul 07 - [Here are the next tailwinds for bitcoin](https://finance.yahoo.com/video/next-catalysts-bitcoin-214305109.html)
-- Jul 07 - [RFK Jr. promoted a food company he says will make Americans healthy. Their meals are ultraprocessed](https://www.yahoo.com/news/rfk-jr-promoted-food-company-203923787.html)
-- Jul 07 - [Trump’s response to flooding in Texas reflects glaring inequality](https://www.yahoo.com/news/trump-response-flooding-texas-reflects-194005646.html)
 <!-- feed end -->
