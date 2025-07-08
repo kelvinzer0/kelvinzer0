@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Porsche's sales fall globally in first half, China leads slump](https://finance.yahoo.com/video/porsches-sales-fall-globally-first-085311701.html)
-- Jul 08 - [Billionaire Stanley Druckenmiller Sold His Entire Stake in Palantir in Favor of a Smoking-Hot High-Yield Dividend Stock That's Doubled in 15 Months](https://finance.yahoo.com/news/billionaire-stanley-druckenmiller-sold-entire-075100535.html)
-- Jul 08 - [China warns Trump on tariffs, threatens retaliation on supply chain deals](https://finance.yahoo.com/news/china-warns-trump-tariffs-threatens-040931765.html)
+- Jul 08 - [Bitcoin outlook: What comes next after 'institutional adoption'](https://finance.yahoo.com/video/bitcoin-outlook-comes-next-institutional-110000974.html)
+- Jul 08 - [China says US is in 'no position' to point fingers over Tibet issues](https://www.yahoo.com/news/china-says-us-no-position-090304263.html)
+- Jul 08 - [Donald Trump Was Asked About A Key Promise. What Followed Was Pure Gibberish.](https://www.yahoo.com/news/donald-trump-asked-key-promise-084935156.html)
+- Jul 08 - [Japan's emperor meets Mongolian president in joining of Asian democracies](https://www.yahoo.com/news/japans-emperor-meets-mongolian-president-075048304.html)
 - Jul 08 - [Russian Passenger Planes Are Nearly Doubling In Price As Sanctions Take Their Toll](https://autos.yahoo.com/articles/russian-passenger-planes-nearly-doubling-032500336.html)
-- Jul 08 - [Exclusive-China risks global heavy rare-earth supply to stop Myanmar rebel victory](https://finance.yahoo.com/news/exclusive-china-risks-global-heavy-024712771.html)
 <!-- feed end -->
