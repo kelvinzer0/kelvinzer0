@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Virginia tops list of fry-loving sates](https://www.yahoo.com/news/virginia-tops-list-fry-loving-081813319.html)
+- Jul 08 - [Porsche's sales fall globally in first half, China leads slump](https://finance.yahoo.com/video/porsches-sales-fall-globally-first-085311701.html)
+- Jul 08 - [Billionaire Stanley Druckenmiller Sold His Entire Stake in Palantir in Favor of a Smoking-Hot High-Yield Dividend Stock That's Doubled in 15 Months](https://finance.yahoo.com/news/billionaire-stanley-druckenmiller-sold-entire-075100535.html)
 - Jul 08 - [China warns Trump on tariffs, threatens retaliation on supply chain deals](https://finance.yahoo.com/news/china-warns-trump-tariffs-threatens-040931765.html)
+- Jul 08 - [Russian Passenger Planes Are Nearly Doubling In Price As Sanctions Take Their Toll](https://autos.yahoo.com/articles/russian-passenger-planes-nearly-doubling-032500336.html)
 - Jul 08 - [Exclusive-China risks global heavy rare-earth supply to stop Myanmar rebel victory](https://finance.yahoo.com/news/exclusive-china-risks-global-heavy-024712771.html)
-- Jul 08 - [Vacationing Ted Cruz’s ‘As Fast as Humanly Possible’ Return Claim Crumbles](https://www.yahoo.com/news/vacationing-ted-cruz-fast-humanly-022059194.html)
-- Jul 08 - [China extends visa-free entry to more than 70 countries to draw tourists](https://www.yahoo.com/news/china-extends-visa-free-entry-021050173.html)
 <!-- feed end -->
