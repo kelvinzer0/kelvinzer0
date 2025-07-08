@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Goldman Sachs Raises S&P 500 Target by 11%](https://finance.yahoo.com/video/goldman-sachs-raises-p-500-142512785.html)
-- Jul 08 - [2 Magnificent S&P 500 Dividend Stocks Down as Much as 40% to Buy and Hold Forever](https://finance.yahoo.com/news/2-magnificent-p-500-dividend-140700868.html)
-- Jul 08 - [Arizona driver says just days after getting an oil change, his engine seized up while driving on the freeway](https://autos.yahoo.com/articles/arizona-driver-says-just-days-110000410.html)
-- Jul 08 - [Germany summons China's ambassador after a plane is lasered over Red Sea](https://www.yahoo.com/news/germany-summons-chinas-ambassador-military-101841564.html)
-- Jul 08 - [Kremlin says it will take time to clarify what weapons US will send to Ukraine after Trump remarks](https://www.yahoo.com/news/kremlin-says-time-clarify-weapons-101435271.html)
+- Jul 08 - [US farm secretary says 'no amnesty' for farmworkers from deportation](https://www.yahoo.com/news/us-farm-secretary-says-no-150145679.html)
+- Jul 08 - [Alex Jones Breaks Down in Tears After DOJ, FBI Release Epstein Memo Finding No Evidence of a ‘Client List’: It ‘Tears My Guts Out’](https://www.yahoo.com/news/alex-jones-breaks-down-tears-143804871.html)
+- Jul 08 - [Lamborghini driven by Liverpool's Jota in fatal crash was probably speeding, police report finds](https://www.yahoo.com/news/lamborghini-driven-liverpools-jota-fatal-142411304.html)
+- Jul 08 - [Rain totals near 2 inches in the Des Moines metro. See how much we got last night.](https://www.yahoo.com/news/rain-totals-near-2-inches-133234555.html)
+- Jul 08 - [Tesla hacker makes stunning discovery about automaker's future plans: 'Tesla may now be actively testing the vehicle'](https://autos.yahoo.com/articles/tesla-hacker-makes-stunning-discovery-114543471.html)
 <!-- feed end -->
