@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Japan says new US tariffs will have an impact on domestic industries, employment](https://www.yahoo.com/news/japan-says-us-tariffs-impact-064058281.html)
+- Jul 08 - [Virginia tops list of fry-loving sates](https://www.yahoo.com/news/virginia-tops-list-fry-loving-081813319.html)
+- Jul 08 - [Why the economy may never return to pre-tariff levels](https://www.yahoo.com/news/why-economy-may-never-return-081248582.html)
+- Jul 08 - [Japan's emperor meets Mongolian president in joining of Asian democracies](https://www.yahoo.com/news/japans-emperor-meets-mongolian-president-075048304.html)
 - Jul 08 - [China warns Trump on tariffs, threatens retaliation on supply chain deals](https://finance.yahoo.com/news/china-warns-trump-tariffs-threatens-040931765.html)
 - Jul 08 - [China extends visa-free entry to more than 70 countries to draw tourists](https://www.yahoo.com/news/china-extends-visa-free-entry-021050173.html)
-- Jul 08 - [South Korea Canceling AH-64 Apache Order A Sign Of What’s To Come](https://www.yahoo.com/news/south-korea-canceling-ah-64-003319178.html)
-- Jul 07 - [Russian minister dies by suicide hours after getting fired by Putin, officials say](https://www.yahoo.com/news/russian-minister-dies-suicide-hours-141658825.html)
 <!-- feed end -->
