@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 08 - [Virginia tops list of fry-loving sates](https://www.yahoo.com/news/virginia-tops-list-fry-loving-081813319.html)
-- Jul 08 - [Why the economy may never return to pre-tariff levels](https://www.yahoo.com/news/why-economy-may-never-return-081248582.html)
-- Jul 08 - [Japan's emperor meets Mongolian president in joining of Asian democracies](https://www.yahoo.com/news/japans-emperor-meets-mongolian-president-075048304.html)
 - Jul 08 - [China warns Trump on tariffs, threatens retaliation on supply chain deals](https://finance.yahoo.com/news/china-warns-trump-tariffs-threatens-040931765.html)
+- Jul 08 - [Exclusive-China risks global heavy rare-earth supply to stop Myanmar rebel victory](https://finance.yahoo.com/news/exclusive-china-risks-global-heavy-024712771.html)
+- Jul 08 - [Vacationing Ted Cruz’s ‘As Fast as Humanly Possible’ Return Claim Crumbles](https://www.yahoo.com/news/vacationing-ted-cruz-fast-humanly-022059194.html)
 - Jul 08 - [China extends visa-free entry to more than 70 countries to draw tourists](https://www.yahoo.com/news/china-extends-visa-free-entry-021050173.html)
 <!-- feed end -->
