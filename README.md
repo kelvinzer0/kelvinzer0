@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Latest 'Tiger King' twist finds 'Doc' Antle facing possible prison sentence for animal trafficking](https://www.yahoo.com/news/latest-tiger-king-twist-finds-035231102.html)
+- Jul 08 - [China warns Trump on tariffs, threatens retaliation on supply chain deals](https://finance.yahoo.com/news/china-warns-trump-tariffs-threatens-040931765.html)
 - Jul 08 - [Breakthrough gene therapy jab reverses hearing loss in weeks](https://www.yahoo.com/news/breakthrough-gene-therapy-jab-reverses-045610637.html)
-- Jul 08 - [80-year-old man accused of beating wife, 78, to death with a hammer after argument over his doctor](https://www.yahoo.com/news/80-old-man-accused-beating-030812845.html)
-- Jul 08 - [1 critical, 2 others hurt after Friday house fire in Sibley — fireworks might be linked to incident](https://www.yahoo.com/news/1-critical-2-others-hurt-030007964.html)
 - Jul 08 - [China extends visa-free entry to more than 70 countries to draw tourists](https://www.yahoo.com/news/china-extends-visa-free-entry-021050173.html)
+- Jul 08 - [South Korea Canceling AH-64 Apache Order A Sign Of What’s To Come](https://www.yahoo.com/news/south-korea-canceling-ah-64-003319178.html)
+- Jul 07 - [Russian minister dies by suicide hours after getting fired by Putin, officials say](https://www.yahoo.com/news/russian-minister-dies-suicide-hours-141658825.html)
 <!-- feed end -->
