@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [China extends visa-free entry to more than 70 countries to draw tourists](https://www.yahoo.com/news/china-extends-visa-free-entry-021050173.html)
 - Jul 08 - [South Korea Canceling AH-64 Apache Order A Sign Of What’s To Come](https://www.yahoo.com/news/south-korea-canceling-ah-64-003319178.html)
 - Jul 07 - [Russian minister dies by suicide hours after getting fired by Putin, officials say](https://www.yahoo.com/news/russian-minister-dies-suicide-hours-141658825.html)
-- Jul 07 - [‘Absolute nightmare’: Chautauqua Lake homeowners voice concerns over algae, weeds](https://www.yahoo.com/news/absolute-nightmare-chautauqua-lake-homeowners-230224486.html)
-- Jul 07 - [Apple's top AI executive Ruoming Pang leaves for Meta, Bloomberg News reports](https://finance.yahoo.com/news/apples-top-ai-executive-ruoming-224044121.html)
 - Jul 07 - [Biden's former doctor asks to delay testimony to House panel, citing patient privilege concerns](https://www.yahoo.com/news/bidens-former-doctor-asks-delay-223513703.html)
+- Jul 07 - [Anderson Cooper ‘Ready to Walk’ Away From CNN and Reported $18 Million Salary, Says Source](https://www.yahoo.com/entertainment/articles/anderson-cooper-ready-walk-away-221530522.html)
 <!-- feed end -->
