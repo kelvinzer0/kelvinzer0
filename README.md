@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Canadian police charge 4, including active military members, in alleged extremist plot](https://www.yahoo.com/news/canadian-police-charge-4-including-163613399.html)
-- Jul 08 - [Anthony Anderson reacts to Donald Trump wanting to host UFC fight at White House: 'You f---ing crazy?'](https://www.yahoo.com/entertainment/articles/anthony-anderson-reacts-donald-trump-161430344.html)
-- Jul 08 - [Rivian CEO: Trump Policy Changes 'Bad for the World, Bad for the U.S.’ — But Good for Rivian](https://autos.yahoo.com/articles/rivian-ceo-trump-policy-changes-155100746.html)
-- Jul 08 - [US farm secretary says 'no amnesty' for farmworkers from deportation](https://www.yahoo.com/news/us-farm-secretary-says-no-150145679.html)
-- Jul 08 - [Joe Rogan Says Most Americans Don't Want Manufacturing Jobs But The 'Problem' Is That For Some Doing Them Now, 'It's Their Entire Identity'](https://finance.yahoo.com/news/joe-rogan-says-most-americans-144655357.html)
+- Jul 08 - [Why Intel Stock Is Jumping Today](https://finance.yahoo.com/news/why-intel-stock-jumping-today-174403465.html)
+- Jul 08 - [Is there still tax on Social Security in Trump’s ‘Big Beautiful Bill?’ What to know](https://www.yahoo.com/news/still-tax-social-security-trump-173647002.html)
+- Jul 08 - [The president jumped in after a reporter asked Pam Bondi about the case amid MAGA fury.](https://www.yahoo.com/news/president-jumped-reporter-asked-pam-170426207.html)
+- Jul 08 - [Minnesota state Sen. John Hoffman, shot 9 times by a man posing as an officer, leaves the hospital](https://www.yahoo.com/news/minnesota-state-sen-john-hoffman-165610862.html)
+- Jul 08 - [Germany says a Chinese warship used a laser against one of its surveillance aircraft over the Red Sea. It's pulled this dangerous move before.](https://www.yahoo.com/news/germany-says-chinese-warship-used-164634434.html)
 <!-- feed end -->
