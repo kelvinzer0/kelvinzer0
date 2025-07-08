@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Twin Cities volleyball coach charged with sexually assaulting 17-year-old player](https://www.yahoo.com/news/twin-cities-volleyball-coach-charged-110716588.html)
-- Jul 08 - [After disasters like the Texas flood, Trump reflexively blames Biden](https://www.yahoo.com/news/disasters-texas-flood-trump-reflexively-110026307.html)
+- Jul 08 - [Goldman Sachs Raises S&P 500 Target by 11%](https://finance.yahoo.com/video/goldman-sachs-raises-p-500-142512785.html)
+- Jul 08 - [2 Magnificent S&P 500 Dividend Stocks Down as Much as 40% to Buy and Hold Forever](https://finance.yahoo.com/news/2-magnificent-p-500-dividend-140700868.html)
 - Jul 08 - [Arizona driver says just days after getting an oil change, his engine seized up while driving on the freeway](https://autos.yahoo.com/articles/arizona-driver-says-just-days-110000410.html)
-- Jul 08 - [Bitcoin outlook: What comes next after 'institutional adoption'](https://finance.yahoo.com/video/bitcoin-outlook-comes-next-institutional-110000974.html)
 - Jul 08 - [Germany summons China's ambassador after a plane is lasered over Red Sea](https://www.yahoo.com/news/germany-summons-chinas-ambassador-military-101841564.html)
+- Jul 08 - [Kremlin says it will take time to clarify what weapons US will send to Ukraine after Trump remarks](https://www.yahoo.com/news/kremlin-says-time-clarify-weapons-101435271.html)
 <!-- feed end -->
