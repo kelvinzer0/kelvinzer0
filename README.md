@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 08 - [Canadian police charge 4, including active military members, in alleged extremist plot](https://www.yahoo.com/news/canadian-police-charge-4-including-163613399.html)
+- Jul 08 - [Anthony Anderson reacts to Donald Trump wanting to host UFC fight at White House: 'You f---ing crazy?'](https://www.yahoo.com/entertainment/articles/anthony-anderson-reacts-donald-trump-161430344.html)
+- Jul 08 - [Rivian CEO: Trump Policy Changes 'Bad for the World, Bad for the U.S.’ — But Good for Rivian](https://autos.yahoo.com/articles/rivian-ceo-trump-policy-changes-155100746.html)
 - Jul 08 - [US farm secretary says 'no amnesty' for farmworkers from deportation](https://www.yahoo.com/news/us-farm-secretary-says-no-150145679.html)
-- Jul 08 - [Alex Jones Breaks Down in Tears After DOJ, FBI Release Epstein Memo Finding No Evidence of a ‘Client List’: It ‘Tears My Guts Out’](https://www.yahoo.com/news/alex-jones-breaks-down-tears-143804871.html)
-- Jul 08 - [Lamborghini driven by Liverpool's Jota in fatal crash was probably speeding, police report finds](https://www.yahoo.com/news/lamborghini-driven-liverpools-jota-fatal-142411304.html)
-- Jul 08 - [Rain totals near 2 inches in the Des Moines metro. See how much we got last night.](https://www.yahoo.com/news/rain-totals-near-2-inches-133234555.html)
-- Jul 08 - [Tesla hacker makes stunning discovery about automaker's future plans: 'Tesla may now be actively testing the vehicle'](https://autos.yahoo.com/articles/tesla-hacker-makes-stunning-discovery-114543471.html)
+- Jul 08 - [Joe Rogan Says Most Americans Don't Want Manufacturing Jobs But The 'Problem' Is That For Some Doing Them Now, 'It's Their Entire Identity'](https://finance.yahoo.com/news/joe-rogan-says-most-americans-144655357.html)
 <!-- feed end -->
