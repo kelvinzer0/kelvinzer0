@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Why Intel Stock Is Jumping Today](https://finance.yahoo.com/news/why-intel-stock-jumping-today-174403465.html)
-- Jul 08 - [Is there still tax on Social Security in Trump’s ‘Big Beautiful Bill?’ What to know](https://www.yahoo.com/news/still-tax-social-security-trump-173647002.html)
-- Jul 08 - [The president jumped in after a reporter asked Pam Bondi about the case amid MAGA fury.](https://www.yahoo.com/news/president-jumped-reporter-asked-pam-170426207.html)
-- Jul 08 - [Minnesota state Sen. John Hoffman, shot 9 times by a man posing as an officer, leaves the hospital](https://www.yahoo.com/news/minnesota-state-sen-john-hoffman-165610862.html)
-- Jul 08 - [Germany says a Chinese warship used a laser against one of its surveillance aircraft over the Red Sea. It's pulled this dangerous move before.](https://www.yahoo.com/news/germany-says-chinese-warship-used-164634434.html)
+- Jul 08 - [Trump administration pulls back on plans to rewrite Biden-era asbestos ban](https://www.yahoo.com/news/trump-administration-pulls-back-plans-183856192.html)
+- Jul 08 - [Paws & Purpose to highlight K9s, rehabilitation for animals](https://www.yahoo.com/news/paws-purpose-highlight-k9s-rehabilitation-182551326.html)
+- Jul 08 - [More than 400 small quakes shake Mount Rainier in unusual seismic swarm](https://www.yahoo.com/news/more-400-small-quakes-shake-181238416.html)
+- Jul 08 - [Trump ramped up his attacks on CNN’s Natasha Bertrand after she reported on a U.S. intelligence report about the strikes in Iran.](https://www.yahoo.com/news/trump-ramped-attacks-cnn-natasha-181203593.html)
+- Jul 08 - [Heavy police presence along I-285](https://www.yahoo.com/news/heavy-police-presence-along-285-175656277.html)
 <!-- feed end -->
