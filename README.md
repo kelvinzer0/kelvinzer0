@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Trump administration pulls back on plans to rewrite Biden-era asbestos ban](https://www.yahoo.com/news/trump-administration-pulls-back-plans-183856192.html)
-- Jul 08 - [Paws & Purpose to highlight K9s, rehabilitation for animals](https://www.yahoo.com/news/paws-purpose-highlight-k9s-rehabilitation-182551326.html)
-- Jul 08 - [More than 400 small quakes shake Mount Rainier in unusual seismic swarm](https://www.yahoo.com/news/more-400-small-quakes-shake-181238416.html)
+- Jul 08 - [Apple's AI Model Executive Shifts to Meta](https://finance.yahoo.com/video/apples-ai-model-executive-shifts-195729773.html)
+- Jul 08 - [Tulsi Gabbard demanding access to intel agency emails to find spies working to undermine the Trump agenda: report](https://www.yahoo.com/news/tulsi-gabbard-demanding-access-intel-190620445.html)
+- Jul 08 - [Hamas timed IED blast that killed five soldiers in-between IDF air, artillery fire](https://www.yahoo.com/news/hamas-timed-ied-blast-killed-182847971.html)
 - Jul 08 - [Trump ramped up his attacks on CNN’s Natasha Bertrand after she reported on a U.S. intelligence report about the strikes in Iran.](https://www.yahoo.com/news/trump-ramped-attacks-cnn-natasha-181203593.html)
-- Jul 08 - [Heavy police presence along I-285](https://www.yahoo.com/news/heavy-police-presence-along-285-175656277.html)
+- Jul 08 - [Backstreet Boys singer sues Florida county over sunbathers on his private beach](https://www.yahoo.com/news/backstreet-boys-singer-sues-florida-174335489.html)
 <!-- feed end -->
