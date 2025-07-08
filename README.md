@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Apple's AI Model Executive Shifts to Meta](https://finance.yahoo.com/video/apples-ai-model-executive-shifts-195729773.html)
-- Jul 08 - [Tulsi Gabbard demanding access to intel agency emails to find spies working to undermine the Trump agenda: report](https://www.yahoo.com/news/tulsi-gabbard-demanding-access-intel-190620445.html)
-- Jul 08 - [Hamas timed IED blast that killed five soldiers in-between IDF air, artillery fire](https://www.yahoo.com/news/hamas-timed-ied-blast-killed-182847971.html)
+- Jul 08 - [Walmart ramps up e-commerce to rival Amazon's Prime Day event](https://finance.yahoo.com/video/walmart-ramps-e-commerce-rival-202751701.html)
+- Jul 08 - [Lucid Shatters World Record With 749-Mile Drive On A Single Charge](https://autos.yahoo.com/articles/lucid-shatters-world-record-749-201438088.html)
+- Jul 08 - [Hostages released from Gaza detail sexual violence as Israeli report concludes Hamas used it as ‘weapon of war’ on October 7](https://www.yahoo.com/news/hostages-released-gaza-detail-sexual-185927118.html)
+- Jul 08 - [Senior pastor finalist selected for Bellevue Baptist Church](https://www.yahoo.com/news/senior-pastor-finalist-selected-bellevue-182712120.html)
 - Jul 08 - [Trump ramped up his attacks on CNN’s Natasha Bertrand after she reported on a U.S. intelligence report about the strikes in Iran.](https://www.yahoo.com/news/trump-ramped-attacks-cnn-natasha-181203593.html)
-- Jul 08 - [Backstreet Boys singer sues Florida county over sunbathers on his private beach](https://www.yahoo.com/news/backstreet-boys-singer-sues-florida-174335489.html)
 <!-- feed end -->
