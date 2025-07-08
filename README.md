@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Brendan Schaub: UFC hosting event at the White House 'should be celebrated'](https://sports.yahoo.com/article/brendan-schaub-ufc-hosting-event-125026438.html)
-- Jul 08 - [Macron inspects troops at Windsor with the King](https://www.yahoo.com/news/macron-inspects-troops-windsor-king-124624298.html)
-- Jul 08 - [A Change in Social Security Benefits Caused A Measure of Americans' Income to Fall](https://finance.yahoo.com/news/change-social-security-benefits-caused-123749528.html)
 - Jul 08 - [Twin Cities volleyball coach charged with sexually assaulting 17-year-old player](https://www.yahoo.com/news/twin-cities-volleyball-coach-charged-110716588.html)
 - Jul 08 - [After disasters like the Texas flood, Trump reflexively blames Biden](https://www.yahoo.com/news/disasters-texas-flood-trump-reflexively-110026307.html)
+- Jul 08 - [Arizona driver says just days after getting an oil change, his engine seized up while driving on the freeway](https://autos.yahoo.com/articles/arizona-driver-says-just-days-110000410.html)
+- Jul 08 - [Bitcoin outlook: What comes next after 'institutional adoption'](https://finance.yahoo.com/video/bitcoin-outlook-comes-next-institutional-110000974.html)
+- Jul 08 - [Germany summons China's ambassador after a plane is lasered over Red Sea](https://www.yahoo.com/news/germany-summons-chinas-ambassador-military-101841564.html)
 <!-- feed end -->
