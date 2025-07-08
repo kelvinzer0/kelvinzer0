@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Bitcoin outlook: What comes next after 'institutional adoption'](https://finance.yahoo.com/video/bitcoin-outlook-comes-next-institutional-110000974.html)
-- Jul 08 - [China says US is in 'no position' to point fingers over Tibet issues](https://www.yahoo.com/news/china-says-us-no-position-090304263.html)
-- Jul 08 - [Donald Trump Was Asked About A Key Promise. What Followed Was Pure Gibberish.](https://www.yahoo.com/news/donald-trump-asked-key-promise-084935156.html)
-- Jul 08 - [Japan's emperor meets Mongolian president in joining of Asian democracies](https://www.yahoo.com/news/japans-emperor-meets-mongolian-president-075048304.html)
-- Jul 08 - [Russian Passenger Planes Are Nearly Doubling In Price As Sanctions Take Their Toll](https://autos.yahoo.com/articles/russian-passenger-planes-nearly-doubling-032500336.html)
+- Jul 08 - [Kremlin calls transportation minister's death 'tragic' but gives no clues about his apparent suicide](https://www.yahoo.com/news/kremlin-calls-transportation-ministers-death-122826876.html)
+- Jul 08 - [Meta Poaches Top AI Talent From Apple](https://finance.yahoo.com/video/meta-poaches-top-ai-talent-115106545.html)
+- Jul 08 - [After disasters like the Texas flood, Trump reflexively blames Biden](https://www.yahoo.com/news/disasters-texas-flood-trump-reflexively-110026307.html)
+- Jul 08 - [Arizona driver says just days after getting an oil change, his engine seized up while driving on the freeway](https://autos.yahoo.com/articles/arizona-driver-says-just-days-110000410.html)
+- Jul 08 - [Germany summons China's ambassador after a plane is lasered over Red Sea](https://www.yahoo.com/news/germany-summons-chinas-ambassador-military-101841564.html)
 <!-- feed end -->
