@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [Residents still shaken a day after federal authorities march through Los Angeles' MacArthur Park](https://www.yahoo.com/news/residents-still-shaken-day-federal-212837614.html)
-- Jul 08 - [Mary Lou Retton Body Cam Footage, Mugshot Released After Pleading 'No Contest' to DUI](https://www.yahoo.com/entertainment/videos/mary-lou-retton-body-cam-212727597.html)
-- Jul 08 - [Local concert canceled after musician denied entry into US](https://www.yahoo.com/news/local-concert-canceled-musician-denied-202257156.html)
+- Jul 08 - [King Charles hails new era of Franco-British cooperation at Windsor banquet for President Macron](https://www.yahoo.com/news/king-charles-hails-era-franco-223342191.html)
+- Jul 08 - [Second defendant pleads guilty in Minnesota voter fraud case](https://www.yahoo.com/news/second-defendant-pleads-guilty-minnesota-205910758.html)
 - Jul 08 - [Hostages released from Gaza detail sexual violence as Israeli report concludes Hamas used it as ‘weapon of war’ on October 7](https://www.yahoo.com/news/hostages-released-gaza-detail-sexual-185927118.html)
-- Jul 08 - [Corpus Christi police officer arrested on indecent assault warrant](https://www.yahoo.com/news/corpus-christi-police-officer-arrested-172727656.html)
+- Jul 08 - [Hundreds of small quakes shake Mount Rainier in unusual seismic swarm](https://www.yahoo.com/news/more-400-small-quakes-shake-181238416.html)
+- Jul 08 - [‘The View’ Texas Flood Debate Gets Heated After Sunny Hostin Points Out This “Could Have Been Avoided”: “The Floods Don’t Care Who You Voted For”](https://www.yahoo.com/news/view-texas-flood-debate-gets-170316324.html)
 <!-- feed end -->
