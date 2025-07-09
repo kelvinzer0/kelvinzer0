@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Iranian mother released from ICE detention after Republican House Majority Leader intervenes](https://www.yahoo.com/news/iranian-mother-released-ice-detention-012235574.html)
 - Jul 09 - [A deadly 1987 flood scarred the same Texas county that is reeling through another disaster](https://www.yahoo.com/news/deadly-1987-flood-scarred-same-011753848.html)
+- Jul 08 - [Texas inspectors approved Camp Mystic’s disaster plan 2 days before deadly flood, records show](https://www.yahoo.com/news/texas-inspectors-approved-camp-mystic-235051076.html)
 - Jul 08 - [Second defendant pleads guilty in Minnesota voter fraud case](https://www.yahoo.com/news/second-defendant-pleads-guilty-minnesota-205910758.html)
 - Jul 08 - [Hostages released from Gaza detail sexual violence as Israeli report concludes Hamas used it as ‘weapon of war’ on October 7](https://www.yahoo.com/news/hostages-released-gaza-detail-sexual-185927118.html)
-- Jul 08 - [Mary Lou Retton’s shocking mugshot, bodycam footage of DUI arrest released](https://www.yahoo.com/entertainment/articles/mary-lou-retton-shocking-mugshot-184724355.html)
-- Jul 08 - [J.J Watt Has 1-Word Message for U.S. Coast Guard Rescue Swimmer](https://www.yahoo.com/news/j-j-watt-1-word-181213799.html)
 <!-- feed end -->
