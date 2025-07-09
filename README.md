@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [China's AI Bet Rises From the Gobi Desert](https://finance.yahoo.com/video/chinas-ai-bet-rises-gobi-041850919.html)
+- Jul 09 - ['Fortress Russia' has confiscated $50 billion in assets over three years, Kommersant says](https://finance.yahoo.com/news/fortress-russia-confiscated-50-billion-063204888.html)
+- Jul 09 - [What are branded residences and who’s buying them?](https://uk.finance.yahoo.com/news/branded-residences-property-explained-050050390.html)
 - Jul 09 - [European intelligence officials warn that a Russian sabotage campaign is escalating](https://www.yahoo.com/news/european-intelligence-officials-warn-russian-040050921.html)
-- Jul 09 - [Iranian mother released from ICE detention after Republican House Majority Leader intervenes](https://www.yahoo.com/news/iranian-mother-released-ice-detention-012235574.html)
-- Jul 09 - [3 missing, house swept away as flash flooding hits mountain village in New Mexico](https://www.yahoo.com/news/house-swept-away-flash-flooding-010410564.html)
-- Jul 08 - [Texas inspectors approved Camp Mystic’s disaster plan 2 days before deadly flood, records show](https://www.yahoo.com/news/texas-inspectors-approved-camp-mystic-235051076.html)
+- Jul 09 - [Greg Abbott compared the effort to understand why the death toll was so high to the losers of a football game.](https://www.yahoo.com/news/greg-abbott-compared-effort-understand-025354887.html)
+- Jul 08 - [Earthquakes rattle the South Bay](https://www.yahoo.com/news/earthquakes-rattle-south-bay-213556734.html)
 <!-- feed end -->
