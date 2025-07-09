@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Mikhail Bogdanov relieved of duties as Russian deputy foreign minister](https://www.yahoo.com/news/mikhail-bogdanov-relieved-duties-russian-205142150.html)
 - Jul 09 - [Trump asks Liberian president where he learned English, his country's official language](https://www.yahoo.com/news/trump-asks-liberian-president-where-203720887.html)
 - Jul 09 - [Achtung! Germany's Mercedes, Porsche stung by Trump's auto tariffs](https://finance.yahoo.com/news/achtung-germanys-mercedes-porsche-stung-by-trumps-auto-tariffs-181748357.html)
-- Jul 09 - [A US Navy nuclear-powered attack submarine just made an unprecedented stop. A top admiral says it sent a message.](https://www.yahoo.com/news/us-navy-nuclear-powered-attack-173857612.html)
-- Jul 09 - [Apple’s quiet shake-up could redefine its future](https://finance.yahoo.com/news/apple-quiet-shake-could-redefine-173300172.html)
-- Jul 09 - [Delta passengers were stranded on a tiny island in the middle of the Atlantic for 29 hours after midair engine trouble](https://www.yahoo.com/news/delta-passengers-were-stranded-tiny-152751408.html)
+- Jul 09 - [Broken necks, severe injuries prompt boat exclusion zone at Pensacola Beach Air Show](https://www.yahoo.com/news/broken-necks-severe-injuries-prompt-184006353.html)
+- Jul 09 - [If you want to become a millionaire, here are the 3 ‘magic numbers’ you need to focus on — ignore all the rest](https://finance.yahoo.com/news/want-become-millionaire-3-magic-183100950.html)
 <!-- feed end -->
