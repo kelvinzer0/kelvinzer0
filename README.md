@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Laura Loomer ‘furious’ after aides stopped her from speaking with Trump during Les Miserables performance last month: report](https://www.yahoo.com/news/laura-loomer-furious-aides-stopped-160407985.html)
-- Jul 09 - [X chief Yaccarino steps down after two years](https://finance.yahoo.com/news/x-chief-yaccarino-steps-down-153332263.html)
+- Jul 09 - [Kerr county officials say 'questions are going to be answered' when asked on possible lapses in flood warning notifications](https://www.yahoo.com/news/kerr-county-officials-questions-going-171057542.html)
 - Jul 09 - [Police rescue two children trapped in 117-degree car for 40 minutes](https://www.yahoo.com/news/cops-rescue-toddlers-left-sweltering-144049188.html)
 - Jul 09 - [Biden's former doctor refuses to answer questions in House Republican probe](https://www.yahoo.com/news/bidens-former-doctor-refuses-answer-144209140.html)
+- Jul 09 - [The Real Reason the Supreme Court Defines Anti-LGBTQ+ Beliefs as Religious](https://www.yahoo.com/news/real-reason-supreme-court-defines-140000833.html)
 - Jul 09 - [GOP Senators Stunned by Terrible Rule in Budget Bill They Voted For](https://www.yahoo.com/news/gop-senators-stunned-terrible-rule-133252606.html)
 <!-- feed end -->
