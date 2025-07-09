@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Trump told Putin he would ‘bomb the s--- out of Moscow’ in leaked audio](https://www.yahoo.com/news/trump-told-putin-bomb-moscow-103139074.html)
-- Jul 09 - [Analysis-America's largest power grid is struggling to meet demand from AI](https://finance.yahoo.com/news/analysis-americas-largest-power-grid-102252311.html)
+- Jul 09 - [Georgia mom was stuck commuting 3 hours — until she ‘Googled’ how to fix cars. Now she brings in $440K/year](https://www.yahoo.com/lifestyle/articles/georgia-mom-stuck-commuting-3-103100833.html)
+- Jul 09 - [Mortgage and refinance interest rates today, July 9, 2025: Higher on longer-term loans, unchanged on shorter](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-july-9-2025-100057886.html)
 - Jul 09 - [“I said, ‘Marco, I have the right to do it,’” Trump boasted after commandeering an item from Rubio’s office.](https://www.yahoo.com/news/said-marco-trump-boasted-commandeering-093652633.html)
 - Jul 09 - [The Buffett Indicator Is at Its Highest Level Ever. History Shows Investors Should Brace Themselves for What the Stock Market Might Do Next.](https://finance.yahoo.com/news/buffett-indicator-highest-level-ever-084800691.html)
 - Jul 09 - [Malaysia will not cross "red lines" in U.S. tariff negotiations, minister says](https://www.yahoo.com/news/malaysia-not-cross-red-lines-071406292.html)
