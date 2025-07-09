@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Laura Loomer ‘furious’ after aides stopped her from speaking with Trump during Les Miserables performance last month: report](https://www.yahoo.com/news/laura-loomer-furious-aides-stopped-160407985.html)
+- Jul 09 - [X chief Yaccarino steps down after two years](https://finance.yahoo.com/news/x-chief-yaccarino-steps-down-153332263.html)
+- Jul 09 - [Police rescue two children trapped in 117-degree car for 40 minutes](https://www.yahoo.com/news/cops-rescue-toddlers-left-sweltering-144049188.html)
 - Jul 09 - [Biden's former doctor refuses to answer questions in House Republican probe](https://www.yahoo.com/news/bidens-former-doctor-refuses-answer-144209140.html)
-- Jul 09 - [3 Dividend Kings You’ll Wish You Bought Before 2025 Ends](https://finance.yahoo.com/news/3-dividend-kings-ll-wish-140002779.html)
-- Jul 09 - [Texas governor scolds reporter when asked who to blame for flood response](https://www.yahoo.com/news/texas-governor-scolds-reporter-asked-115332287.html)
-- Jul 09 - [Trump told Putin he would ‘bomb the s--- out of Moscow’ in leaked audio](https://www.yahoo.com/news/trump-told-putin-bomb-moscow-103139074.html)
-- Jul 09 - [Georgia mom was stuck commuting 3 hours — until she ‘Googled’ how to fix cars. Now she brings in $440K/year](https://www.yahoo.com/lifestyle/articles/georgia-mom-stuck-commuting-3-103100833.html)
+- Jul 09 - [GOP Senators Stunned by Terrible Rule in Budget Bill They Voted For](https://www.yahoo.com/news/gop-senators-stunned-terrible-rule-133252606.html)
 <!-- feed end -->
