@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Meta Takes Minority Stake in Maker of Ray-Ban Glasses](https://finance.yahoo.com/video/meta-takes-minority-stake-maker-140107603.html)
+- Jul 09 - [Biden's former doctor refuses to answer questions in House Republican probe](https://www.yahoo.com/news/bidens-former-doctor-refuses-answer-144209140.html)
+- Jul 09 - [3 Dividend Kings You’ll Wish You Bought Before 2025 Ends](https://finance.yahoo.com/news/3-dividend-kings-ll-wish-140002779.html)
+- Jul 09 - [Texas governor scolds reporter when asked who to blame for flood response](https://www.yahoo.com/news/texas-governor-scolds-reporter-asked-115332287.html)
 - Jul 09 - [Trump told Putin he would ‘bomb the s--- out of Moscow’ in leaked audio](https://www.yahoo.com/news/trump-told-putin-bomb-moscow-103139074.html)
 - Jul 09 - [Georgia mom was stuck commuting 3 hours — until she ‘Googled’ how to fix cars. Now she brings in $440K/year](https://www.yahoo.com/lifestyle/articles/georgia-mom-stuck-commuting-3-103100833.html)
-- Jul 09 - [“I said, ‘Marco, I have the right to do it,’” Trump boasted after commandeering an item from Rubio’s office.](https://www.yahoo.com/news/said-marco-trump-boasted-commandeering-093652633.html)
-- Jul 09 - [Malaysia will not cross "red lines" in U.S. tariff negotiations, minister says](https://www.yahoo.com/news/malaysia-not-cross-red-lines-071406292.html)
 <!-- feed end -->
