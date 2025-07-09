@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [FTSE 100 LIVE: Stocks rise and US copper prices hit record high as Donald Trump threatens 50% tariff](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-copper-price-record-trump-tariffs-082022101.html)
+- Jul 09 - [Malaysia will not cross "red lines" in U.S. tariff negotiations, minister says](https://www.yahoo.com/news/malaysia-not-cross-red-lines-071406292.html)
+- Jul 09 - [Yemen to execute Indian nurse on death row - can she be saved?](https://www.yahoo.com/news/yemen-execute-indian-nurse-death-065209307.html)
 - Jul 09 - ['Fortress Russia' has confiscated $50 billion in assets over three years, Kommersant says](https://finance.yahoo.com/news/fortress-russia-confiscated-50-billion-063204888.html)
-- Jul 09 - [What are branded residences and who’s buying them?](https://uk.finance.yahoo.com/news/branded-residences-property-explained-050050390.html)
-- Jul 09 - [European intelligence officials warn that a Russian sabotage campaign is escalating](https://www.yahoo.com/news/european-intelligence-officials-warn-russian-040050921.html)
 - Jul 09 - [Greg Abbott compared the effort to understand why the death toll was so high to the losers of a football game.](https://www.yahoo.com/news/greg-abbott-compared-effort-understand-025354887.html)
-- Jul 08 - [Earthquakes rattle the South Bay](https://www.yahoo.com/news/earthquakes-rattle-south-bay-213556734.html)
 <!-- feed end -->
