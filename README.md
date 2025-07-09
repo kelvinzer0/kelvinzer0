@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 09 - [Achtung! Germany's Mercedes, Porsche stung by Trump's auto tariffs](https://finance.yahoo.com/news/achtung-germanys-mercedes-porsche-stung-by-trumps-auto-tariffs-181748357.html)
+- Jul 09 - [Yemen to execute Indian nurse on death row - can she be saved?](https://www.yahoo.com/news/yemen-execute-indian-nurse-death-065209307.html)
 - Jul 09 - [A US Navy nuclear-powered attack submarine just made an unprecedented stop. A top admiral says it sent a message.](https://www.yahoo.com/news/us-navy-nuclear-powered-attack-173857612.html)
-- Jul 09 - [Police rescue two children trapped in 117-degree car for 40 minutes](https://www.yahoo.com/news/cops-rescue-toddlers-left-sweltering-144049188.html)
-- Jul 09 - [Biden's former doctor refuses to answer questions in House Republican probe](https://www.yahoo.com/news/bidens-former-doctor-refuses-answer-144209140.html)
-- Jul 09 - [GOP Senators Stunned by Terrible Rule in Budget Bill They Voted For](https://www.yahoo.com/news/gop-senators-stunned-terrible-rule-133252606.html)
-- Jul 09 - [Trump told Putin he would ‘bomb the s--- out of Moscow’ in leaked audio](https://www.yahoo.com/news/trump-told-putin-bomb-moscow-103139074.html)
+- Jul 09 - [Apple’s quiet shake-up could redefine its future](https://finance.yahoo.com/news/apple-quiet-shake-could-redefine-173300172.html)
+- Jul 09 - [‘Drunk’ United Airlines pilot was forced into rehab for alcoholism. He actually had a concussion, lawsuit claims](https://www.yahoo.com/news/drunk-united-airlines-pilot-forced-160926895.html)
 <!-- feed end -->
