@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [China's AI Bet Rises From the Gobi Desert](https://finance.yahoo.com/video/chinas-ai-bet-rises-gobi-041850919.html)
 - Jul 09 - [European intelligence officials warn that a Russian sabotage campaign is escalating](https://www.yahoo.com/news/european-intelligence-officials-warn-russian-040050921.html)
-- Jul 09 - [Delta Flight Forced to Make Emergency Landing for Increasingly Common Reason](https://www.yahoo.com/news/delta-flight-forced-emergency-landing-013258651.html)
+- Jul 09 - [Two former officials, including the FBI’s own former director, are reportedly under investigation over their ties to the Russia interference probe.](https://www.yahoo.com/news/two-former-officials-including-fbi-034409957.html)
+- Jul 09 - [Firefighters' Sweet Way of Comforting Dogs Involved in Car Crash Is Touching Hearts](https://www.yahoo.com/lifestyle/articles/firefighters-sweet-way-comforting-dogs-013200393.html)
 - Jul 09 - [Iranian mother released from ICE detention after Republican House Majority Leader intervenes](https://www.yahoo.com/news/iranian-mother-released-ice-detention-012235574.html)
 - Jul 09 - [A deadly 1987 flood scarred the same Texas county that is reeling through another disaster](https://www.yahoo.com/news/deadly-1987-flood-scarred-same-011753848.html)
 <!-- feed end -->
