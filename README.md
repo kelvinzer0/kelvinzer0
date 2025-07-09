@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [US scrutinizes Chinese AI for ideological bias, memo shows](https://www.yahoo.com/news/us-scrutinizes-chinese-ai-ideological-175832616.html)
-- Jul 09 - ['Amazing woman': Missing paddleboarder found dead, police search for killer](https://www.yahoo.com/news/missing-paddleboarder-murdered-suspect-unknown-182201788.html)
+- Jul 09 - [A US Navy nuclear-powered attack submarine just made an unprecedented stop. A top admiral says it sent a message.](https://www.yahoo.com/news/us-navy-nuclear-powered-attack-173857612.html)
 - Jul 09 - [Police rescue two children trapped in 117-degree car for 40 minutes](https://www.yahoo.com/news/cops-rescue-toddlers-left-sweltering-144049188.html)
 - Jul 09 - [Biden's former doctor refuses to answer questions in House Republican probe](https://www.yahoo.com/news/bidens-former-doctor-refuses-answer-144209140.html)
 - Jul 09 - [GOP Senators Stunned by Terrible Rule in Budget Bill They Voted For](https://www.yahoo.com/news/gop-senators-stunned-terrible-rule-133252606.html)
+- Jul 09 - [Trump told Putin he would ‘bomb the s--- out of Moscow’ in leaked audio](https://www.yahoo.com/news/trump-told-putin-bomb-moscow-103139074.html)
 <!-- feed end -->
