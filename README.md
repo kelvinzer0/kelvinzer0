@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 08 - [King Charles hails new era of Franco-British cooperation at Windsor banquet for President Macron](https://www.yahoo.com/news/king-charles-hails-era-franco-223342191.html)
+- Jul 09 - [A deadly 1987 flood scarred the same Texas county that is reeling through another disaster](https://www.yahoo.com/news/deadly-1987-flood-scarred-same-011753848.html)
 - Jul 08 - [Second defendant pleads guilty in Minnesota voter fraud case](https://www.yahoo.com/news/second-defendant-pleads-guilty-minnesota-205910758.html)
 - Jul 08 - [Hostages released from Gaza detail sexual violence as Israeli report concludes Hamas used it as ‘weapon of war’ on October 7](https://www.yahoo.com/news/hostages-released-gaza-detail-sexual-185927118.html)
-- Jul 08 - [Hundreds of small quakes shake Mount Rainier in unusual seismic swarm](https://www.yahoo.com/news/more-400-small-quakes-shake-181238416.html)
-- Jul 08 - [‘The View’ Texas Flood Debate Gets Heated After Sunny Hostin Points Out This “Could Have Been Avoided”: “The Floods Don’t Care Who You Voted For”](https://www.yahoo.com/news/view-texas-flood-debate-gets-170316324.html)
+- Jul 08 - [Mary Lou Retton’s shocking mugshot, bodycam footage of DUI arrest released](https://www.yahoo.com/entertainment/articles/mary-lou-retton-shocking-mugshot-184724355.html)
+- Jul 08 - [J.J Watt Has 1-Word Message for U.S. Coast Guard Rescue Swimmer](https://www.yahoo.com/news/j-j-watt-1-word-181213799.html)
 <!-- feed end -->
