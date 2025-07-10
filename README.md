@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Kristi Noem claims 1 in 6 survivors of Lahaina wildfires were forced to trade sexual favors for supplies](https://www.yahoo.com/news/kristi-noem-claims-1-6-002753344.html)
+- Jul 10 - [India automaker Mahindra, parts maker Minda eye local magnet production, sources say](https://finance.yahoo.com/news/india-automaker-mahindra-parts-maker-093403593.html)
 - Jul 10 - [Nation’s largest teachers’ union votes to endorse proposal that would cut ties with the Anti-Defamation League](https://www.yahoo.com/news/nation-largest-teachers-union-votes-005646884.html)
 - Jul 10 - [An Iranian official warned Wednesday that “Trump can no longer sunbathe” because a small drone might strike him “in the navel.”](https://www.yahoo.com/news/iranian-official-warned-wednesday-trump-004354338.html)
 - Jul 10 - [George Santos Makes Eyebrow-Raising Claim About Trump Before Going To Jail](https://www.yahoo.com/news/george-santos-makes-eyebrow-raising-003530278.html)
-- Jul 09 - [The GOP’s New Lie After Cutting $1 Trillion From Medicaid: We Gave It More Money!](https://www.yahoo.com/news/gop-lie-cutting-1-trillion-205343956.html)
+- Jul 09 - [Six Flags Announces Closure of Another Iconic Park After 50 Years of Operation](https://www.yahoo.com/news/six-flags-announces-closure-another-222710407.html)
 <!-- feed end -->
