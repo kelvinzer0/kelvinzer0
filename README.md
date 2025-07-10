@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [European leaders urge private investment in Ukraine even as war is ongoing, AP explains](https://www.yahoo.com/news/european-leaders-urge-private-investment-173551261.html)
-- Jul 10 - [CNN reported that Kristi Noem’s demand to sign off on FEMA decisions held up the sending of a top rescue team.](https://www.yahoo.com/news/cnn-reported-kristi-noem-demand-155047696.html)
+- Jul 10 - [UK and France agree to send some migrants arriving in Britain by boat back to France](https://www.yahoo.com/news/uk-france-agree-send-migrants-200232380.html)
+- Jul 10 - [Texas flood survivors captured their terrifying ordeal in photos and video](https://www.yahoo.com/news/texas-flood-survivors-captured-terrifying-195333730.html)
+- Jul 10 - [Casey Anthony Resurfaces With Mystery Man in New Hampshire Nearly 15 Years After Infamous Murder Trial](https://www.yahoo.com/entertainment/articles/casey-anthony-resurfaces-mystery-man-153148794.html)
 - Jul 10 - [Stunning images: Stranded drivers rescued, roads turned into rivers as flash flooding hits Mass.](https://www.yahoo.com/news/stunning-images-stranded-drivers-rescued-143211889.html)
 - Jul 10 - [Ukrainian spy colonel gunned down in Kyiv, assailant flees](https://www.yahoo.com/news/ukrainian-spy-colonel-gunned-down-142245168.html)
-- Jul 10 - [Anjani Sinha was told to “shape up and do some homework” as he struggled to answer questions about the country.](https://www.yahoo.com/news/anjani-sinha-told-shape-homework-130749293.html)
 <!-- feed end -->
