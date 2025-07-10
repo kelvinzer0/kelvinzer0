@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Angela Paxton files for divorce from Texas Attorney General Ken Paxton after 38 years of marriage](https://www.yahoo.com/news/angela-paxton-files-divorce-texas-200902127.html)
 - Jul 10 - [UK and France agree to send some migrants arriving in Britain by boat back to France](https://www.yahoo.com/news/uk-france-agree-send-migrants-200232380.html)
-- Jul 10 - [Texas flood survivors captured their terrifying ordeal in photos and video](https://www.yahoo.com/news/texas-flood-survivors-captured-terrifying-195333730.html)
-- Jul 10 - [Casey Anthony Resurfaces With Mystery Man in New Hampshire Nearly 15 Years After Infamous Murder Trial](https://www.yahoo.com/entertainment/articles/casey-anthony-resurfaces-mystery-man-153148794.html)
-- Jul 10 - [Stunning images: Stranded drivers rescued, roads turned into rivers as flash flooding hits Mass.](https://www.yahoo.com/news/stunning-images-stranded-drivers-rescued-143211889.html)
-- Jul 10 - [Ukrainian spy colonel gunned down in Kyiv, assailant flees](https://www.yahoo.com/news/ukrainian-spy-colonel-gunned-down-142245168.html)
+- Jul 10 - [Ford recalls over 850,000 cars in the US due to potential fuel pump failure](https://autos.yahoo.com/articles/ford-recalls-over-850-000-183040108.html)
+- Jul 10 - [Alligator Alcatraz detention center in Florida: How many pythons are in the Everglades?](https://www.yahoo.com/news/alligator-alcatraz-detention-center-florida-172310237.html)
+- Jul 10 - [Trump installs massive new American flags at the White House - and they don't cost taxpayers a penny](https://www.yahoo.com/news/trump-installs-massive-american-flags-171835989.html)
 <!-- feed end -->
