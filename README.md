@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Angela Paxton files for divorce from Texas Attorney General Ken Paxton after 38 years of marriage](https://www.yahoo.com/news/angela-paxton-files-divorce-texas-200902127.html)
-- Jul 10 - [Possible immigration raid escalates, tear gas deployed at Camarillo farm](https://www.yahoo.com/news/possible-immigration-raid-escalates-tear-195834431.html)
-- Jul 10 - [The MAGA actor who played Superman on the ’90s TV show “Lois & Clark” is not happy with James Gunn calling the iconic character an “immigrant.”](https://www.yahoo.com/news/maga-actor-played-superman-90s-185526605.html)
+- Jul 10 - [Study exposes ‘alarming’ inequalities among child deaths in intensive care](https://www.yahoo.com/news/study-exposes-alarming-inequalities-among-223039847.html)
+- Jul 10 - [3 Birth Months Most Spiritually Connected to the Moon](https://www.yahoo.com/lifestyle/articles/3-birth-months-most-spiritually-204311209.html)
+- Jul 10 - [As Trump Calls For 3-Percentage Point Rate Cut, 'Too Late' Jerome Powell To Resign, June Fed Minutes Show 'Uncertainty' Reigns Supreme](https://finance.yahoo.com/news/trump-calls-3-percentage-point-183125044.html)
 - Jul 10 - [Ford recalls over 850,000 cars in the US due to potential fuel pump failure](https://autos.yahoo.com/articles/ford-recalls-over-850-000-183040108.html)
-- Jul 10 - [Person apprehended after unauthorized perimeter breach at Joint Base Langley-Eustis](https://www.yahoo.com/news/person-apprehended-unauthorized-perimeter-breach-153319179.html)
+- Jul 10 - [Justice Department efforts to strip citizenship from naturalized Americans likely violate constitutional rights](https://www.yahoo.com/news/justice-department-efforts-strip-citizenship-172221215.html)
 <!-- feed end -->
