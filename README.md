@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [California has an idea to counter Trump’s megabill: Roll back environmental laws](https://www.yahoo.com/news/california-idea-counter-trump-megabill-010934185.html)
 - Jul 10 - [An Iranian official warned Wednesday that “Trump can no longer sunbathe” because a small drone might strike him “in the navel.”](https://www.yahoo.com/news/iranian-official-warned-wednesday-trump-004354338.html)
 - Jul 10 - [George Santos Makes Eyebrow-Raising Claim About Trump Before Going To Jail](https://www.yahoo.com/news/george-santos-makes-eyebrow-raising-003530278.html)
-- Jul 09 - [Body of 9-month-old found in search for flood victims | Elizabeth Vargas Reports](https://www.yahoo.com/news/body-9-month-old-found-232400181.html)
+- Jul 09 - [Federal authorities end Idaho search for suspect in kids' deaths after finding look-alike hiker](https://www.yahoo.com/news/federal-authorities-end-idaho-search-235416016.html)
 - Jul 09 - [Trump asks Liberian president where he learned English, his country's official language](https://www.yahoo.com/news/trump-asks-liberian-president-where-203720887.html)
+- Jul 09 - [Greg Abbott Was Asked Who's To Blame For The Texas Floods, And His Response Is Going Viral For Being "Tone-Deaf" And "Insane"](https://www.yahoo.com/news/greg-abbott-asked-whos-blame-190307692.html)
 <!-- feed end -->
