@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [New ICE pact could have Florida jail staff driving immigrants to Alligator Alcatraz](https://www.yahoo.com/news/ice-pact-could-florida-jail-162100615.html)
+- Jul 10 - [European leaders urge private investment in Ukraine even as war is ongoing, AP explains](https://www.yahoo.com/news/european-leaders-urge-private-investment-173551261.html)
 - Jul 10 - [Stunning images: Stranded drivers rescued, roads turned into rivers as flash flooding hits Mass.](https://www.yahoo.com/news/stunning-images-stranded-drivers-rescued-143211889.html)
-- Jul 10 - [Ukrainian spy colonel gunned down in Kyiv](https://www.yahoo.com/news/ukrainian-spy-colonel-gunned-down-142245168.html)
-- Jul 10 - [Anjani Sinha was told to “shape up and do some homework” as he struggled to answer questions about the country.](https://www.yahoo.com/news/anjani-sinha-told-shape-homework-130749293.html)
+- Jul 10 - [Ukrainian spy colonel gunned down in Kyiv, assailant flees](https://www.yahoo.com/news/ukrainian-spy-colonel-gunned-down-142245168.html)
 - Jul 10 - [Eating This Fruit Could Add Years to Your Life, According to Dietitians](https://www.yahoo.com/lifestyle/articles/eating-fruit-could-add-years-130000525.html)
+- Jul 10 - [Scientists Found a Place Where the Earth’s Layers Are Upside Down](https://www.yahoo.com/news/scientists-found-place-where-earth-123000152.html)
 <!-- feed end -->
