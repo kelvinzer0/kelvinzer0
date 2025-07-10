@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Update on Border Protection Beagle Who Was Kicked by Passenger Has People Emotional](https://www.yahoo.com/lifestyle/articles/border-protection-beagle-kicked-passenger-021000323.html)
+- Jul 10 - [Nation’s largest teachers’ union votes to endorse proposal that would cut ties with the Anti-Defamation League](https://www.yahoo.com/news/nation-largest-teachers-union-votes-005646884.html)
 - Jul 10 - [An Iranian official warned Wednesday that “Trump can no longer sunbathe” because a small drone might strike him “in the navel.”](https://www.yahoo.com/news/iranian-official-warned-wednesday-trump-004354338.html)
 - Jul 10 - [George Santos Makes Eyebrow-Raising Claim About Trump Before Going To Jail](https://www.yahoo.com/news/george-santos-makes-eyebrow-raising-003530278.html)
-- Jul 09 - [Six Flags Announces Closure of Another Iconic Park After 50 Years of Operation](https://www.yahoo.com/news/six-flags-announces-closure-another-222710407.html)
 - Jul 09 - [Utah judge schedules execution by firing squad for a man with dementia](https://www.yahoo.com/news/utah-judge-schedules-execution-firing-222414414.html)
+- Jul 09 - [Mikhail Bogdanov relieved of duties as Russian deputy foreign minister](https://www.yahoo.com/news/mikhail-bogdanov-relieved-duties-russian-205142150.html)
 <!-- feed end -->
