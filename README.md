@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Gaza truce possible in one or two weeks but not in a day, Israeli official says](https://www.yahoo.com/news/gaza-truce-possible-one-two-040627183.html)
+- Jul 10 - [Israel's Bedouin communities use solar energy to stake claim to land](https://www.yahoo.com/news/israels-bedouin-communities-solar-energy-032131098.html)
 - Jul 10 - [An Iranian official warned Wednesday that “Trump can no longer sunbathe” because a small drone might strike him “in the navel.”](https://www.yahoo.com/news/iranian-official-warned-wednesday-trump-004354338.html)
 - Jul 10 - [George Santos Makes Eyebrow-Raising Claim About Trump Before Going To Jail](https://www.yahoo.com/news/george-santos-makes-eyebrow-raising-003530278.html)
-- Jul 09 - [Federal authorities end Idaho search for suspect in kids' deaths after finding look-alike hiker](https://www.yahoo.com/news/federal-authorities-end-idaho-search-235416016.html)
-- Jul 09 - [Trump asks Liberian president where he learned English, his country's official language](https://www.yahoo.com/news/trump-asks-liberian-president-where-203720887.html)
-- Jul 09 - [Greg Abbott Was Asked Who's To Blame For The Texas Floods, And His Response Is Going Viral For Being "Tone-Deaf" And "Insane"](https://www.yahoo.com/news/greg-abbott-asked-whos-blame-190307692.html)
+- Jul 09 - [1 Magnificent High-Yield Dividend Stock Down 50% to Buy and Hold Forever](https://finance.yahoo.com/news/1-magnificent-high-yield-dividend-224900755.html)
 <!-- feed end -->
