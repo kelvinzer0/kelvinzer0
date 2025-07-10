@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Top Penny Stocks To Watch In July 2025](https://finance.yahoo.com/news/top-penny-stocks-watch-july-120501395.html)
+- Jul 10 - [Israeli settlers set fires near West Bank town's ancient church and cemetery](https://www.yahoo.com/news/israeli-settlers-set-fires-near-141137420.html)
+- Jul 10 - ['Trump was right' - John Kerry says Democrats allowed migrant 'siege' of US border](https://www.yahoo.com/news/trump-migration-john-kerry-says-060029585.html)
 - Jul 10 - [Healthcare expert warns of coverage shock under 'One Big Beautiful Bill'](https://finance.yahoo.com/news/healthcare-expert-warns-of-coverage-shock-under-one-big-beautiful-bill-110050733.html)
-- Jul 10 - [Top Ukrainian spy shot dead with silenced pistol in Kyiv](https://www.yahoo.com/news/ukrainian-spy-assassinated-gunman-kyiv-103218795.html)
+- Jul 10 - [Where does Trump's approval rating stand after tax bill passes? See the polls](https://www.yahoo.com/news/where-does-trumps-approval-rating-020757046.html)
 - Jul 10 - [Largest quake yet hits WA's Mount Rainier in ongoing ‘earthquake swarm’](https://www.yahoo.com/news/largest-quake-yet-hits-mount-010417406.html)
-- Jul 10 - [Nation’s largest teachers’ union votes to endorse proposal that would cut ties with the Anti-Defamation League](https://www.yahoo.com/news/nation-largest-teachers-union-votes-005646884.html)
 <!-- feed end -->
