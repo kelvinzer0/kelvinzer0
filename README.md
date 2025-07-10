@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [AI Capex Buildup Not Going Anywhere: UBS's Hoffmann-Burchardi](https://finance.yahoo.com/video/ai-capex-buildup-not-going-155504389.html)
+- Jul 10 - [Man seriously injured in car and bike crash](https://www.yahoo.com/news/man-seriously-injured-car-bike-151810114.html)
 - Jul 10 - [Stunning images: Stranded drivers rescued, roads turned into rivers as flash flooding hits Mass.](https://www.yahoo.com/news/stunning-images-stranded-drivers-rescued-143211889.html)
-- Jul 10 - [TSMC Sales Surge by 39% as AI Spending Boom Persists](https://finance.yahoo.com/video/tsmc-sales-surge-39-ai-142914665.html)
 - Jul 10 - [Ukrainian spy colonel gunned down in Kyiv](https://www.yahoo.com/news/ukrainian-spy-colonel-gunned-down-142245168.html)
-- Jul 10 - ['Trump was right' - John Kerry says Democrats allowed migrant 'siege' of US border](https://www.yahoo.com/news/trump-migration-john-kerry-says-060029585.html)
-- Jul 10 - [He seeded clouds over Texas. Then came the conspiracy theories.](https://www.yahoo.com/news/seeded-clouds-over-texas-then-122439482.html)
+- Jul 10 - [Donald Trump’s rate-cut wish may finally be inching closer, as Fed meeting notes reveal a ‘master class’ in indecision](https://finance.yahoo.com/news/masterful-inactivity-reigned-fed-latest-102937118.html)
 <!-- feed end -->
