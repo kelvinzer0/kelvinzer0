@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 10 - [Angela Paxton files for divorce from Texas Attorney General Ken Paxton after 38 years of marriage](https://www.yahoo.com/news/angela-paxton-files-divorce-texas-200902127.html)
-- Jul 10 - [UK and France agree to send some migrants arriving in Britain by boat back to France](https://www.yahoo.com/news/uk-france-agree-send-migrants-200232380.html)
+- Jul 10 - [Possible immigration raid escalates, tear gas deployed at Camarillo farm](https://www.yahoo.com/news/possible-immigration-raid-escalates-tear-195834431.html)
+- Jul 10 - [The MAGA actor who played Superman on the ’90s TV show “Lois & Clark” is not happy with James Gunn calling the iconic character an “immigrant.”](https://www.yahoo.com/news/maga-actor-played-superman-90s-185526605.html)
 - Jul 10 - [Ford recalls over 850,000 cars in the US due to potential fuel pump failure](https://autos.yahoo.com/articles/ford-recalls-over-850-000-183040108.html)
-- Jul 10 - [Alligator Alcatraz detention center in Florida: How many pythons are in the Everglades?](https://www.yahoo.com/news/alligator-alcatraz-detention-center-florida-172310237.html)
-- Jul 10 - [Trump installs massive new American flags at the White House - and they don't cost taxpayers a penny](https://www.yahoo.com/news/trump-installs-massive-american-flags-171835989.html)
+- Jul 10 - [Person apprehended after unauthorized perimeter breach at Joint Base Langley-Eustis](https://www.yahoo.com/news/person-apprehended-unauthorized-perimeter-breach-153319179.html)
 <!-- feed end -->
