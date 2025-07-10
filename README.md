@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 10 - [Top Penny Stocks To Watch In July 2025](https://finance.yahoo.com/news/top-penny-stocks-watch-july-120501395.html)
 - Jul 10 - [Healthcare expert warns of coverage shock under 'One Big Beautiful Bill'](https://finance.yahoo.com/news/healthcare-expert-warns-of-coverage-shock-under-one-big-beautiful-bill-110050733.html)
 - Jul 10 - [Top Ukrainian spy shot dead with silenced pistol in Kyiv](https://www.yahoo.com/news/ukrainian-spy-assassinated-gunman-kyiv-103218795.html)
-- Jul 10 - [I'm 54 with zero savings and $90K in debt — how do I admit to my kid that I can't afford to pay for college?](https://www.yahoo.com/lifestyle/articles/im-54-zero-savings-90k-103000106.html)
-- Jul 10 - [Exclusive-US-owned company seized to feed Russia planning to supply China, North Korea instead](https://finance.yahoo.com/news/exclusive-us-owned-company-seized-070220342.html)
+- Jul 10 - [Largest quake yet hits WA's Mount Rainier in ongoing ‘earthquake swarm’](https://www.yahoo.com/news/largest-quake-yet-hits-mount-010417406.html)
 - Jul 10 - [Nation’s largest teachers’ union votes to endorse proposal that would cut ties with the Anti-Defamation League](https://www.yahoo.com/news/nation-largest-teachers-union-votes-005646884.html)
 <!-- feed end -->
