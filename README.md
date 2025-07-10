@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [AI Capex Buildup Not Going Anywhere: UBS's Hoffmann-Burchardi](https://finance.yahoo.com/video/ai-capex-buildup-not-going-155504389.html)
-- Jul 10 - [Man seriously injured in car and bike crash](https://www.yahoo.com/news/man-seriously-injured-car-bike-151810114.html)
+- Jul 10 - [New ICE pact could have Florida jail staff driving immigrants to Alligator Alcatraz](https://www.yahoo.com/news/ice-pact-could-florida-jail-162100615.html)
 - Jul 10 - [Stunning images: Stranded drivers rescued, roads turned into rivers as flash flooding hits Mass.](https://www.yahoo.com/news/stunning-images-stranded-drivers-rescued-143211889.html)
 - Jul 10 - [Ukrainian spy colonel gunned down in Kyiv](https://www.yahoo.com/news/ukrainian-spy-colonel-gunned-down-142245168.html)
-- Jul 10 - [Donald Trump’s rate-cut wish may finally be inching closer, as Fed meeting notes reveal a ‘master class’ in indecision](https://finance.yahoo.com/news/masterful-inactivity-reigned-fed-latest-102937118.html)
+- Jul 10 - [Anjani Sinha was told to “shape up and do some homework” as he struggled to answer questions about the country.](https://www.yahoo.com/news/anjani-sinha-told-shape-homework-130749293.html)
+- Jul 10 - [Eating This Fruit Could Add Years to Your Life, According to Dietitians](https://www.yahoo.com/lifestyle/articles/eating-fruit-could-add-years-130000525.html)
 <!-- feed end -->
