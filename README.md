@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Best time to see spectacular orange ‘buck moon’ over UK skies](https://www.yahoo.com/news/buck-moon-july-orange-when-see-where-uk-092202212.html)
-- Jul 10 - [1 Artificial Intelligence (AI) Stock to Buy Before It Soars to $10 Trillion, According to a Wall Street Analyst (Hint: Not Apple)](https://finance.yahoo.com/news/1-artificial-intelligence-ai-stock-072100243.html)
-- Jul 10 - [Kristi Noem claims 1 in 6 survivors of Lahaina wildfires were forced to trade sexual favors for supplies](https://www.yahoo.com/news/kristi-noem-claims-1-6-002753344.html)
-- Jul 10 - [Wordle hints today for #1,482: Clues and answer for Thursday, July 10](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1482-clues-and-answer-for-thursday-july-10-040136515.html)
+- Jul 10 - [Healthcare expert warns of coverage shock under 'One Big Beautiful Bill'](https://finance.yahoo.com/news/healthcare-expert-warns-of-coverage-shock-under-one-big-beautiful-bill-110050733.html)
+- Jul 10 - [Top Ukrainian spy shot dead with silenced pistol in Kyiv](https://www.yahoo.com/news/ukrainian-spy-assassinated-gunman-kyiv-103218795.html)
+- Jul 10 - [I'm 54 with zero savings and $90K in debt — how do I admit to my kid that I can't afford to pay for college?](https://www.yahoo.com/lifestyle/articles/im-54-zero-savings-90k-103000106.html)
+- Jul 10 - [Exclusive-US-owned company seized to feed Russia planning to supply China, North Korea instead](https://finance.yahoo.com/news/exclusive-us-owned-company-seized-070220342.html)
 - Jul 10 - [Nation’s largest teachers’ union votes to endorse proposal that would cut ties with the Anti-Defamation League](https://www.yahoo.com/news/nation-largest-teachers-union-votes-005646884.html)
 <!-- feed end -->
