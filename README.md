@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 09 - [Zohran Mamdani, in dig at Mayor Adams, unveils his (700-plus) SAT II scores](https://www.yahoo.com/news/zohran-mamdani-dig-mayor-adams-230400782.html)
+- Jul 10 - [California has an idea to counter Trump’s megabill: Roll back environmental laws](https://www.yahoo.com/news/california-idea-counter-trump-megabill-010934185.html)
+- Jul 10 - [An Iranian official warned Wednesday that “Trump can no longer sunbathe” because a small drone might strike him “in the navel.”](https://www.yahoo.com/news/iranian-official-warned-wednesday-trump-004354338.html)
+- Jul 10 - [George Santos Makes Eyebrow-Raising Claim About Trump Before Going To Jail](https://www.yahoo.com/news/george-santos-makes-eyebrow-raising-003530278.html)
+- Jul 09 - [Body of 9-month-old found in search for flood victims | Elizabeth Vargas Reports](https://www.yahoo.com/news/body-9-month-old-found-232400181.html)
 - Jul 09 - [Trump asks Liberian president where he learned English, his country's official language](https://www.yahoo.com/news/trump-asks-liberian-president-where-203720887.html)
-- Jul 09 - [Achtung! Germany's Mercedes, Porsche stung by Trump's auto tariffs](https://finance.yahoo.com/news/achtung-germanys-mercedes-porsche-stung-by-trumps-auto-tariffs-181748357.html)
-- Jul 09 - [Broken necks, severe injuries prompt boat exclusion zone at Pensacola Beach Air Show](https://www.yahoo.com/news/broken-necks-severe-injuries-prompt-184006353.html)
-- Jul 09 - [Delta passengers were stranded on a tiny island in the middle of the Atlantic for 29 hours after midair engine trouble](https://www.yahoo.com/news/delta-passengers-were-stranded-tiny-152751408.html)
 <!-- feed end -->
