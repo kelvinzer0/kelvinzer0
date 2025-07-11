@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [China offers to help resolve Thailand, Cambodia border dispute](https://www.yahoo.com/news/china-offers-help-resolve-thailand-040901596.html)
-- Jul 10 - [The Pentagon is taking a big stake in a rare earth mining company, sending the stock up 60%](https://finance.yahoo.com/news/pentagon-taking-big-stake-rare-221823226.html)
+- Jul 11 - [Eight-hour police standoff ends with man taking his own life](https://www.yahoo.com/news/eight-hour-police-standoff-ends-025755330.html)
+- Jul 10 - [Israel says Iran could reach enriched uranium at a nuclear site hit by US](https://www.yahoo.com/news/israel-says-iran-could-reach-225703693.html)
 - Jul 10 - [Missouri governor repeals paid sick leave law approved last year by voters](https://www.yahoo.com/news/missouri-governor-repeals-paid-sick-214901232.html)
 - Jul 10 - [Trump hands Congress a ‘weapon’ he once warned would do ‘grave damage’ to presidency](https://www.yahoo.com/news/trump-u-turn-white-house-211043204.html)
 - Jul 10 - [A small Texas community where everyone survived flooding has sirens that warned them](https://www.yahoo.com/news/small-texas-community-where-everyone-211000607.html)
