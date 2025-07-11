@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 10 - [Study exposes ‘alarming’ inequalities among child deaths in intensive care](https://www.yahoo.com/news/study-exposes-alarming-inequalities-among-223039847.html)
-- Jul 10 - [3 Birth Months Most Spiritually Connected to the Moon](https://www.yahoo.com/lifestyle/articles/3-birth-months-most-spiritually-204311209.html)
-- Jul 10 - [As Trump Calls For 3-Percentage Point Rate Cut, 'Too Late' Jerome Powell To Resign, June Fed Minutes Show 'Uncertainty' Reigns Supreme](https://finance.yahoo.com/news/trump-calls-3-percentage-point-183125044.html)
-- Jul 10 - [Ford recalls over 850,000 cars in the US due to potential fuel pump failure](https://autos.yahoo.com/articles/ford-recalls-over-850-000-183040108.html)
+- Jul 10 - [Missouri governor repeals paid sick leave law approved last year by voters](https://www.yahoo.com/news/missouri-governor-repeals-paid-sick-214901232.html)
+- Jul 10 - [Trump hands Congress a ‘weapon’ he once warned would do ‘grave damage’ to presidency](https://www.yahoo.com/news/trump-u-turn-white-house-211043204.html)
+- Jul 10 - [The White House Posted A Video Of The New American Flags They Put Up, And People Are Divided About The Way It Looks](https://www.yahoo.com/news/white-house-posted-video-american-194848915.html)
+- Jul 10 - [Jamie Dimon gets real with Europe about shrinking to just 65% of American GDP over 10-15 years: ‘That’s not good’](https://finance.yahoo.com/news/jamie-dimon-gets-real-europe-191723906.html)
 - Jul 10 - [Justice Department efforts to strip citizenship from naturalized Americans likely violate constitutional rights](https://www.yahoo.com/news/justice-department-efforts-strip-citizenship-172221215.html)
 <!-- feed end -->
