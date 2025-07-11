@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Horse stable and residential buildings hit in latest Russian drone strike on Ukraine city of Odesa](https://www.yahoo.com/news/horse-stable-residential-buildings-hit-213422171.html)
-- Jul 11 - [Police pushing ‘safe exchange zones’ amid dozens of Facebook Marketplace thefts](https://www.yahoo.com/news/police-pushing-safe-exchange-zones-210940910.html)
-- Jul 11 - [India finds engine switch movement in fatal Air India crash, no immediate action for Boeing or GE](https://www.yahoo.com/news/india-finds-engine-switch-movement-202918762.html)
+- Jul 11 - [Severe thunderstom warning issued for parts of Massachusetts](https://www.yahoo.com/news/severe-thunderstom-warning-issued-parts-221211188.html)
+- Jul 11 - [Man sentenced to life in prison for killing 83-year-old man in Fayette County](https://www.yahoo.com/news/man-sentenced-life-prison-killing-221019208.html)
+- Jul 11 - [The president did not like the question asked after meeting with Texas officials and victims.](https://www.yahoo.com/news/president-did-not-asked-meeting-215436240.html)
+- Jul 11 - [Air India crash report shows pilot confusion over engine switch movement](https://www.yahoo.com/news/india-finds-engine-switch-movement-202918762.html)
 - Jul 11 - [Georgia Republican apologizes for $140M Ponzi scheme as judge freezes assets](https://finance.yahoo.com/news/georgia-republican-apologizes-140m-ponzi-202551634.html)
-- Jul 11 - [One California worker dead, hundreds arrested, after cannabis farm raid](https://www.yahoo.com/news/one-california-worker-dead-hundreds-202039951.html)
 <!-- feed end -->
