@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [US senators warn Nvidia CEO about upcoming China trip](https://finance.yahoo.com/news/us-senators-warn-nvidia-ceo-190255991.html)
-- Jul 11 - [Dan Bongino ‘may step down from FBI’](https://www.yahoo.com/news/dan-bongino-may-step-down-185047590.html)
-- Jul 11 - [Man dies after medical incident leads to crash in Rochester](https://www.yahoo.com/news/man-dies-medical-incident-leads-183534658.html)
 - Jul 11 - [Why bitcoin will hit $120k 'very quickly'](https://finance.yahoo.com/video/why-bitcoin-hit-120k-very-164500722.html)
-- Jul 11 - [Wildfire smoke may follow storms, severe weather in eastern US](https://www.yahoo.com/news/wildfire-smoke-may-storms-severe-161326488.html)
+- Jul 11 - [Atlanta man gets more than 150 years in prison for starving daughter and abusing other children](https://www.yahoo.com/news/atlanta-man-gets-more-150-155918383.html)
+- Jul 11 - [China’s electric car revolution hammers demand for oil](https://finance.yahoo.com/news/china-electric-car-revolution-hammers-155408191.html)
+- Jul 11 - [Obama Steps Into the Ring to Deliver a Knockout Blow to Trump](https://www.yahoo.com/news/obama-steps-ring-deliver-knockout-144202985.html)
+- Jul 11 - [‘I can make it any number I want’: Gas stations are charging customers $1 more a gallon for using credit cards](https://finance.yahoo.com/news/number-want-gas-stations-charging-135400948.html)
 <!-- feed end -->
