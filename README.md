@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Ewan McGregor’s bid to fix roof on £2 million Scottish mansion refused](https://www.yahoo.com/news/ewan-mcgregor-bid-fix-roof-150100535.html)
+- Jul 11 - [Chinese banks stumble on Beijing's consumer lending push](https://finance.yahoo.com/news/chinese-banks-stumble-beijings-consumer-043326492.html)
 - Jul 11 - [Analysis-Soaring electric truck sales deal new blow to diesel use in China](https://finance.yahoo.com/news/analysis-soaring-electric-truck-sales-021908086.html)
-- Jul 11 - [After Soaring by 80% During the First Half of 2025, Could This Unstoppable Artificial Intelligence (AI) Stock Be Wall Street's Next Stock-Split Candidate?](https://finance.yahoo.com/news/soaring-80-during-first-half-000000575.html)
-- Jul 10 - ['Buck Moon', the first full moon of summer, to grace skies Thursday night](https://www.yahoo.com/news/buck-moon-first-full-moon-235518082.html)
 - Jul 10 - [Israel says Iran could reach enriched uranium at a nuclear site hit by US](https://www.yahoo.com/news/israel-says-iran-could-reach-225703693.html)
+- Jul 10 - [Missouri governor repeals paid sick leave law approved last year by voters](https://www.yahoo.com/news/missouri-governor-repeals-paid-sick-214901232.html)
+- Jul 10 - [Trump hands Congress a ‘weapon’ he once warned would do ‘grave damage’ to presidency](https://www.yahoo.com/news/trump-u-turn-white-house-211043204.html)
 <!-- feed end -->
