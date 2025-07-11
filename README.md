@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Volkswagen to close jointly-owned China plant, reports Handelsblatt](https://finance.yahoo.com/video/volkswagen-close-jointly-owned-china-103448576.html)
-- Jul 11 - [This $10 Quintillion Discovery Shows Why Bitcoin Is Better Than Gold](https://finance.yahoo.com/news/10-quintillion-discovery-shows-why-101000398.html)
-- Jul 11 - [Texas man rented a boat in Key West — then he took it to Cuba, deputies say](https://www.yahoo.com/news/texas-man-rented-boat-key-025314880.html)
-- Jul 11 - [Analysis-Soaring electric truck sales deal new blow to diesel use in China](https://finance.yahoo.com/news/analysis-soaring-electric-truck-sales-021908086.html)
-- Jul 11 - [Japan urges China to stop flying fighter jets too close to Japanese military aircraft](https://www.yahoo.com/news/japan-urges-china-stop-flying-020212833.html)
+- Jul 11 - [Monty Python star says he’d be in ‘select company’ if thrown out of Trump’s America](https://www.yahoo.com/news/myton-python-stars-says-select-121017763.html)
+- Jul 11 - [See How A Texas Family Clung To A Roof For Hours Amid Floods](https://www.yahoo.com/news/see-texas-family-clung-roof-115519199.html)
+- Jul 11 - [The Ultimate Growth Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/ultimate-growth-stock-buy-1-114000891.html)
+- Jul 11 - [The Social Security Board of Trustees Just Updated Its 2026 Cost-of-Living Adjustment (COLA) Forecast. Here's How Much Your Benefits Could Increase.](https://finance.yahoo.com/news/social-security-board-trustees-just-110000708.html)
+- Jul 11 - [History Says the Nasdaq Will Soar: 2 Artificial Intelligence (AI) Stocks to Buy Now, According to Wall Street](https://finance.yahoo.com/news/history-says-nasdaq-soar-2-073000178.html)
 <!-- feed end -->
