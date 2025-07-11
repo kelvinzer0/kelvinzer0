@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Electric vehicle bursts into flames, snarling morning traffic on Mass. Pike](https://www.yahoo.com/news/part-mass-pike-boston-closed-124016206.html)
-- Jul 11 - [Bitcoin soars to a new all-time high](https://finance.yahoo.com/video/bitcoin-soars-time-high-132154237.html)
-- Jul 11 - [Lebanon's president reveals the country's stance on relations with Israel](https://www.yahoo.com/news/lebanons-president-reveals-countrys-stance-121908338.html)
-- Jul 11 - [Is a mountain lion really roaming the streets in this upstate NY city? What we know now](https://www.yahoo.com/news/mountain-lion-really-roaming-streets-120638612.html)
-- Jul 11 - [Doctors And Nurses Are Calling Out The Health "Lies" You Should Stop Believing, And It's Shocking](https://www.yahoo.com/news/doctors-nurses-calling-health-lies-091602056.html)
+- Jul 11 - [Senate seeks to hit Russia with sanctions over Ukraine — but Trump wants to control the Putin smackdown](https://www.yahoo.com/news/senate-seeks-hit-russia-sanctions-160448205.html)
+- Jul 11 - [Wind turbine maker to pay settlement after blade broke apart and washed up on Nantucket beaches](https://www.yahoo.com/news/wind-turbine-maker-pay-settlement-154933817.html)
+- Jul 11 - [Longtime, local restaurateur whose businesses included Gitsis Texas Hots dies](https://www.yahoo.com/news/longtime-local-restaurateur-whose-businesses-151019240.html)
+- Jul 11 - [‘I can make it any number I want’: Gas stations are charging customers $1 more a gallon for using credit cards](https://finance.yahoo.com/news/number-want-gas-stations-charging-135400948.html)
+- Jul 11 - [You’ve been warned: Gallant threatens to attack Iran ‘again and again’ if nuclear program resumes](https://www.yahoo.com/news/ve-warned-gallant-threatens-attack-134217906.html)
 <!-- feed end -->
