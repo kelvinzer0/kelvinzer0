@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Flash floods once again hit Vermont, damaging homes and roads](https://www.yahoo.com/news/flash-floods-once-again-hit-163941217.html)
-- Jul 11 - [Tucker Carlson Asks Dave Ramsey Why Credit Cards Are a Problem If You Pay Them Off — Ramsey Says, 'That's the Great Lie... Most People Don't'](https://finance.yahoo.com/news/tucker-carlson-asks-dave-ramsey-134517031.html)
-- Jul 11 - [Electric vehicle bursts into flames, snarling morning traffic on Mass. Pike](https://www.yahoo.com/news/part-mass-pike-boston-closed-124016206.html)
-- Jul 11 - [Archaeologists Found a 5th-Century Church Inscribed With a Message to Early Christians](https://www.yahoo.com/news/archaeologists-found-5th-century-church-130000853.html)
-- Jul 11 - [Is a mountain lion really roaming the streets in this upstate NY city? What we know now](https://www.yahoo.com/news/mountain-lion-really-roaming-streets-120638612.html)
+- Jul 11 - [DOGE staffers are fleeing the government after Musk team’s whirlwind overhaul of DC](https://www.yahoo.com/news/doge-staffers-fleeing-government-musk-175527832.html)
+- Jul 11 - [Why bitcoin will hit $120k 'very quickly'](https://finance.yahoo.com/video/why-bitcoin-hit-120k-very-164500722.html)
+- Jul 11 - [Jim Cramer Observes Ford Stock Drop Despite Auto Import Tariff News](https://finance.yahoo.com/news/jim-cramer-observes-ford-stock-155222292.html)
+- Jul 11 - [White House’s “Trump-As-Superman” Meme Quickly Draws Gavin Newsom’s Response: Man Of Steel “Was An Undocumented Immigrant”](https://www.yahoo.com/news/white-house-trump-superman-meme-154706185.html)
+- Jul 11 - [Trump’s increasingly aggressive attacks on Powell aren’t what you think](https://finance.yahoo.com/news/trump-increasingly-aggressive-attacks-powell-145312306.html)
 <!-- feed end -->
