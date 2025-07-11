@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Horse stable and residential buildings hit in latest Russian drone strike on Ukraine city of Odesa](https://www.yahoo.com/news/horse-stable-residential-buildings-hit-213422171.html)
+- Jul 11 - [Police pushing ‘safe exchange zones’ amid dozens of Facebook Marketplace thefts](https://www.yahoo.com/news/police-pushing-safe-exchange-zones-210940910.html)
 - Jul 11 - [India finds engine switch movement in fatal Air India crash, no immediate action for Boeing or GE](https://www.yahoo.com/news/india-finds-engine-switch-movement-202918762.html)
-- Jul 11 - [Russia May Finally Abandon Its Cursed Aircraft Carrier](https://www.yahoo.com/news/russia-may-finally-abandon-cursed-194407463.html)
-- Jul 11 - [Authorities say about 200 immigrants arrested in raids on 2 Southern California farms](https://www.yahoo.com/news/authorities-200-immigrants-arrested-raids-191510592.html)
-- Jul 11 - [Lumbering An-124 Condor Cargo Jet Appears In Kyiv’s Highly-Restricted Airspace](https://www.yahoo.com/news/lumbering-124-condor-cargo-jet-190954971.html)
-- Jul 11 - [Man dies after medical incident leads to crash in Rochester](https://www.yahoo.com/news/man-dies-medical-incident-leads-183534658.html)
+- Jul 11 - [Georgia Republican apologizes for $140M Ponzi scheme as judge freezes assets](https://finance.yahoo.com/news/georgia-republican-apologizes-140m-ponzi-202551634.html)
+- Jul 11 - [One California worker dead, hundreds arrested, after cannabis farm raid](https://www.yahoo.com/news/one-california-worker-dead-hundreds-202039951.html)
 <!-- feed end -->
