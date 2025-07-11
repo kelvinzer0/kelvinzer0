@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Texas flooding survivor describes tree escape: ‘God sat with us’ | Morning in America](https://www.yahoo.com/news/texas-flooding-survivor-describes-tree-103337022.html)
-- Jul 11 - [Satellite photos suggest Iran attack on Qatar air base hit geodesic dome used for US communications](https://www.yahoo.com/news/satellite-photos-suggest-iran-attack-080943268.html)
-- Jul 11 - [Edited clip of India minister spreads months after Pakistan conflict](https://www.yahoo.com/news/edited-clip-india-minister-spreads-064849405.html)
-- Jul 11 - [‘Not A Parody’: White House Mercilessly Mocked Over Super-Weird New Trump Image](https://www.yahoo.com/news/not-parody-white-house-mercilessly-053016960.html)
-- Jul 11 - [Federal officials say a prominent Georgia Republican was running a $140 million Ponzi scheme](https://www.yahoo.com/news/federal-officials-prominent-georgia-republican-024729300.html)
+- Jul 11 - [Electric vehicle bursts into flames, snarling morning traffic on Mass. Pike](https://www.yahoo.com/news/part-mass-pike-boston-closed-124016206.html)
+- Jul 11 - [Bitcoin soars to a new all-time high](https://finance.yahoo.com/video/bitcoin-soars-time-high-132154237.html)
+- Jul 11 - [Lebanon's president reveals the country's stance on relations with Israel](https://www.yahoo.com/news/lebanons-president-reveals-countrys-stance-121908338.html)
+- Jul 11 - [Is a mountain lion really roaming the streets in this upstate NY city? What we know now](https://www.yahoo.com/news/mountain-lion-really-roaming-streets-120638612.html)
+- Jul 11 - [Doctors And Nurses Are Calling Out The Health "Lies" You Should Stop Believing, And It's Shocking](https://www.yahoo.com/news/doctors-nurses-calling-health-lies-091602056.html)
 <!-- feed end -->
