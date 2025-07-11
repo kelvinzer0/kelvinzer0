@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Volkswagen to close jointly-owned China plant, reports Handelsblatt](https://finance.yahoo.com/video/volkswagen-close-jointly-owned-china-103448576.html)
+- Jul 11 - [This $10 Quintillion Discovery Shows Why Bitcoin Is Better Than Gold](https://finance.yahoo.com/news/10-quintillion-discovery-shows-why-101000398.html)
+- Jul 11 - [Texas man rented a boat in Key West — then he took it to Cuba, deputies say](https://www.yahoo.com/news/texas-man-rented-boat-key-025314880.html)
 - Jul 11 - [Analysis-Soaring electric truck sales deal new blow to diesel use in China](https://finance.yahoo.com/news/analysis-soaring-electric-truck-sales-021908086.html)
-- Jul 10 - [Several roads flooded, power outages across Coastal Empire, Lowcountry](https://www.yahoo.com/news/several-roads-flooded-power-outages-234548713.html)
-- Jul 10 - [Israel says Iran could reach enriched uranium at a nuclear site hit by US](https://www.yahoo.com/news/israel-says-iran-could-reach-225703693.html)
-- Jul 10 - [Missouri governor repeals paid sick leave law approved last year by voters](https://www.yahoo.com/news/missouri-governor-repeals-paid-sick-214901232.html)
-- Jul 10 - [Trump hands Congress a ‘weapon’ he once warned would do ‘grave damage’ to presidency](https://www.yahoo.com/news/trump-u-turn-white-house-211043204.html)
+- Jul 11 - [Japan urges China to stop flying fighter jets too close to Japanese military aircraft](https://www.yahoo.com/news/japan-urges-china-stop-flying-020212833.html)
 <!-- feed end -->
