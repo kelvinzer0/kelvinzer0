@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 11 - [Ewan McGregor’s bid to fix roof on £2 million Scottish mansion refused](https://www.yahoo.com/news/ewan-mcgregor-bid-fix-roof-150100535.html)
-- Jul 11 - [Iran expels half a million Afghans in 16-day stretch since recent conflict with Israel, UN says](https://www.yahoo.com/news/iran-expels-half-million-afghans-040127578.html)
 - Jul 11 - [Analysis-Soaring electric truck sales deal new blow to diesel use in China](https://finance.yahoo.com/news/analysis-soaring-electric-truck-sales-021908086.html)
-- Jul 11 - [Seattle woman arrested, charged in multiple bank robberies](https://www.yahoo.com/news/seattle-woman-arrested-charged-multiple-012203145.html)
+- Jul 11 - [After Soaring by 80% During the First Half of 2025, Could This Unstoppable Artificial Intelligence (AI) Stock Be Wall Street's Next Stock-Split Candidate?](https://finance.yahoo.com/news/soaring-80-during-first-half-000000575.html)
 - Jul 10 - ['Buck Moon', the first full moon of summer, to grace skies Thursday night](https://www.yahoo.com/news/buck-moon-first-full-moon-235518082.html)
+- Jul 10 - [Israel says Iran could reach enriched uranium at a nuclear site hit by US](https://www.yahoo.com/news/israel-says-iran-could-reach-225703693.html)
 <!-- feed end -->
