@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Monty Python star says he’d be in ‘select company’ if thrown out of Trump’s America](https://www.yahoo.com/news/myton-python-stars-says-select-121017763.html)
-- Jul 11 - [See How A Texas Family Clung To A Roof For Hours Amid Floods](https://www.yahoo.com/news/see-texas-family-clung-roof-115519199.html)
-- Jul 11 - [The Ultimate Growth Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/ultimate-growth-stock-buy-1-114000891.html)
+- Jul 11 - [Bitcoin soars to a new all-time high](https://finance.yahoo.com/video/bitcoin-soars-time-high-132154237.html)
 - Jul 11 - [The Social Security Board of Trustees Just Updated Its 2026 Cost-of-Living Adjustment (COLA) Forecast. Here's How Much Your Benefits Could Increase.](https://finance.yahoo.com/news/social-security-board-trustees-just-110000708.html)
-- Jul 11 - [History Says the Nasdaq Will Soar: 2 Artificial Intelligence (AI) Stocks to Buy Now, According to Wall Street](https://finance.yahoo.com/news/history-says-nasdaq-soar-2-073000178.html)
+- Jul 11 - [Satellite photos suggest Iran attack on Qatar air base hit geodesic dome used for US communications](https://www.yahoo.com/news/satellite-photos-suggest-iran-attack-080943268.html)
+- Jul 11 - [Musk’s ‘America Party’ and the evidence that Trump’s coalition is starting to fracture](https://www.yahoo.com/news/musk-america-party-evidence-trump-080025209.html)
+- Jul 11 - [Chinese banks stumble on Beijing's consumer lending push](https://finance.yahoo.com/news/chinese-banks-stumble-beijings-consumer-043326492.html)
 <!-- feed end -->
