@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Analysis-Soaring electric truck sales deal new blow to diesel use in China](https://finance.yahoo.com/news/analysis-soaring-electric-truck-sales-021908086.html)
+- Jul 10 - [The Pentagon is taking a big stake in a rare earth mining company, sending the stock up 60%](https://finance.yahoo.com/news/pentagon-taking-big-stake-rare-221823226.html)
 - Jul 10 - [Missouri governor repeals paid sick leave law approved last year by voters](https://www.yahoo.com/news/missouri-governor-repeals-paid-sick-214901232.html)
 - Jul 10 - [Trump hands Congress a ‘weapon’ he once warned would do ‘grave damage’ to presidency](https://www.yahoo.com/news/trump-u-turn-white-house-211043204.html)
-- Jul 10 - [The White House Posted A Video Of The New American Flags They Put Up, And People Are Divided About The Way It Looks](https://www.yahoo.com/news/white-house-posted-video-american-194848915.html)
-- Jul 10 - [Jamie Dimon gets real with Europe about shrinking to just 65% of American GDP over 10-15 years: ‘That’s not good’](https://finance.yahoo.com/news/jamie-dimon-gets-real-europe-191723906.html)
-- Jul 10 - [Justice Department efforts to strip citizenship from naturalized Americans likely violate constitutional rights](https://www.yahoo.com/news/justice-department-efforts-strip-citizenship-172221215.html)
+- Jul 10 - [A small Texas community where everyone survived flooding has sirens that warned them](https://www.yahoo.com/news/small-texas-community-where-everyone-211000607.html)
 <!-- feed end -->
