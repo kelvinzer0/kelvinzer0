@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Bitcoin soars to a new all-time high](https://finance.yahoo.com/video/bitcoin-soars-time-high-132154237.html)
-- Jul 11 - [The Social Security Board of Trustees Just Updated Its 2026 Cost-of-Living Adjustment (COLA) Forecast. Here's How Much Your Benefits Could Increase.](https://finance.yahoo.com/news/social-security-board-trustees-just-110000708.html)
+- Jul 11 - [Texas flooding survivor describes tree escape: ‘God sat with us’ | Morning in America](https://www.yahoo.com/news/texas-flooding-survivor-describes-tree-103337022.html)
 - Jul 11 - [Satellite photos suggest Iran attack on Qatar air base hit geodesic dome used for US communications](https://www.yahoo.com/news/satellite-photos-suggest-iran-attack-080943268.html)
-- Jul 11 - [Musk’s ‘America Party’ and the evidence that Trump’s coalition is starting to fracture](https://www.yahoo.com/news/musk-america-party-evidence-trump-080025209.html)
-- Jul 11 - [Chinese banks stumble on Beijing's consumer lending push](https://finance.yahoo.com/news/chinese-banks-stumble-beijings-consumer-043326492.html)
+- Jul 11 - [Edited clip of India minister spreads months after Pakistan conflict](https://www.yahoo.com/news/edited-clip-india-minister-spreads-064849405.html)
+- Jul 11 - [‘Not A Parody’: White House Mercilessly Mocked Over Super-Weird New Trump Image](https://www.yahoo.com/news/not-parody-white-house-mercilessly-053016960.html)
+- Jul 11 - [Federal officials say a prominent Georgia Republican was running a $140 million Ponzi scheme](https://www.yahoo.com/news/federal-officials-prominent-georgia-republican-024729300.html)
 <!-- feed end -->
