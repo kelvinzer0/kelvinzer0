@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [DOGE staffers are fleeing the government after Musk team’s whirlwind overhaul of DC](https://www.yahoo.com/news/doge-staffers-fleeing-government-musk-175527832.html)
+- Jul 11 - [US senators warn Nvidia CEO about upcoming China trip](https://finance.yahoo.com/news/us-senators-warn-nvidia-ceo-190255991.html)
+- Jul 11 - [Dan Bongino ‘may step down from FBI’](https://www.yahoo.com/news/dan-bongino-may-step-down-185047590.html)
+- Jul 11 - [Man dies after medical incident leads to crash in Rochester](https://www.yahoo.com/news/man-dies-medical-incident-leads-183534658.html)
 - Jul 11 - [Why bitcoin will hit $120k 'very quickly'](https://finance.yahoo.com/video/why-bitcoin-hit-120k-very-164500722.html)
-- Jul 11 - [Jim Cramer Observes Ford Stock Drop Despite Auto Import Tariff News](https://finance.yahoo.com/news/jim-cramer-observes-ford-stock-155222292.html)
-- Jul 11 - [White House’s “Trump-As-Superman” Meme Quickly Draws Gavin Newsom’s Response: Man Of Steel “Was An Undocumented Immigrant”](https://www.yahoo.com/news/white-house-trump-superman-meme-154706185.html)
-- Jul 11 - [Trump’s increasingly aggressive attacks on Powell aren’t what you think](https://finance.yahoo.com/news/trump-increasingly-aggressive-attacks-powell-145312306.html)
+- Jul 11 - [Wildfire smoke may follow storms, severe weather in eastern US](https://www.yahoo.com/news/wildfire-smoke-may-storms-severe-161326488.html)
 <!-- feed end -->
