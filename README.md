@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Why bitcoin will hit $120k 'very quickly'](https://finance.yahoo.com/video/why-bitcoin-hit-120k-very-164500722.html)
-- Jul 11 - [Atlanta man gets more than 150 years in prison for starving daughter and abusing other children](https://www.yahoo.com/news/atlanta-man-gets-more-150-155918383.html)
-- Jul 11 - [China’s electric car revolution hammers demand for oil](https://finance.yahoo.com/news/china-electric-car-revolution-hammers-155408191.html)
-- Jul 11 - [Obama Steps Into the Ring to Deliver a Knockout Blow to Trump](https://www.yahoo.com/news/obama-steps-ring-deliver-knockout-144202985.html)
-- Jul 11 - [‘I can make it any number I want’: Gas stations are charging customers $1 more a gallon for using credit cards](https://finance.yahoo.com/news/number-want-gas-stations-charging-135400948.html)
+- Jul 11 - [India finds engine switch movement in fatal Air India crash, no immediate action for Boeing or GE](https://www.yahoo.com/news/india-finds-engine-switch-movement-202918762.html)
+- Jul 11 - [Russia May Finally Abandon Its Cursed Aircraft Carrier](https://www.yahoo.com/news/russia-may-finally-abandon-cursed-194407463.html)
+- Jul 11 - [Authorities say about 200 immigrants arrested in raids on 2 Southern California farms](https://www.yahoo.com/news/authorities-200-immigrants-arrested-raids-191510592.html)
+- Jul 11 - [Lumbering An-124 Condor Cargo Jet Appears In Kyiv’s Highly-Restricted Airspace](https://www.yahoo.com/news/lumbering-124-condor-cargo-jet-190954971.html)
+- Jul 11 - [Man dies after medical incident leads to crash in Rochester](https://www.yahoo.com/news/man-dies-medical-incident-leads-183534658.html)
 <!-- feed end -->
