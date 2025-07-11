@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Senate seeks to hit Russia with sanctions over Ukraine — but Trump wants to control the Putin smackdown](https://www.yahoo.com/news/senate-seeks-hit-russia-sanctions-160448205.html)
-- Jul 11 - [Wind turbine maker to pay settlement after blade broke apart and washed up on Nantucket beaches](https://www.yahoo.com/news/wind-turbine-maker-pay-settlement-154933817.html)
-- Jul 11 - [Longtime, local restaurateur whose businesses included Gitsis Texas Hots dies](https://www.yahoo.com/news/longtime-local-restaurateur-whose-businesses-151019240.html)
-- Jul 11 - [‘I can make it any number I want’: Gas stations are charging customers $1 more a gallon for using credit cards](https://finance.yahoo.com/news/number-want-gas-stations-charging-135400948.html)
-- Jul 11 - [You’ve been warned: Gallant threatens to attack Iran ‘again and again’ if nuclear program resumes](https://www.yahoo.com/news/ve-warned-gallant-threatens-attack-134217906.html)
+- Jul 11 - [Flash floods once again hit Vermont, damaging homes and roads](https://www.yahoo.com/news/flash-floods-once-again-hit-163941217.html)
+- Jul 11 - [Tucker Carlson Asks Dave Ramsey Why Credit Cards Are a Problem If You Pay Them Off — Ramsey Says, 'That's the Great Lie... Most People Don't'](https://finance.yahoo.com/news/tucker-carlson-asks-dave-ramsey-134517031.html)
+- Jul 11 - [Electric vehicle bursts into flames, snarling morning traffic on Mass. Pike](https://www.yahoo.com/news/part-mass-pike-boston-closed-124016206.html)
+- Jul 11 - [Archaeologists Found a 5th-Century Church Inscribed With a Message to Early Christians](https://www.yahoo.com/news/archaeologists-found-5th-century-church-130000853.html)
+- Jul 11 - [Is a mountain lion really roaming the streets in this upstate NY city? What we know now](https://www.yahoo.com/news/mountain-lion-really-roaming-streets-120638612.html)
 <!-- feed end -->
