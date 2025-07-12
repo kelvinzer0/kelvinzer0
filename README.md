@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Donald Trump Threatens To Revoke Rosie O’Donnell’s Citizenship; She Calls Him “A Danger To The Nation” In Response — Update](https://www.yahoo.com/news/donald-trump-threatens-revoke-rosie-140344760.html)
+- Jul 12 - [Archaeolgists Find Largest-Ever Ceremony Hall, Weapons Hoard](https://www.yahoo.com/news/archaeolgists-largest-ever-ceremony-hall-170000556.html)
+- Jul 12 - [Donald Trump Is Giving ‘Serious Consideration’ to Revoking Rosie O’Donnell’s U.S. Citizenship: ‘She Is a Threat to Humanity’](https://www.yahoo.com/news/donald-trump-giving-serious-consideration-161759567.html)
+- Jul 12 - [Golfer Bryson DeChambeau's Massive Real Estate Investment Has Eaten Up Most Of The $125 Million He Got Paid To Switch Tours](https://finance.yahoo.com/news/golfer-bryson-dechambeaus-massive-real-151508313.html)
 - Jul 12 - [Bryan Kohberger believed he committed ‘the perfect murders’ until one key mistake shattered his plot: author](https://www.yahoo.com/news/bryan-kohberger-believed-committed-perfect-140012801.html)
 - Jul 12 - [A year after Trump's near-assassination, friends and allies see some signs of a changed man](https://www.yahoo.com/news/trumps-near-assassination-friends-allies-125913413.html)
-- Jul 12 - [Osprey came back from the brink once. Now chicks are dying in nests, and some blame overfishing](https://www.yahoo.com/news/osprey-came-back-brink-once-112937843.html)
-- Jul 12 - [What's at the center of a black hole? Scientists have a sobering answer.](https://www.yahoo.com/news/whats-center-black-hole-scientists-100112844.html)
 <!-- feed end -->
