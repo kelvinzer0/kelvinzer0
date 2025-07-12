@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 11 - [Air India pilot asked why fuel had been cut off moments before fatal crash](https://www.yahoo.com/news/pilot-error-focus-air-india-181242556.html)
+- Jul 11 - [Cal State LA lets professors move classes online due to student fears over ICE immigration enforcement](https://www.yahoo.com/news/cal-state-la-lets-professors-232047308.html)
+- Jul 11 - [Why Did ICE Agents Arrest and Detain a 71-Year-Old U.S. Citizen?](https://www.yahoo.com/news/why-did-ice-agents-arrest-220046704.html)
 - Jul 11 - [The president did not like the question asked after meeting with Texas officials and victims.](https://www.yahoo.com/news/president-did-not-asked-meeting-215436240.html)
-- Jul 11 - [Court overturns ex-state attorney's mortgage fraud conviction but upholds perjury convictions](https://www.yahoo.com/news/court-overturns-ex-state-attorneys-203905574.html)
-- Jul 11 - [Air India crash report shows pilot confusion over engine switch movement](https://www.yahoo.com/news/india-finds-engine-switch-movement-202918762.html)
 - Jul 11 - [Georgia Republican apologizes for $140M Ponzi scheme as judge freezes assets](https://finance.yahoo.com/news/georgia-republican-apologizes-140m-ponzi-202551634.html)
-- Jul 11 - [One California worker dead, hundreds arrested after cannabis farm raid](https://www.yahoo.com/news/one-california-worker-dead-hundreds-202039951.html)
 <!-- feed end -->
