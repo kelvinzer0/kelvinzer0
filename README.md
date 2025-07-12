@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 12 - [As South Korea becomes a key arms supplier to US allies, its best customer is on the edge of a warzone](https://www.yahoo.com/news/south-korea-becomes-key-arms-043214497.html)
-- Jul 12 - [Catch of a lifetime: 40 pound ahi caught from beach shore](https://www.yahoo.com/news/catch-lifetime-40-pound-ahi-024911204.html)
+- Jul 12 - [Milwaukee's $269 2-Pack of M18 5Ah Batteries Is Just $105 Right Now, and Shoppers Say They 'Last a Long Time'](https://shopping.yahoo.com/deals/articles/milwaukees-269-2-pack-m18-031500522.html)
 - Jul 11 - [Air India pilot asked why fuel had been cut off moments before fatal crash](https://www.yahoo.com/news/pilot-error-focus-air-india-181242556.html)
-- Jul 11 - [The president did not like the question asked after meeting with Texas officials and victims.](https://www.yahoo.com/news/president-did-not-asked-meeting-215436240.html)
-- Jul 11 - [Court overturns ex-state attorney's mortgage fraud conviction but upholds perjury convictions](https://www.yahoo.com/news/court-overturns-ex-state-attorneys-203905574.html)
+- Jul 11 - [Why Did ICE Agents Arrest and Detain a 71-Year-Old U.S. Citizen?](https://www.yahoo.com/news/why-did-ice-agents-arrest-220046704.html)
+- Jul 11 - [Fox News Host Shuts Down 'Disgusting Lie' About Her Family Amid Attacks From MAGA](https://www.yahoo.com/news/fox-news-host-shuts-down-215524149.html)
 <!-- feed end -->
