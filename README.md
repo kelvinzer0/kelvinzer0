@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 12 - [As South Korea becomes a key arms supplier to US allies, its best customer is on the edge of a warzone](https://www.yahoo.com/news/south-korea-becomes-key-arms-043214497.html)
-- Jul 12 - [Factbox-Who were the two pilots who flew the Air India jet that crashed?](https://www.yahoo.com/news/factbox-were-two-pilots-flew-001622649.html)
+- Jul 12 - [Catch of a lifetime: 40 pound ahi caught from beach shore](https://www.yahoo.com/news/catch-lifetime-40-pound-ahi-024911204.html)
 - Jul 11 - [Air India pilot asked why fuel had been cut off moments before fatal crash](https://www.yahoo.com/news/pilot-error-focus-air-india-181242556.html)
-- Jul 11 - [Mystery of the human toe found in a box at Dash Point State Park has been solved](https://www.yahoo.com/news/mystery-human-toe-found-box-223742142.html)
+- Jul 11 - [The president did not like the question asked after meeting with Texas officials and victims.](https://www.yahoo.com/news/president-did-not-asked-meeting-215436240.html)
 - Jul 11 - [Court overturns ex-state attorney's mortgage fraud conviction but upholds perjury convictions](https://www.yahoo.com/news/court-overturns-ex-state-attorneys-203905574.html)
 <!-- feed end -->
