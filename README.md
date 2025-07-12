@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 11 - [Severe thunderstom warning issued for parts of Massachusetts](https://www.yahoo.com/news/severe-thunderstom-warning-issued-parts-221211188.html)
-- Jul 11 - [Man sentenced to life in prison for killing 83-year-old man in Fayette County](https://www.yahoo.com/news/man-sentenced-life-prison-killing-221019208.html)
-- Jul 11 - [The president did not like the question asked after meeting with Texas officials and victims.](https://www.yahoo.com/news/president-did-not-asked-meeting-215436240.html)
+- Jul 11 - [Why Upstart Holdings, Inc. (UPST) Dipped More Than Broader Market Today](https://finance.yahoo.com/news/why-upstart-holdings-inc-upst-220005065.html)
+- Jul 11 - [Court overturns ex-state attorney's mortgage fraud conviction but upholds perjury convictions](https://www.yahoo.com/news/court-overturns-ex-state-attorneys-203905574.html)
 - Jul 11 - [Air India crash report shows pilot confusion over engine switch movement](https://www.yahoo.com/news/india-finds-engine-switch-movement-202918762.html)
-- Jul 11 - [Georgia Republican apologizes for $140M Ponzi scheme as judge freezes assets](https://finance.yahoo.com/news/georgia-republican-apologizes-140m-ponzi-202551634.html)
+- Jul 11 - [Lumbering An-124 Condor Cargo Jet Appears In Kyiv’s Highly-Restricted Airspace](https://www.yahoo.com/news/lumbering-124-condor-cargo-jet-190954971.html)
+- Jul 11 - [US senators warn Nvidia CEO about upcoming China trip](https://finance.yahoo.com/news/us-senators-warn-nvidia-ceo-190255991.html)
 <!-- feed end -->
