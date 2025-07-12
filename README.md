@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Cousin of Air India victim wants recording released](https://www.yahoo.com/news/cousin-air-india-victim-wants-145242074.html)
+- Jul 12 - [Schumer demands RFK Jr. declare measles emergency, saying he 'walked' US into outbreak](https://www.yahoo.com/news/schumer-demands-rfk-jr-declare-155749244.html)
+- Jul 12 - [Donald Trump Threatens To Revoke Rosie O’Donnell’s Citizenship; She Calls Him “A Danger To The Nation” In Response — Update](https://www.yahoo.com/news/donald-trump-threatens-revoke-rosie-140344760.html)
 - Jul 12 - [A year after Trump's near-assassination, friends and allies see some signs of a changed man](https://www.yahoo.com/news/trumps-near-assassination-friends-allies-125913413.html)
-- Jul 12 - [Nvidia, Microsoft, or Alphabet: Which AI Stock Giant Holds the Highest Upside? Analysts Weigh In](https://finance.yahoo.com/news/nvidia-microsoft-alphabet-ai-stock-102039717.html)
 - Jul 12 - [What's at the center of a black hole? Scientists have a sobering answer.](https://www.yahoo.com/news/whats-center-black-hole-scientists-100112844.html)
 - Jul 12 - [Women of war: The IDF female combat soldiers guarding the Israeli-Egyptian border](https://www.yahoo.com/news/women-war-idf-female-combat-094637058.html)
 <!-- feed end -->
