@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [What's at the center of a black hole? Scientists have a sobering answer.](https://www.yahoo.com/news/whats-center-black-hole-scientists-100112844.html)
 - Jul 12 - [Russia warns US, South Korea and Japan against forming security alliance targeting North Korea](https://www.yahoo.com/news/russia-warns-us-south-korea-092453810.html)
+- Jul 12 - [2 Artificial Intelligence (AI) Stocks to Buy Before They Soar 150% and 735%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-074500496.html)
 - Jul 12 - [As South Korea becomes a key arms supplier to US allies, its best customer is on the edge of a warzone](https://www.yahoo.com/news/south-korea-becomes-key-arms-043214497.html)
-- Jul 12 - [Milwaukee's $269 2-Pack of M18 5Ah Batteries Is Just $105 Right Now, and Shoppers Say They 'Last a Long Time'](https://shopping.yahoo.com/deals/articles/milwaukees-269-2-pack-m18-031500522.html)
-- Jul 12 - [Kalamazoo/Battle Creek International Airport secures $14 million dollar grant](https://www.yahoo.com/news/kalamazoo-battle-creek-international-airport-025434561.html)
-- Jul 11 - [Air India pilot asked why fuel had been cut off moments before fatal crash](https://www.yahoo.com/news/pilot-error-focus-air-india-181242556.html)
+- Jul 12 - [Woman charged in Seattle Safeway 'Monday Cheap Chicken' shooting](https://www.yahoo.com/news/woman-charged-seattle-safeway-monday-004618809.html)
 <!-- feed end -->
