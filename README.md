@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [FM Araqchi says Iran to work with IAEA, but inspections may be risky](https://www.yahoo.com/news/fm-araqchi-says-iran-iaea-131033013.html)
-- Jul 12 - [Canadiens: Who Will Be The Big Earner? Dobson Or Hutson?](https://sports.yahoo.com/video/canadiens-big-earner-dobson-hutson-130003963.html)
 - Jul 12 - [A year after Trump's near-assassination, friends and allies see some signs of a changed man](https://www.yahoo.com/news/trumps-near-assassination-friends-allies-125913413.html)
-- Jul 12 - [Trump considers greenlighting new funding for Ukraine, sources say](https://www.yahoo.com/news/trump-considers-greenlighting-funding-ukraine-120513336.html)
 - Jul 12 - [Osprey came back from the brink once. Now chicks are dying in nests, and some blame overfishing](https://www.yahoo.com/news/osprey-came-back-brink-once-112937843.html)
+- Jul 12 - [Nvidia, Microsoft, or Alphabet: Which AI Stock Giant Holds the Highest Upside? Analysts Weigh In](https://finance.yahoo.com/news/nvidia-microsoft-alphabet-ai-stock-102039717.html)
+- Jul 12 - [What's at the center of a black hole? Scientists have a sobering answer.](https://www.yahoo.com/news/whats-center-black-hole-scientists-100112844.html)
+- Jul 12 - [Women of war: The IDF female combat soldiers guarding the Israeli-Egyptian border](https://www.yahoo.com/news/women-war-idf-female-combat-094637058.html)
 <!-- feed end -->
