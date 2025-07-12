@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Archaeolgists Find Largest-Ever Ceremony Hall, Weapons Hoard](https://www.yahoo.com/news/archaeolgists-largest-ever-ceremony-hall-170000556.html)
+- Jul 12 - [This South Carolina mom of 3 was left to run entire Burger King by herself for 12+ hours. Then BK responded](https://www.yahoo.com/news/south-carolina-mom-3-left-184500737.html)
 - Jul 12 - [Donald Trump Is Giving ‘Serious Consideration’ to Revoking Rosie O’Donnell’s U.S. Citizenship: ‘She Is a Threat to Humanity’](https://www.yahoo.com/news/donald-trump-giving-serious-consideration-161759567.html)
 - Jul 12 - [Golfer Bryson DeChambeau's Massive Real Estate Investment Has Eaten Up Most Of The $125 Million He Got Paid To Switch Tours](https://finance.yahoo.com/news/golfer-bryson-dechambeaus-massive-real-151508313.html)
-- Jul 12 - [Bryan Kohberger believed he committed ‘the perfect murders’ until one key mistake shattered his plot: author](https://www.yahoo.com/news/bryan-kohberger-believed-committed-perfect-140012801.html)
 - Jul 12 - [A year after Trump's near-assassination, friends and allies see some signs of a changed man](https://www.yahoo.com/news/trumps-near-assassination-friends-allies-125913413.html)
+- Jul 12 - [A British soldier was found dead in a Ukrainian reservoir with his hands tied. Nobody will say why](https://www.yahoo.com/news/british-soldier-found-dead-ukrainian-120000527.html)
 <!-- feed end -->
