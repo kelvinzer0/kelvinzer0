@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [Dave Ramsey's 'Shortest Call in Show History' Came From a 20-Year Listener With $211K Cash and a Mortgage — You Can Probably Guess What He Said](https://finance.yahoo.com/news/dave-ramseys-shortest-call-show-203142858.html)
 - Jul 12 - [Air India crash report points to chip malfunction, says analyst](https://www.yahoo.com/news/air-india-crash-report-points-193825940.html)
-- Jul 12 - [Anti-Semitism ‘normalised in middle-class Britain’](https://www.yahoo.com/news/anti-semitism-normalised-middle-class-190000001.html)
 - Jul 12 - [This South Carolina mom of 3 was left to run entire Burger King by herself for 12+ hours. Then BK responded](https://www.yahoo.com/news/south-carolina-mom-3-left-184500737.html)
-- Jul 12 - [Grant Cardone Calls Making $400K a Year 'Embarrassing,' Says Do The Math, It's $35K a Month —'You Should Be Ashamed as a Husband and Father'](https://finance.yahoo.com/news/grant-cardone-calls-making-400k-170057386.html)
-- Jul 12 - [Donald Trump Is Giving ‘Serious Consideration’ to Revoking Rosie O’Donnell’s U.S. Citizenship: ‘She Is a Threat to Humanity’](https://www.yahoo.com/news/donald-trump-giving-serious-consideration-161759567.html)
+- Jul 12 - [Hissing owls heard in Ohio: Here’s what it means](https://www.yahoo.com/news/hissing-owls-heard-ohio-means-155931977.html)
+- Jul 12 - [Donald Trump Was Asked About His Message To Texas Families Who Are Angry About Late Flood Alerts, And His Response Is Going Viral For Being "Sick Beyond Belief"](https://www.yahoo.com/news/donald-trump-asked-message-texas-173051415.html)
 <!-- feed end -->
