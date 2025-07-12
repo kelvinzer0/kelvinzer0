@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Trump's attorney general drops fraud case tied to COVID vaccinations](https://www.yahoo.com/news/trumps-attorney-general-drops-fraud-191741528.html)
 - Jul 12 - [This South Carolina mom of 3 was left to run entire Burger King by herself for 12+ hours. Then BK responded](https://www.yahoo.com/news/south-carolina-mom-3-left-184500737.html)
-- Jul 12 - [Lake Travis closed to all uses except emergency response](https://www.yahoo.com/news/lake-travis-closed-uses-except-164654544.html)
-- Jul 12 - [Donald Trump Is Giving ‘Serious Consideration’ to Revoking Rosie O’Donnell’s U.S. Citizenship: ‘She Is a Threat to Humanity’](https://www.yahoo.com/news/donald-trump-giving-serious-consideration-161759567.html)
-- Jul 12 - [United Airlines worker says she complained about sexual harassment. Managers then forced her to move a 300lb dead body](https://www.yahoo.com/news/united-airlines-worker-says-she-130357097.html)
+- Jul 12 - ['Great bodily injury': Shuttered Beer Hunter loses liquor license after serving minors](https://www.yahoo.com/news/great-bodily-injury-shuttered-beer-181759793.html)
+- Jul 12 - [Beloved Burger Chain Quietly Closed 79 Locations This Year](https://www.yahoo.com/news/beloved-burger-chain-quietly-closed-173916343.html)
+- Jul 12 - [Donald Trump Was Asked About His Message To Texas Families Who Are Angry About Late Flood Alerts, And His Response Is Going Viral For Being "Sick Beyond Belief"](https://www.yahoo.com/news/donald-trump-asked-message-texas-173051415.html)
+- Jul 12 - [Grant Cardone Calls Making $400K a Year 'Embarrassing,' Says Do The Math, It's $35K a Month —'You Should Be Ashamed as a Husband and Father'](https://finance.yahoo.com/news/grant-cardone-calls-making-400k-170057386.html)
 <!-- feed end -->
