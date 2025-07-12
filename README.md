@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [What's at the center of a black hole? Scientists have a sobering answer.](https://www.yahoo.com/news/whats-center-black-hole-scientists-100112844.html)
-- Jul 12 - [Russia warns US, South Korea and Japan against forming security alliance targeting North Korea](https://www.yahoo.com/news/russia-warns-us-south-korea-092453810.html)
-- Jul 12 - [2 Artificial Intelligence (AI) Stocks to Buy Before They Soar 150% and 735%, According to Certain Wall Street Analysts](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-074500496.html)
-- Jul 12 - [As South Korea becomes a key arms supplier to US allies, its best customer is on the edge of a warzone](https://www.yahoo.com/news/south-korea-becomes-key-arms-043214497.html)
-- Jul 12 - [Woman charged in Seattle Safeway 'Monday Cheap Chicken' shooting](https://www.yahoo.com/news/woman-charged-seattle-safeway-monday-004618809.html)
+- Jul 12 - [FM Araqchi says Iran to work with IAEA, but inspections may be risky](https://www.yahoo.com/news/fm-araqchi-says-iran-iaea-131033013.html)
+- Jul 12 - [Canadiens: Who Will Be The Big Earner? Dobson Or Hutson?](https://sports.yahoo.com/video/canadiens-big-earner-dobson-hutson-130003963.html)
+- Jul 12 - [A year after Trump's near-assassination, friends and allies see some signs of a changed man](https://www.yahoo.com/news/trumps-near-assassination-friends-allies-125913413.html)
+- Jul 12 - [Trump considers greenlighting new funding for Ukraine, sources say](https://www.yahoo.com/news/trump-considers-greenlighting-funding-ukraine-120513336.html)
+- Jul 12 - [Osprey came back from the brink once. Now chicks are dying in nests, and some blame overfishing](https://www.yahoo.com/news/osprey-came-back-brink-once-112937843.html)
 <!-- feed end -->
