@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 12 - [Schumer demands RFK Jr. declare measles emergency, saying he 'walked' US into outbreak](https://www.yahoo.com/news/schumer-demands-rfk-jr-declare-155749244.html)
 - Jul 12 - [Donald Trump Threatens To Revoke Rosie O’Donnell’s Citizenship; She Calls Him “A Danger To The Nation” In Response — Update](https://www.yahoo.com/news/donald-trump-threatens-revoke-rosie-140344760.html)
+- Jul 12 - [Bryan Kohberger believed he committed ‘the perfect murders’ until one key mistake shattered his plot: author](https://www.yahoo.com/news/bryan-kohberger-believed-committed-perfect-140012801.html)
 - Jul 12 - [A year after Trump's near-assassination, friends and allies see some signs of a changed man](https://www.yahoo.com/news/trumps-near-assassination-friends-allies-125913413.html)
+- Jul 12 - [Osprey came back from the brink once. Now chicks are dying in nests, and some blame overfishing](https://www.yahoo.com/news/osprey-came-back-brink-once-112937843.html)
 - Jul 12 - [What's at the center of a black hole? Scientists have a sobering answer.](https://www.yahoo.com/news/whats-center-black-hole-scientists-100112844.html)
-- Jul 12 - [Women of war: The IDF female combat soldiers guarding the Israeli-Egyptian border](https://www.yahoo.com/news/women-war-idf-female-combat-094637058.html)
 <!-- feed end -->
