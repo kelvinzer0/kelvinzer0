@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 12 - [As South Korea becomes a key arms supplier to US allies, its best customer is on the edge of a warzone](https://www.yahoo.com/news/south-korea-becomes-key-arms-043214497.html)
+- Jul 12 - [Factbox-Who were the two pilots who flew the Air India jet that crashed?](https://www.yahoo.com/news/factbox-were-two-pilots-flew-001622649.html)
 - Jul 11 - [Air India pilot asked why fuel had been cut off moments before fatal crash](https://www.yahoo.com/news/pilot-error-focus-air-india-181242556.html)
-- Jul 11 - [Georgia Republican apologizes for $140M Ponzi scheme as judge freezes assets](https://finance.yahoo.com/news/georgia-republican-apologizes-140m-ponzi-202551634.html)
-- Jul 11 - [One California worker dead, hundreds arrested after cannabis farm raid](https://www.yahoo.com/news/one-california-worker-dead-hundreds-202039951.html)
-- Jul 11 - [Lumbering An-124 Condor Cargo Jet Appears In Kyiv’s Highly-Restricted Airspace](https://www.yahoo.com/news/lumbering-124-condor-cargo-jet-190954971.html)
-- Jul 11 - [US senators warn Nvidia CEO about upcoming China trip](https://finance.yahoo.com/news/us-senators-warn-nvidia-ceo-190255991.html)
+- Jul 11 - [Mystery of the human toe found in a box at Dash Point State Park has been solved](https://www.yahoo.com/news/mystery-human-toe-found-box-223742142.html)
+- Jul 11 - [Court overturns ex-state attorney's mortgage fraud conviction but upholds perjury convictions](https://www.yahoo.com/news/court-overturns-ex-state-attorneys-203905574.html)
 <!-- feed end -->
