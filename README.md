@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [The Hill's Headlines - July 13, 2025](https://www.yahoo.com/news/hills-headlines-july-13-2025-174900811.html)
 - Jul 13 - [‘Get out of here, you loser’: Border czar Tom Homan lays into heckler and later admits US citizens are swept up in raids](https://www.yahoo.com/news/loser-border-czar-tom-homan-155054304.html)
+- Jul 13 - [An official says a historic Grand Canyon lodge has been destroyed by wildfire](https://www.yahoo.com/news/official-says-historic-grand-canyon-172813002.html)
 - Jul 13 - [A 94-year-old grandmother lost her house in the Texas floods. Her family says rebuilding their home is worth the risk](https://www.yahoo.com/news/94-old-grandmother-lost-her-160024644.html)
-- Jul 13 - [2 Football Players Killed On Way To Practice, 'Horrific'](https://www.yahoo.com/news/2-football-players-killed-way-150714615.html)
-- Jul 13 - [Emergency crews suspend search for flooding victims in central Texas amid new flood warnings](https://www.yahoo.com/news/emergency-crews-suspend-search-flooding-142715675.html)
-- Jul 13 - [Fact Check: Former Trump White House lawyer Ty Cobb said president is 'worse than anyone in our history'](https://www.yahoo.com/news/fact-check-former-trump-white-130000621.html)
+- Jul 13 - [Amid Air India probe, US FAA, Boeing notify fuel switch locks are safe, document, sources say](https://finance.yahoo.com/news/amid-air-india-probe-us-154051895.html)
 <!-- feed end -->
