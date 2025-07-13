@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 12 - [Air India crash report points to chip malfunction, says analyst](https://www.yahoo.com/news/air-india-crash-report-points-193825940.html)
-- Jul 12 - [This South Carolina mom of 3 was left to run entire Burger King by herself for 12+ hours. Then BK responded](https://www.yahoo.com/news/south-carolina-mom-3-left-184500737.html)
 - Jul 12 - [Donald Trump Was Asked About His Message To Texas Families Who Are Angry About Late Flood Alerts, And His Response Is Going Viral For Being "Sick Beyond Belief"](https://www.yahoo.com/news/donald-trump-asked-message-texas-173051415.html)
-- Jul 12 - [Grant Cardone Calls Making $400K a Year 'Embarrassing,' Says Do The Math, It's $35K a Month —'You Should Be Ashamed as a Husband and Father'](https://finance.yahoo.com/news/grant-cardone-calls-making-400k-170057386.html)
+- Jul 12 - [Archaeolgists Find Largest-Ever Ceremony Hall, Weapons Hoard](https://www.yahoo.com/news/archaeolgists-largest-ever-ceremony-hall-170000556.html)
 - Jul 12 - [After “quite a bit of drama in the White House,” the network’s panel suggested the FBI’s deputy director is staring at defeat in his bust-up with Attorney General Pam Bondi.](https://www.yahoo.com/news/quite-bit-drama-white-house-163158541.html)
+- Jul 12 - [Mysterious Signals From Deep Space Hint at Something Brutal, Scientists Say](https://www.yahoo.com/news/mysterious-signals-deep-space-hint-151500211.html)
 <!-- feed end -->
