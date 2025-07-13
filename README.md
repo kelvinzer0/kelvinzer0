@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Woman Sparks Debate After She Says She Was ‘Raging’ Because Her Grown Children Avoided Meeting Their Cousins’ New Baby](https://www.yahoo.com/lifestyle/articles/woman-sparks-debate-she-says-083000914.html)
+- Jul 13 - [Opinion: Trump's Big Beautiful Bill is at odds with the teachings of Jesus](https://www.yahoo.com/news/opinion-trumps-big-beautiful-bill-090211902.html)
+- Jul 13 - [Summer beach day turns dangerous as lightning strikes three at St. Augustine Pier in Florida](https://www.yahoo.com/news/summer-beach-day-turns-dangerous-075022632.html)
 - Jul 13 - [3 Orange County women arrested after police find over $12,000 worth of stolen merchandise](https://www.yahoo.com/news/3-orange-county-women-arrested-020649526.html)
-- Jul 13 - [Why Boeing Retired Its Iconic C-17 Globemaster III](https://autos.yahoo.com/articles/why-boeing-retired-iconic-c-002500615.html)
-- Jul 12 - [Charges dropped against Utah doctor accused of throwing away $28,000 in COVID vaccine doses](https://www.yahoo.com/news/charges-dropped-against-utah-doctor-220440162.html)
-- Jul 12 - [This South Carolina mom of 3 was left to run entire Burger King by herself for 12+ hours. Then BK responded](https://www.yahoo.com/news/south-carolina-mom-3-left-184500737.html)
+- Jul 12 - [Dave Ramsey's 'Shortest Call in Show History' Came From a 20-Year Listener With $211K Cash and a Mortgage — You Can Probably Guess What He Said](https://finance.yahoo.com/news/dave-ramseys-shortest-call-show-203142858.html)
+- Jul 12 - [Air India crash report points to chip malfunction, says analyst](https://www.yahoo.com/news/air-india-crash-report-points-193825940.html)
 <!-- feed end -->
