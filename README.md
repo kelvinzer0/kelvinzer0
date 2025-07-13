@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Israeli missile hits Gaza children collecting water, IDF blames malfunction](https://www.yahoo.com/news/israeli-missile-hits-gaza-children-135317079.html)
-- Jul 13 - [I Asked ChatGPT Which Car Brand Has the Most Reliable Vehicles — Here’s What It Said](https://www.yahoo.com/lifestyle/articles/asked-chatgpt-car-brand-most-120140723.html)
-- Jul 13 - [Ukraine's security agency says it killed Russian agents suspected of gunning down its officer](https://www.yahoo.com/news/ukraines-security-agency-says-killed-104442370.html)
+- Jul 13 - [Social Security recipients: Why your payment might be cut in half](https://www.yahoo.com/news/social-security-recipients-why-payment-140333292.html)
+- Jul 13 - [Nvidia CEO to hold media briefing in Beijing on July 16](https://finance.yahoo.com/news/nvidia-ceo-hold-media-briefing-111149055.html)
+- Jul 13 - [Trump’s mass deportation is backfiring](https://www.yahoo.com/news/trump-mass-deportation-backfiring-110024150.html)
+- Jul 13 - [Military jet's mysterious collision raises questions about advanced UFOs in US airspace: 'Been here all along'](https://www.yahoo.com/news/military-jets-mysterious-collision-raises-100045814.html)
 - Jul 13 - [Wounded Iranian president forced to escape through emergency hatch during Israeli air strike](https://www.yahoo.com/news/wounded-iranian-president-forced-escape-092000139.html)
-- Jul 13 - [Warren Buffett Says Most Investors Should Buy This Vanguard Index Fund. It Could Turn $500 Per Month Into $1 Million.](https://finance.yahoo.com/news/warren-buffett-says-most-investors-075500067.html)
 <!-- feed end -->
