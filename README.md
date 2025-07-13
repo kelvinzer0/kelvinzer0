@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Unconventional relationship holds answers to violent Florida murder](https://www.yahoo.com/news/unconventional-relationship-holds-answers-violent-030500540.html)
-- Jul 13 - [Elon Breaks Silence on Trump’s Epstein File Demand to MAGA](https://www.yahoo.com/news/elon-breaks-silence-trump-epstein-051827807.html)
-- Jul 13 - [3 Orange County women arrested after police find over $12,000 worth of stolen merchandise](https://www.yahoo.com/news/3-orange-county-women-arrested-020649526.html)
-- Jul 13 - [These 5 Technology Stocks Are Money-Printing Machines](https://finance.yahoo.com/news/5-technology-stocks-money-printing-011000940.html)
-- Jul 13 - [Why Boeing Retired Its Iconic C-17 Globemaster III](https://autos.yahoo.com/articles/why-boeing-retired-iconic-c-002500615.html)
+- Jul 13 - [Israeli missile hits Gaza children collecting water, IDF blames malfunction](https://www.yahoo.com/news/israeli-missile-hits-gaza-children-135317079.html)
+- Jul 13 - [I Asked ChatGPT Which Car Brand Has the Most Reliable Vehicles — Here’s What It Said](https://www.yahoo.com/lifestyle/articles/asked-chatgpt-car-brand-most-120140723.html)
+- Jul 13 - [Ukraine's security agency says it killed Russian agents suspected of gunning down its officer](https://www.yahoo.com/news/ukraines-security-agency-says-killed-104442370.html)
+- Jul 13 - [Wounded Iranian president forced to escape through emergency hatch during Israeli air strike](https://www.yahoo.com/news/wounded-iranian-president-forced-escape-092000139.html)
+- Jul 13 - [Warren Buffett Says Most Investors Should Buy This Vanguard Index Fund. It Could Turn $500 Per Month Into $1 Million.](https://finance.yahoo.com/news/warren-buffett-says-most-investors-075500067.html)
 <!-- feed end -->
