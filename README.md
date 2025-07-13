@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [Trump to make unprecedented second state visit to UK between Sept 17-19](https://www.yahoo.com/news/trump-unprecedented-second-state-visit-230219961.html)
+- Jul 13 - [Virginia Homeowner Says Neighbor Illegally Cut Down 89-Year-Old Oak Tree On His Land — Then Had the Nerve To 'Demand' He Pay Half The $2k Bill](https://finance.yahoo.com/news/virginia-homeowner-says-neighbor-illegally-203017410.html)
+- Jul 13 - [Here’s the net worth you need to be in the top 10% of Americans — why it’s a lot higher than you might think](https://finance.yahoo.com/news/net-worth-top-10-americans-195000304.html)
 - Jul 13 - [They Bought A $400,000 House In Austin, Texas, With Cash. A Year Later, They Hate It There And Want Out—Even If It Means Losing $40,000](https://finance.yahoo.com/news/bought-400-000-house-austin-193111140.html)
-- Jul 13 - [I-10 closed in East El Paso after pedestrian found on freeway](https://www.yahoo.com/news/10-closed-east-el-paso-174218824.html)
 - Jul 13 - [‘Get out of here, you loser’: Border czar Tom Homan lays into heckler and later admits US citizens are swept up in raids](https://www.yahoo.com/news/loser-border-czar-tom-homan-155054304.html)
-- Jul 13 - [Wildfire destroys a historic Grand Canyon lodge and other structures](https://www.yahoo.com/news/official-says-historic-grand-canyon-172813002.html)
-- Jul 13 - [Trump's focus on a transshipping loophole could reorder how global trade works](https://finance.yahoo.com/news/trumps-focus-on-a-transshipping-loophole-could-reorder-how-global-trade-works-143025702.html)
 <!-- feed end -->
