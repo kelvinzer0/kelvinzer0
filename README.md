@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Opinion: Trump's Big Beautiful Bill is at odds with the teachings of Jesus](https://www.yahoo.com/news/opinion-trumps-big-beautiful-bill-090211902.html)
-- Jul 13 - [Summer beach day turns dangerous as lightning strikes three at St. Augustine Pier in Florida](https://www.yahoo.com/news/summer-beach-day-turns-dangerous-075022632.html)
-- Jul 13 - [3 Orange County women arrested after police find over $12,000 worth of stolen merchandise](https://www.yahoo.com/news/3-orange-county-women-arrested-020649526.html)
-- Jul 12 - [Dave Ramsey's 'Shortest Call in Show History' Came From a 20-Year Listener With $211K Cash and a Mortgage — You Can Probably Guess What He Said](https://finance.yahoo.com/news/dave-ramseys-shortest-call-show-203142858.html)
-- Jul 12 - [Air India crash report points to chip malfunction, says analyst](https://www.yahoo.com/news/air-india-crash-report-points-193825940.html)
+- Jul 13 - ['We support the status quo': Australia's Albanese on Taiwan](https://www.yahoo.com/news/support-status-quo-australias-albanese-110330829.html)
+- Jul 13 - [Ukraine's security agency says it killed Russian agents suspected of gunning down its officer](https://www.yahoo.com/news/ukraines-security-agency-says-killed-104442370.html)
+- Jul 13 - ['Smelly cats' in rubbish dump named after TV's Friends](https://www.yahoo.com/news/smelly-cats-rubbish-dump-named-095053028.html)
+- Jul 13 - [One of Wall Street's Flawless Stock Market Predictors Is Knocking on the Door of History -- and Not in a Good Way](https://finance.yahoo.com/news/one-wall-streets-flawless-stock-075100176.html)
+- Jul 13 - [The Stock Market Did Something for Just the 6th Time Since 1957. History Says It Signals a Big Move for the S&P 500 Over the Coming Year.](https://finance.yahoo.com/news/stock-market-did-something-just-070500625.html)
 <!-- feed end -->
