@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [The Hill's Headlines - July 13, 2025](https://www.yahoo.com/news/hills-headlines-july-13-2025-174900811.html)
+- Jul 13 - [Crash closes portion of I-490 near Eastview Mall: Drivers urged to avoid area](https://www.yahoo.com/news/crash-closes-portion-490-near-183643014.html)
+- Jul 13 - [LIVE UPDATES: Weather Alerts issued for multiple parts of Central Florida](https://www.yahoo.com/news/weather-alert-issued-seminole-county-182711170.html)
 - Jul 13 - [‘Get out of here, you loser’: Border czar Tom Homan lays into heckler and later admits US citizens are swept up in raids](https://www.yahoo.com/news/loser-border-czar-tom-homan-155054304.html)
 - Jul 13 - [A 94-year-old grandmother lost her house in the Texas floods. Her family says rebuilding their home is worth the risk](https://www.yahoo.com/news/94-old-grandmother-lost-her-160024644.html)
 - Jul 13 - [Amid Air India probe, US FAA, Boeing notify fuel switch locks are safe, document, sources say](https://finance.yahoo.com/news/amid-air-india-probe-us-154051895.html)
-- Jul 13 - [Marine hopeful found dead on roadside after holiday party may have been 'beat to death,' lawsuit claims](https://www.yahoo.com/news/marine-hopeful-found-dead-roadside-140026836.html)
 <!-- feed end -->
