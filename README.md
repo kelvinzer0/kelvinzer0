@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 13 - [‘Get out of here, you loser’: Border czar Tom Homan lays into heckler and later admits US citizens are swept up in raids](https://www.yahoo.com/news/loser-border-czar-tom-homan-155054304.html)
-- Jul 13 - [Amazon boasts futuristic robots have 'a sense of touch.' Teradyne is key supplier behind this new innovation.](https://finance.yahoo.com/news/amazon-boasts-futuristic-robots-have-a-sense-of-touch-teradyne-is-key-supplier-behind-this-new-innovation-160213396.html)
-- Jul 13 - [Nvidia (NVDA) Just Got a Buy Rating From Goldman—Here’s Why Analysts Are Bullish](https://finance.yahoo.com/news/nvidia-nvda-just-got-buy-154402268.html)
-- Jul 13 - [Social Security recipients: Why your payment might be cut in half](https://www.yahoo.com/news/social-security-recipients-why-payment-140333292.html)
-- Jul 13 - [Marine hopeful found dead on roadside after holiday party may have been 'beat to death,' lawsuit claims](https://www.yahoo.com/news/marine-hopeful-found-dead-roadside-140026836.html)
+- Jul 13 - [A 94-year-old grandmother lost her house in the Texas floods. Her family says rebuilding their home is worth the risk](https://www.yahoo.com/news/94-old-grandmother-lost-her-160024644.html)
+- Jul 13 - [2 Football Players Killed On Way To Practice, 'Horrific'](https://www.yahoo.com/news/2-football-players-killed-way-150714615.html)
+- Jul 13 - [Emergency crews suspend search for flooding victims in central Texas amid new flood warnings](https://www.yahoo.com/news/emergency-crews-suspend-search-flooding-142715675.html)
+- Jul 13 - [Fact Check: Former Trump White House lawyer Ty Cobb said president is 'worse than anyone in our history'](https://www.yahoo.com/news/fact-check-former-trump-white-130000621.html)
 <!-- feed end -->
