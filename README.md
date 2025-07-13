@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Crash closes portion of I-490 near Eastview Mall: Drivers urged to avoid area](https://www.yahoo.com/news/crash-closes-portion-490-near-183643014.html)
+- Jul 13 - [They Bought A $400,000 House In Austin, Texas, With Cash. A Year Later, They Hate It There And Want Out—Even If It Means Losing $40,000](https://finance.yahoo.com/news/bought-400-000-house-austin-193111140.html)
 - Jul 13 - [LIVE UPDATES: Weather Alerts issued for multiple parts of Central Florida](https://www.yahoo.com/news/weather-alert-issued-seminole-county-182711170.html)
 - Jul 13 - [‘Get out of here, you loser’: Border czar Tom Homan lays into heckler and later admits US citizens are swept up in raids](https://www.yahoo.com/news/loser-border-czar-tom-homan-155054304.html)
-- Jul 13 - [A 94-year-old grandmother lost her house in the Texas floods. Her family says rebuilding their home is worth the risk](https://www.yahoo.com/news/94-old-grandmother-lost-her-160024644.html)
-- Jul 13 - [Amid Air India probe, US FAA, Boeing notify fuel switch locks are safe, document, sources say](https://finance.yahoo.com/news/amid-air-india-probe-us-154051895.html)
+- Jul 13 - [Arizona man’s HOA keeps fining him $100 for giving out water in heat — lawyer for HOA explains. Do you agree?](https://www.yahoo.com/news/arizona-man-hoa-keeps-fining-172500244.html)
+- Jul 13 - [Trump's focus on a transshipping loophole could reorder how global trade works](https://finance.yahoo.com/news/trumps-focus-on-a-transshipping-loophole-could-reorder-how-global-trade-works-143025702.html)
 <!-- feed end -->
