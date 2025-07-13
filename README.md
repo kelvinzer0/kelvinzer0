@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 13 - [‘Get out of here, you loser’: Border czar Tom Homan lays into heckler and later admits US citizens are swept up in raids](https://www.yahoo.com/news/loser-border-czar-tom-homan-155054304.html)
+- Jul 13 - [Amazon boasts futuristic robots have 'a sense of touch.' Teradyne is key supplier behind this new innovation.](https://finance.yahoo.com/news/amazon-boasts-futuristic-robots-have-a-sense-of-touch-teradyne-is-key-supplier-behind-this-new-innovation-160213396.html)
+- Jul 13 - [Nvidia (NVDA) Just Got a Buy Rating From Goldman—Here’s Why Analysts Are Bullish](https://finance.yahoo.com/news/nvidia-nvda-just-got-buy-154402268.html)
 - Jul 13 - [Social Security recipients: Why your payment might be cut in half](https://www.yahoo.com/news/social-security-recipients-why-payment-140333292.html)
-- Jul 13 - [Nvidia CEO to hold media briefing in Beijing on July 16](https://finance.yahoo.com/news/nvidia-ceo-hold-media-briefing-111149055.html)
-- Jul 13 - [Trump’s mass deportation is backfiring](https://www.yahoo.com/news/trump-mass-deportation-backfiring-110024150.html)
-- Jul 13 - [Military jet's mysterious collision raises questions about advanced UFOs in US airspace: 'Been here all along'](https://www.yahoo.com/news/military-jets-mysterious-collision-raises-100045814.html)
-- Jul 13 - [Wounded Iranian president forced to escape through emergency hatch during Israeli air strike](https://www.yahoo.com/news/wounded-iranian-president-forced-escape-092000139.html)
+- Jul 13 - [Marine hopeful found dead on roadside after holiday party may have been 'beat to death,' lawsuit claims](https://www.yahoo.com/news/marine-hopeful-found-dead-roadside-140026836.html)
 <!-- feed end -->
