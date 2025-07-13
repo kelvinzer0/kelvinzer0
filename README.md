@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 13 - [3 Orange County women arrested after police find over $12,000 worth of stolen merchandise](https://www.yahoo.com/news/3-orange-county-women-arrested-020649526.html)
-- Jul 12 - [Missing, endangered advisory canceled after Alisa Petrov found safe](https://www.yahoo.com/news/missing-endangered-advisory-issued-runaway-234531187.html)
-- Jul 12 - [Charges dropped against Utah doctor accused of throwing away $28,000 in COVID vaccine doses](https://www.yahoo.com/news/charges-dropped-against-utah-doctor-220440162.html)
 - Jul 12 - [This South Carolina mom of 3 was left to run entire Burger King by herself for 12+ hours. Then BK responded](https://www.yahoo.com/news/south-carolina-mom-3-left-184500737.html)
-- Jul 12 - [Hissing owls heard in Ohio: Here’s what it means](https://www.yahoo.com/news/hissing-owls-heard-ohio-means-155931977.html)
+- Jul 12 - [Cost of stamps increasing July 13: See USPS's new prices](https://www.yahoo.com/news/cost-stamps-increasing-july-13-183641534.html)
+- Jul 12 - [Donald Trump Was Asked About His Message To Texas Families Who Are Angry About Late Flood Alerts, And His Response Is Going Viral For Being "Sick Beyond Belief"](https://www.yahoo.com/news/donald-trump-asked-message-texas-173051415.html)
+- Jul 12 - [Mysterious Signals From Deep Space Hint at Something Brutal, Scientists Say](https://www.yahoo.com/news/mysterious-signals-deep-space-hint-151500211.html)
 <!-- feed end -->
