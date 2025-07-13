@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Prediction: This Magnificent Artificial Intelligence (AI) Stock Will Be the Most Valuable Company in the World by 2030 (Hint: It's Not Nvidia or Microsoft)](https://finance.yahoo.com/news/prediction-magnificent-artificial-intelligence-ai-010000165.html)
+- Jul 13 - [3 Orange County women arrested after police find over $12,000 worth of stolen merchandise](https://www.yahoo.com/news/3-orange-county-women-arrested-020649526.html)
 - Jul 12 - [This South Carolina mom of 3 was left to run entire Burger King by herself for 12+ hours. Then BK responded](https://www.yahoo.com/news/south-carolina-mom-3-left-184500737.html)
+- Jul 12 - [Cost of stamps increasing July 13: See USPS's new prices](https://www.yahoo.com/news/cost-stamps-increasing-july-13-183641534.html)
 - Jul 12 - ['Great bodily injury': Shuttered Beer Hunter loses liquor license after serving minors](https://www.yahoo.com/news/great-bodily-injury-shuttered-beer-181759793.html)
-- Jul 12 - [Woman unaccounted for after Camarillo immigration raid recorded video right before being detained: ‘I’m not coming down’](https://www.yahoo.com/news/woman-unaccounted-camarillo-immigration-raid-162724219.html)
-- Jul 12 - [Mysterious Signals From Deep Space Hint at Something Brutal, Scientists Say](https://www.yahoo.com/news/mysterious-signals-deep-space-hint-151500211.html)
+- Jul 12 - [Donald Trump Was Asked About His Message To Texas Families Who Are Angry About Late Flood Alerts, And His Response Is Going Viral For Being "Sick Beyond Belief"](https://www.yahoo.com/news/donald-trump-asked-message-texas-173051415.html)
 <!-- feed end -->
