@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Philippine defense chief renounced Maltese citizenship before his appointment, department says](https://www.yahoo.com/news/philippine-defense-chief-renounced-maltese-080411034.html)
-- Jul 14 - [South Korea set to order airlines to check Boeing jet fuel switches](https://www.yahoo.com/news/south-korea-preparing-order-airlines-064322822.html)
+- Jul 14 - [Pilot groups reject claims of human error in Air India crash](https://www.yahoo.com/news/pilot-groups-reject-claims-human-081216008.html)
+- Jul 14 - [Kim Jong Un says he'll 'unconditionally support' Russia's war amid a report he's sending 30,000 more troops against Ukraine](https://www.yahoo.com/news/kim-jong-un-says-hell-063400962.html)
 - Jul 14 - [Kpods pushed by organised crime groups: UN; Jannik Sinner is first Italian to win Wimbledon singles: Singapore live news](https://www.yahoo.com/news/live/kpods-pushed-by-organised-crime-groups-un-jannik-sinner-is-first-italian-to-win-wimbledon-singles-singapore-live-news-020830343.html)
 - Jul 14 - [The founder of a luxury hotel chain says today's tourists look nothing like they did 30 years ago](https://www.yahoo.com/lifestyle/articles/founder-luxury-hotel-chain-says-000001288.html)
 - Jul 13 - [ICE may deport migrants to countries other than their own with just six hours notice, memo says](https://www.yahoo.com/news/ice-may-deport-migrants-countries-193328837.html)
