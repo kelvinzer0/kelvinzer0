@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Thomas Massie, GOP congressman who broke with Trump, reports strong fundraising](https://www.yahoo.com/news/thomas-massie-gop-congressman-broke-221233084.html)
+- Jul 14 - [Diageo calls tequila purity allegation 'baseless' as US lawsuit proceeds](https://finance.yahoo.com/news/diageo-calls-tequila-purity-allegation-215316426.html)
+- Jul 14 - [New York official again rebuffs Texas judgment against doctor over abortion pills](https://www.yahoo.com/news/york-official-again-rebuffs-texas-212802945.html)
+- Jul 14 - [Trump administration says it won't publish major climate change report on NASA website as promised](https://www.yahoo.com/news/trump-administration-says-wont-publish-210234867.html)
 - Jul 14 - [Satellite images show Russia building up its secret nuclear bases](https://www.yahoo.com/news/satellite-images-show-russia-building-210159090.html)
-- Jul 14 - [Bongino’s Breaking Point: Epstein Case Sparks Resignation Threat](https://www.yahoo.com/news/bongino-breaking-point-epstein-case-201236091.html)
-- Jul 14 - ['We Were Not Planning On This Kind Of Expenditure At This Point In Our Lives,' How These Parents Are Dealing With Their 'Boomerang Kid'](https://finance.yahoo.com/news/were-not-planning-kind-expenditure-193158512.html)
-- Jul 14 - [Connecticut man gets 65 years for killing his girlfriend, but their daughter remains missing](https://www.yahoo.com/news/man-gets-65-years-prison-183223598.html)
-- Jul 14 - [Analysis-US rare earth pricing system is poised to challenge China's dominance](https://finance.yahoo.com/news/analysis-us-rare-earth-pricing-174836606.html)
 <!-- feed end -->
