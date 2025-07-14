@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Dr. Oz Gives Weird Health Care Advice To Americans Losing Their Medicaid](https://www.yahoo.com/news/dr-oz-gives-weird-health-225831121.html)
+- Jul 14 - [It’s either that or Pam Bondi “royally screwed up,” the MAGA podcaster declared.](https://www.yahoo.com/news/either-pam-bondi-royally-screwed-223110953.html)
 - Jul 14 - [Thomas Massie, GOP congressman who broke with Trump, reports strong fundraising](https://www.yahoo.com/news/thomas-massie-gop-congressman-broke-221233084.html)
-- Jul 14 - [Diageo calls tequila purity allegation 'baseless' as US lawsuit proceeds](https://finance.yahoo.com/news/diageo-calls-tequila-purity-allegation-215316426.html)
-- Jul 14 - [New York official again rebuffs Texas judgment against doctor over abortion pills](https://www.yahoo.com/news/york-official-again-rebuffs-texas-212802945.html)
-- Jul 14 - [Trump administration says it won't publish major climate change report on NASA website as promised](https://www.yahoo.com/news/trump-administration-says-wont-publish-210234867.html)
-- Jul 14 - [Satellite images show Russia building up its secret nuclear bases](https://www.yahoo.com/news/satellite-images-show-russia-building-210159090.html)
+- Jul 14 - [Farmer killed in water buffalo attack, Oklahoma police say](https://www.yahoo.com/news/farmer-killed-water-buffalo-attack-215615505.html)
+- Jul 14 - [Adams’ new campaign HQ opens in SL Green building amid key support from real estate giant](https://www.yahoo.com/news/adams-campaign-hq-opens-sl-215500246.html)
 <!-- feed end -->
