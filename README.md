@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Former Israeli leader says planned ‘humanitarian city’ in Gaza would be a ‘concentration camp’](https://www.yahoo.com/news/former-israeli-leader-says-planned-130459162.html)
+- Jul 14 - [German customs officials show images of tarantulas hidden in spongecake boxes after smuggling bust](https://www.yahoo.com/news/german-customs-officials-show-images-125946203.html)
 - Jul 14 - [BBC's Gaza documentary breached accuracy guideline, review finds](https://www.yahoo.com/news/bbcs-gaza-documentary-breached-accuracy-124650923.html)
-- Jul 14 - [Hegseth’s Video Deleted, Reposted After Metallica’s Cease & Desist Over Unauthorized Use of ‘Enter Sandman’ in Drone Clip](https://www.yahoo.com/entertainment/articles/hegseth-video-deleted-reposted-metallica-124000200.html)
-- Jul 14 - [Mama Bear’s Cool Encounter With Alaskan Wildlife Photographer Has Us Stunned](https://www.yahoo.com/lifestyle/articles/mama-bear-cool-encounter-alaskan-121500763.html)
 - Jul 14 - [India's Sun Pharma launches hair loss drug Leqselvi in US after patent settlement](https://finance.yahoo.com/news/indias-sun-pharma-launches-anti-113850909.html)
-- Jul 14 - [2 dead, suspect killed at a Lexington, Kentucky, church after suspect shot a state trooper, police say](https://www.yahoo.com/news/multiple-people-injured-kentucky-church-184718540.html)
+- Jul 14 - [Officials investigate unexpected death of apex predator after long-awaited return to national park: 'It's heartbreaking'](https://www.yahoo.com/news/officials-investigate-unexpected-death-apex-113009351.html)
 <!-- feed end -->
