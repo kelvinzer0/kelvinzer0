@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Wall St slips with Asia stocks as US trade policy confounds](https://finance.yahoo.com/news/wall-st-slips-asia-stocks-002239040.html)
 - Jul 14 - [The founder of a luxury hotel chain says today's tourists look nothing like they did 30 years ago](https://www.yahoo.com/lifestyle/articles/founder-luxury-hotel-chain-says-000001288.html)
+- Jul 13 - [Beloved Cincinnati Imam detained by ICE after asylum revoked](https://www.yahoo.com/news/beloved-cincinnati-imam-detained-ice-234011260.html)
 - Jul 13 - [A 94-year-old grandmother lost her house in the Texas floods. Her family says rebuilding their home is worth the risk](https://www.yahoo.com/news/94-old-grandmother-lost-her-160024644.html)
-- Jul 13 - [Ruidoso area under flood watch through Monday evening](https://www.yahoo.com/news/ruidoso-area-under-flood-watch-193054877.html)
-- Jul 13 - [Protesters with pride signs confront Indy church after anti-LGBTQ sermon calls for violence](https://www.yahoo.com/news/protesters-pride-signs-confront-indy-185859747.html)
+- Jul 13 - [Two dead and three injured, including state trooper, in Kentucky shootings](https://www.yahoo.com/news/two-dead-three-injured-including-220338847.html)
+- Jul 13 - [ICE may deport migrants to countries other than their own with just six hours notice, memo says](https://www.yahoo.com/news/ice-may-deport-migrants-countries-193328837.html)
 <!-- feed end -->
