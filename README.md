@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 13 - [Trump to make unprecedented second state visit to UK between Sept 17-19](https://www.yahoo.com/news/trump-unprecedented-second-state-visit-230219961.html)
-- Jul 13 - [Virginia Homeowner Says Neighbor Illegally Cut Down 89-Year-Old Oak Tree On His Land — Then Had the Nerve To 'Demand' He Pay Half The $2k Bill](https://finance.yahoo.com/news/virginia-homeowner-says-neighbor-illegally-203017410.html)
-- Jul 13 - [Here’s the net worth you need to be in the top 10% of Americans — why it’s a lot higher than you might think](https://finance.yahoo.com/news/net-worth-top-10-americans-195000304.html)
-- Jul 13 - [They Bought A $400,000 House In Austin, Texas, With Cash. A Year Later, They Hate It There And Want Out—Even If It Means Losing $40,000](https://finance.yahoo.com/news/bought-400-000-house-austin-193111140.html)
-- Jul 13 - [‘Get out of here, you loser’: Border czar Tom Homan lays into heckler and later admits US citizens are swept up in raids](https://www.yahoo.com/news/loser-border-czar-tom-homan-155054304.html)
+- Jul 14 - [Wall St slips with Asia stocks as US trade policy confounds](https://finance.yahoo.com/news/wall-st-slips-asia-stocks-002239040.html)
+- Jul 14 - [The founder of a luxury hotel chain says today's tourists look nothing like they did 30 years ago](https://www.yahoo.com/lifestyle/articles/founder-luxury-hotel-chain-says-000001288.html)
+- Jul 13 - [A 94-year-old grandmother lost her house in the Texas floods. Her family says rebuilding their home is worth the risk](https://www.yahoo.com/news/94-old-grandmother-lost-her-160024644.html)
+- Jul 13 - [Ruidoso area under flood watch through Monday evening](https://www.yahoo.com/news/ruidoso-area-under-flood-watch-193054877.html)
+- Jul 13 - [Protesters with pride signs confront Indy church after anti-LGBTQ sermon calls for violence](https://www.yahoo.com/news/protesters-pride-signs-confront-indy-185859747.html)
 <!-- feed end -->
