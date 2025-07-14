@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Eight arrested after far-right groups and migrants clash in Spanish town](https://www.yahoo.com/news/eight-arrested-far-groups-migrants-103958741.html)
 - Jul 14 - [Kpods pushed by organised crime groups: UN; JJ Lin reveals heart condition diagnosis: Singapore live news](https://www.yahoo.com/news/live/kpods-pushed-by-organised-crime-groups-un-jj-lin-reveals-heart-condition-diagnosis-singapore-live-news-101409053.html)
-- Jul 14 - ['Don't drown': Timeline of the Guadalupe River flooding disaster](https://www.yahoo.com/news/dont-drown-timeline-guadalupe-river-100530147.html)
-- Jul 14 - [Tesla stock needs 'Elon Musk magic,' expert says](https://finance.yahoo.com/video/tesla-stock-needs-elon-musk-100024661.html)
-- Jul 14 - [These Democrats believe Kamala won the election – in an alternate universe](https://www.yahoo.com/news/democrats-believe-kamala-won-election-093000621.html)
-- Jul 14 - [Trending tickers: Lionsgate, Nio, Boeing, AstraZeneca and Fresnillo](https://uk.finance.yahoo.com/news/lionsgate-nio-boeing-astrazeneca-fresnillo-trending-tickers-092934452.html)
+- Jul 14 - [Musk Suggests a Tesla Shareholder Vote on xAI Investment](https://finance.yahoo.com/video/musk-suggests-tesla-shareholder-vote-100337003.html)
+- Jul 14 - [Fact Check: Posts claim photo shows Trump and Epstein with minor girl. Here's the truth](https://www.yahoo.com/news/fact-check-posts-claim-photo-100000520.html)
+- Jul 14 - [Hospital evacuated as half of Spain hit by heavy rain](https://www.yahoo.com/news/hospital-evacuated-half-spain-hit-082554220.html)
 <!-- feed end -->
