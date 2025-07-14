@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Bitcoin rally driven more by institutional demand than speculation](https://finance.yahoo.com/news/bitcoin-rally-driven-more-institutional-150957034.html)
-- Jul 14 - [China steps in as US pulls back from diplomacy, report says](https://www.yahoo.com/news/china-steps-us-pulls-back-150447057.html)
-- Jul 14 - [IDF strikes Syrian tanks that advanced towards site of sectarian violence, near Israel's border](https://www.yahoo.com/news/idf-strikes-syrian-tanks-advanced-144403968.html)
-- Jul 14 - [Airport roof collapses as Spain hit by powerful earthquake](https://www.yahoo.com/news/airport-roof-collapses-spain-hit-111915531.html)
-- Jul 14 - [India orders its airlines to check fuel switches on Boeing jets](https://finance.yahoo.com/news/india-orders-airlines-check-fuel-123507311.html)
+- Jul 14 - [A British aristocrat and her boyfriend are convicted of killing their newborn](https://www.yahoo.com/news/british-aristocrat-her-boyfriend-convicted-153841457.html)
+- Jul 14 - [Gunman ID'd After Killing 2 in Kentucky Church — and Making Chilling Remark Upon Learning Intended Target Wasn't There](https://www.yahoo.com/news/gunman-idd-killing-2-kentucky-153836355.html)
+- Jul 14 - [Fall River Mayor: Owner of assisted-living facility where nine people died in a fire is cooperating](https://www.yahoo.com/news/fall-river-mayor-owner-assisted-153514831.html)
+- Jul 14 - [India orders airlines to check fuel switches on Boeing jets](https://www.yahoo.com/news/india-orders-airlines-check-fuel-152508829.html)
+- Jul 14 - [Olivia Rodrigo Speaks Out Against ‘Horrific & Completely Unacceptable’ Conditions in Palestine](https://www.yahoo.com/news/olivia-rodrigo-speaks-against-horrific-150055254.html)
 <!-- feed end -->
