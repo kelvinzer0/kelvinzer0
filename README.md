@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Australia PM touts green steel as iron ore miners meet Chinese steelmakers](https://www.yahoo.com/news/australian-pm-albanese-pledges-china-013905542.html)
-- Jul 14 - [The founder of a luxury hotel chain says today's tourists look nothing like they did 30 years ago](https://www.yahoo.com/lifestyle/articles/founder-luxury-hotel-chain-says-000001288.html)
-- Jul 13 - [Virginia Homeowner Says Neighbor Illegally Cut Down 89-Year-Old Oak Tree On His Land — Then Had the Nerve To 'Demand' He Pay Half The $2k Bill](https://finance.yahoo.com/news/virginia-homeowner-says-neighbor-illegally-203017410.html)
+- Jul 14 - [Mora hatchery’s Gila Trout recovery efforts showing promise](https://www.yahoo.com/news/mora-hatchery-gila-trout-recovery-040000731.html)
+- Jul 14 - [Kpods pushed by organised crime groups: UN; Jannik Sinner is first Italian to win Wimbledon singles: Singapore live news](https://www.yahoo.com/news/live/kpods-pushed-by-organised-crime-groups-un-jannik-sinner-is-first-italian-to-win-wimbledon-singles-singapore-live-news-020830343.html)
+- Jul 14 - [Family of woman who was struck by Lufthansa CEO’s wife is ‘destroyed’ over her tragic death](https://www.yahoo.com/news/family-woman-struck-lufthansa-ceo-005046859.html)
 - Jul 13 - [ICE may deport migrants to countries other than their own with just six hours notice, memo says](https://www.yahoo.com/news/ice-may-deport-migrants-countries-193328837.html)
-- Jul 13 - ['Massive' 1,000 Pound Shark Caught at Popular U.S. Beach](https://www.yahoo.com/news/massive-1-000-pound-shark-192622497.html)
+- Jul 13 - [They Bought A $400,000 House In Austin, Texas, With Cash. A Year Later, They Hate It There And Want Out—Even If It Means Losing $40,000](https://finance.yahoo.com/news/bought-400-000-house-austin-193111140.html)
 <!-- feed end -->
