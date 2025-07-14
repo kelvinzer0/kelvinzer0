@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 14 - [Connecticut man gets 65 years for killing his girlfriend, but their daughter remains missing](https://www.yahoo.com/news/man-gets-65-years-prison-183223598.html)
-- Jul 14 - [Israel assassinates terrorist who held British hostage captive](https://www.yahoo.com/news/israel-assassinates-terrorist-held-british-175414809.html)
 - Jul 14 - [Analysis-US rare earth pricing system is poised to challenge China's dominance](https://finance.yahoo.com/news/analysis-us-rare-earth-pricing-174836606.html)
+- Jul 14 - [Black bear attacks 69-year-old woman; officials seek to euthanize animal](https://www.yahoo.com/news/black-bear-attacks-69-old-174832696.html)
 - Jul 14 - [Scientists Detect Sign of Something Impossible Out in Deep Space](https://www.yahoo.com/news/scientists-detect-sign-something-impossible-173651116.html)
 - Jul 14 - [Retired Army officer pleads guilty to sharing classified info on Russia-Ukraine war on dating site](https://www.yahoo.com/news/retired-army-officer-pleads-guilty-170003746.html)
 <!-- feed end -->
