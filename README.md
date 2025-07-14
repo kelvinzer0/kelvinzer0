@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Former Israeli leader says planned ‘humanitarian city’ in Gaza would be a ‘concentration camp’](https://www.yahoo.com/news/former-israeli-leader-says-planned-130459162.html)
-- Jul 14 - [German customs officials show images of tarantulas hidden in spongecake boxes after smuggling bust](https://www.yahoo.com/news/german-customs-officials-show-images-125946203.html)
-- Jul 14 - [BBC's Gaza documentary breached accuracy guideline, review finds](https://www.yahoo.com/news/bbcs-gaza-documentary-breached-accuracy-124650923.html)
-- Jul 14 - [India's Sun Pharma launches hair loss drug Leqselvi in US after patent settlement](https://finance.yahoo.com/news/indias-sun-pharma-launches-anti-113850909.html)
-- Jul 14 - [Officials investigate unexpected death of apex predator after long-awaited return to national park: 'It's heartbreaking'](https://www.yahoo.com/news/officials-investigate-unexpected-death-apex-113009351.html)
+- Jul 14 - [Bitcoin rally driven more by institutional demand than speculation](https://finance.yahoo.com/news/bitcoin-rally-driven-more-institutional-150957034.html)
+- Jul 14 - [China steps in as US pulls back from diplomacy, report says](https://www.yahoo.com/news/china-steps-us-pulls-back-150447057.html)
+- Jul 14 - [IDF strikes Syrian tanks that advanced towards site of sectarian violence, near Israel's border](https://www.yahoo.com/news/idf-strikes-syrian-tanks-advanced-144403968.html)
+- Jul 14 - [Airport roof collapses as Spain hit by powerful earthquake](https://www.yahoo.com/news/airport-roof-collapses-spain-hit-111915531.html)
+- Jul 14 - [India orders its airlines to check fuel switches on Boeing jets](https://finance.yahoo.com/news/india-orders-airlines-check-fuel-123507311.html)
 <!-- feed end -->
