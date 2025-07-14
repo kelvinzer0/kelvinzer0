@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 14 - [Australia PM touts green steel as iron ore miners meet Chinese steelmakers](https://www.yahoo.com/news/australian-pm-albanese-pledges-china-013905542.html)
 - Jul 14 - [The founder of a luxury hotel chain says today's tourists look nothing like they did 30 years ago](https://www.yahoo.com/lifestyle/articles/founder-luxury-hotel-chain-says-000001288.html)
-- Jul 13 - [Beloved Cincinnati Imam detained by ICE after asylum revoked](https://www.yahoo.com/news/beloved-cincinnati-imam-detained-ice-234011260.html)
-- Jul 13 - [A 94-year-old grandmother lost her house in the Texas floods. Her family says rebuilding their home is worth the risk](https://www.yahoo.com/news/94-old-grandmother-lost-her-160024644.html)
-- Jul 13 - [Two dead and three injured, including state trooper, in Kentucky shootings](https://www.yahoo.com/news/two-dead-three-injured-including-220338847.html)
+- Jul 13 - [Virginia Homeowner Says Neighbor Illegally Cut Down 89-Year-Old Oak Tree On His Land — Then Had the Nerve To 'Demand' He Pay Half The $2k Bill](https://finance.yahoo.com/news/virginia-homeowner-says-neighbor-illegally-203017410.html)
 - Jul 13 - [ICE may deport migrants to countries other than their own with just six hours notice, memo says](https://www.yahoo.com/news/ice-may-deport-migrants-countries-193328837.html)
+- Jul 13 - ['Massive' 1,000 Pound Shark Caught at Popular U.S. Beach](https://www.yahoo.com/news/massive-1-000-pound-shark-192622497.html)
 <!-- feed end -->
