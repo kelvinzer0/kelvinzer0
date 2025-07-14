@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Pilot groups reject claims of human error in Air India crash](https://www.yahoo.com/news/pilot-groups-reject-claims-human-081216008.html)
-- Jul 14 - [Kim Jong Un says he'll 'unconditionally support' Russia's war amid a report he's sending 30,000 more troops against Ukraine](https://www.yahoo.com/news/kim-jong-un-says-hell-063400962.html)
-- Jul 14 - [Kpods pushed by organised crime groups: UN; Jannik Sinner is first Italian to win Wimbledon singles: Singapore live news](https://www.yahoo.com/news/live/kpods-pushed-by-organised-crime-groups-un-jannik-sinner-is-first-italian-to-win-wimbledon-singles-singapore-live-news-020830343.html)
-- Jul 14 - [The founder of a luxury hotel chain says today's tourists look nothing like they did 30 years ago](https://www.yahoo.com/lifestyle/articles/founder-luxury-hotel-chain-says-000001288.html)
-- Jul 13 - [ICE may deport migrants to countries other than their own with just six hours notice, memo says](https://www.yahoo.com/news/ice-may-deport-migrants-countries-193328837.html)
+- Jul 14 - [Kpods pushed by organised crime groups: UN; JJ Lin reveals heart condition diagnosis: Singapore live news](https://www.yahoo.com/news/live/kpods-pushed-by-organised-crime-groups-un-jj-lin-reveals-heart-condition-diagnosis-singapore-live-news-101409053.html)
+- Jul 14 - ['Don't drown': Timeline of the Guadalupe River flooding disaster](https://www.yahoo.com/news/dont-drown-timeline-guadalupe-river-100530147.html)
+- Jul 14 - [Tesla stock needs 'Elon Musk magic,' expert says](https://finance.yahoo.com/video/tesla-stock-needs-elon-musk-100024661.html)
+- Jul 14 - [These Democrats believe Kamala won the election – in an alternate universe](https://www.yahoo.com/news/democrats-believe-kamala-won-election-093000621.html)
+- Jul 14 - [Trending tickers: Lionsgate, Nio, Boeing, AstraZeneca and Fresnillo](https://uk.finance.yahoo.com/news/lionsgate-nio-boeing-astrazeneca-fresnillo-trending-tickers-092934452.html)
 <!-- feed end -->
