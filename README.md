@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Eight arrested after far-right groups and migrants clash in Spanish town](https://www.yahoo.com/news/eight-arrested-far-groups-migrants-103958741.html)
-- Jul 14 - [Kpods pushed by organised crime groups: UN; JJ Lin reveals heart condition diagnosis: Singapore live news](https://www.yahoo.com/news/live/kpods-pushed-by-organised-crime-groups-un-jj-lin-reveals-heart-condition-diagnosis-singapore-live-news-101409053.html)
-- Jul 14 - [Musk Suggests a Tesla Shareholder Vote on xAI Investment](https://finance.yahoo.com/video/musk-suggests-tesla-shareholder-vote-100337003.html)
-- Jul 14 - [Fact Check: Posts claim photo shows Trump and Epstein with minor girl. Here's the truth](https://www.yahoo.com/news/fact-check-posts-claim-photo-100000520.html)
-- Jul 14 - [Hospital evacuated as half of Spain hit by heavy rain](https://www.yahoo.com/news/hospital-evacuated-half-spain-hit-082554220.html)
+- Jul 14 - [Grand Canyon North Rim closed amid raging wildfires](https://www.yahoo.com/news/devastating-grand-canyon-north-rim-112414621.html)
+- Jul 14 - [I’m A FEMA Responder. Here's What No One Is Telling You About The Tragic Texas Floods.](https://www.yahoo.com/news/m-fema-responder-heres-no-110017812.html)
+- Jul 14 - [Kremlin says weapons and ammunition deliveries to Ukraine from U.S. are continuing](https://www.yahoo.com/news/kremlin-says-weapons-ammunition-deliveries-102817414.html)
+- Jul 14 - [Moment man caught with $3m worth of drugs at Atlanta airport caught on camera](https://www.yahoo.com/news/moment-man-caught-3m-worth-100533052.html)
+- Jul 14 - [Mortgage and refinance interest rates today for July 14, 2025: Rates remain stagnant before inflation news](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-monday-july-14-2025-100055464.html)
 <!-- feed end -->
