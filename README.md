@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Fox News Trump Interview Resurfaces With Edited Answer on Epstein Files: ‘Kamala Should Sue’](https://www.yahoo.com/news/fox-news-trump-interview-resurfaces-164913528.html)
-- Jul 14 - [Gazans' daily struggle for water after deadly strike](https://www.yahoo.com/news/gazans-daily-struggle-water-deadly-163902396.html)
-- Jul 14 - [New York governor says World Cup prime target for drone attacks](https://www.yahoo.com/news/york-governor-wants-trump-action-163852834.html)
-- Jul 14 - [2 dead, suspect killed at a Lexington, Kentucky, church after suspect shot a state trooper, police say](https://www.yahoo.com/news/multiple-people-injured-kentucky-church-184718540.html)
-- Jul 14 - [Man charged after kilt-wearing attacker smashes case holding Scotland's Stone of Destiny](https://www.yahoo.com/news/man-charged-kilt-wearing-attacker-160410163.html)
+- Jul 14 - [Analysis-US rare earth pricing system is poised to challenge China's dominance](https://finance.yahoo.com/news/analysis-us-rare-earth-pricing-174836811.html)
+- Jul 14 - [DOGE told regulator to ‘rubber stamp’ nuclear](https://www.yahoo.com/news/doge-told-regulator-rubber-stamp-173300227.html)
+- Jul 14 - [Trump tariffs would lift US factory jobs, cut overall income, San Francisco Fed says](https://finance.yahoo.com/news/trump-tariffs-lift-us-factory-170942939.html)
+- Jul 14 - [Retired Army officer pleads guilty to sharing classified info on Russia-Ukraine war on dating site](https://www.yahoo.com/news/retired-army-officer-pleads-guilty-170003746.html)
+- Jul 14 - [Two killed, two injured in weekend I-69 crash in Kentucky](https://www.yahoo.com/news/two-killed-two-injured-weekend-160031144.html)
 <!-- feed end -->
