@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Analysis-US rare earth pricing system is poised to challenge China's dominance](https://finance.yahoo.com/news/analysis-us-rare-earth-pricing-174836811.html)
-- Jul 14 - [DOGE told regulator to ‘rubber stamp’ nuclear](https://www.yahoo.com/news/doge-told-regulator-rubber-stamp-173300227.html)
-- Jul 14 - [Trump tariffs would lift US factory jobs, cut overall income, San Francisco Fed says](https://finance.yahoo.com/news/trump-tariffs-lift-us-factory-170942939.html)
+- Jul 14 - [Connecticut man gets 65 years for killing his girlfriend, but their daughter remains missing](https://www.yahoo.com/news/man-gets-65-years-prison-183223598.html)
+- Jul 14 - [Israel assassinates terrorist who held British hostage captive](https://www.yahoo.com/news/israel-assassinates-terrorist-held-british-175414809.html)
+- Jul 14 - [Analysis-US rare earth pricing system is poised to challenge China's dominance](https://finance.yahoo.com/news/analysis-us-rare-earth-pricing-174836606.html)
+- Jul 14 - [Scientists Detect Sign of Something Impossible Out in Deep Space](https://www.yahoo.com/news/scientists-detect-sign-something-impossible-173651116.html)
 - Jul 14 - [Retired Army officer pleads guilty to sharing classified info on Russia-Ukraine war on dating site](https://www.yahoo.com/news/retired-army-officer-pleads-guilty-170003746.html)
-- Jul 14 - [Two killed, two injured in weekend I-69 crash in Kentucky](https://www.yahoo.com/news/two-killed-two-injured-weekend-160031144.html)
 <!-- feed end -->
