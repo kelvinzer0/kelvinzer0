@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [Grand Canyon North Rim closed amid raging wildfires](https://www.yahoo.com/news/devastating-grand-canyon-north-rim-112414621.html)
-- Jul 14 - [I’m A FEMA Responder. Here's What No One Is Telling You About The Tragic Texas Floods.](https://www.yahoo.com/news/m-fema-responder-heres-no-110017812.html)
-- Jul 14 - [Kremlin says weapons and ammunition deliveries to Ukraine from U.S. are continuing](https://www.yahoo.com/news/kremlin-says-weapons-ammunition-deliveries-102817414.html)
-- Jul 14 - [Moment man caught with $3m worth of drugs at Atlanta airport caught on camera](https://www.yahoo.com/news/moment-man-caught-3m-worth-100533052.html)
-- Jul 14 - [Mortgage and refinance interest rates today for July 14, 2025: Rates remain stagnant before inflation news](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-monday-july-14-2025-100055464.html)
+- Jul 14 - [BBC's Gaza documentary breached accuracy guideline, review finds](https://www.yahoo.com/news/bbcs-gaza-documentary-breached-accuracy-124650923.html)
+- Jul 14 - [Hegseth’s Video Deleted, Reposted After Metallica’s Cease & Desist Over Unauthorized Use of ‘Enter Sandman’ in Drone Clip](https://www.yahoo.com/entertainment/articles/hegseth-video-deleted-reposted-metallica-124000200.html)
+- Jul 14 - [Mama Bear’s Cool Encounter With Alaskan Wildlife Photographer Has Us Stunned](https://www.yahoo.com/lifestyle/articles/mama-bear-cool-encounter-alaskan-121500763.html)
+- Jul 14 - [India's Sun Pharma launches hair loss drug Leqselvi in US after patent settlement](https://finance.yahoo.com/news/indias-sun-pharma-launches-anti-113850909.html)
+- Jul 14 - [2 dead, suspect killed at a Lexington, Kentucky, church after suspect shot a state trooper, police say](https://www.yahoo.com/news/multiple-people-injured-kentucky-church-184718540.html)
 <!-- feed end -->
