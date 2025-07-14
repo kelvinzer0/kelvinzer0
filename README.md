@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 14 - [A British aristocrat and her boyfriend are convicted of killing their newborn](https://www.yahoo.com/news/british-aristocrat-her-boyfriend-convicted-153841457.html)
-- Jul 14 - [Gunman ID'd After Killing 2 in Kentucky Church — and Making Chilling Remark Upon Learning Intended Target Wasn't There](https://www.yahoo.com/news/gunman-idd-killing-2-kentucky-153836355.html)
-- Jul 14 - [Fall River Mayor: Owner of assisted-living facility where nine people died in a fire is cooperating](https://www.yahoo.com/news/fall-river-mayor-owner-assisted-153514831.html)
-- Jul 14 - [India orders airlines to check fuel switches on Boeing jets](https://www.yahoo.com/news/india-orders-airlines-check-fuel-152508829.html)
-- Jul 14 - [Olivia Rodrigo Speaks Out Against ‘Horrific & Completely Unacceptable’ Conditions in Palestine](https://www.yahoo.com/news/olivia-rodrigo-speaks-against-horrific-150055254.html)
+- Jul 14 - [Fox News Trump Interview Resurfaces With Edited Answer on Epstein Files: ‘Kamala Should Sue’](https://www.yahoo.com/news/fox-news-trump-interview-resurfaces-164913528.html)
+- Jul 14 - [Gazans' daily struggle for water after deadly strike](https://www.yahoo.com/news/gazans-daily-struggle-water-deadly-163902396.html)
+- Jul 14 - [New York governor says World Cup prime target for drone attacks](https://www.yahoo.com/news/york-governor-wants-trump-action-163852834.html)
+- Jul 14 - [2 dead, suspect killed at a Lexington, Kentucky, church after suspect shot a state trooper, police say](https://www.yahoo.com/news/multiple-people-injured-kentucky-church-184718540.html)
+- Jul 14 - [Man charged after kilt-wearing attacker smashes case holding Scotland's Stone of Destiny](https://www.yahoo.com/news/man-charged-kilt-wearing-attacker-160410163.html)
 <!-- feed end -->
