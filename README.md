@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Planning a trip in Colorado but worried about wildfires? This free app can help track them](https://www.yahoo.com/news/planning-trip-colorado-worried-wildfires-100331289.html)
-- Jul 15 - [Nvidia Gets US Green Light to Sell H20 AI Chips to China](https://finance.yahoo.com/video/nvidia-gets-us-green-light-090027109.html)
-- Jul 15 - [Community mourns 7-year-old boy found dead in Dayton; 2 people in custody](https://www.yahoo.com/news/community-mourns-7-old-boy-084333613.html)
-- Jul 15 - [Every Ohio Republican congressmen voted to militarize America’s cities](https://www.yahoo.com/news/every-ohio-republican-congressmen-voted-083024651.html)
-- Jul 15 - [‘They were very happy’: Russian mother defends decision to live with two daughters in remote Indian cave](https://www.yahoo.com/news/were-very-happy-russian-mother-074029128.html)
+- Jul 15 - [World risks up to $39 trillion in economic losses from vanishing wetlands, report says](https://finance.yahoo.com/news/world-risks-39-trillion-economic-105310026.html)
+- Jul 15 - [A Nazi document trove raises questions for Argentina](https://www.yahoo.com/news/nazi-document-trove-raises-questions-100418224.html)
+- Jul 15 - [Torrential rains spark flash floods in Northeast as state of emergency declared in NJ](https://www.yahoo.com/news/torrential-rains-spark-flash-floods-093700822.html)
+- Jul 15 - [Trump asked Zelenskiy if Ukraine could hit Moscow, FT reports](https://www.yahoo.com/news/trump-asked-zelenskiy-ukraine-could-091121735.html)
+- Jul 15 - [Tesla Makes Long-Awaited India Debut](https://finance.yahoo.com/video/tesla-makes-long-awaited-india-085137865.html)
 <!-- feed end -->
