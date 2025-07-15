@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Russia does not care about Trump's 'theatrical ultimatum', senior official says](https://www.yahoo.com/news/russia-does-not-care-trumps-074802904.html)
+- Jul 15 - [Tesla Makes Long-Awaited India Debut](https://finance.yahoo.com/video/tesla-makes-long-awaited-india-085137865.html)
+- Jul 15 - [Middle East and Ukraine on the agenda as EU foreign ministers gather in Brussels](https://www.yahoo.com/news/middle-east-ukraine-agenda-eu-084900567.html)
 - Jul 15 - [‘They were very happy’: Russian mother defends decision to live with two daughters in remote Indian cave](https://www.yahoo.com/news/were-very-happy-russian-mother-074029128.html)
-- Jul 15 - [Tractor trailer fire closes part of Juniata County highway](https://www.yahoo.com/news/tractor-trailer-fire-closes-part-030631186.html)
+- Jul 15 - [The Grand Canyon Lodge was an elusive getaway for nearly a century. Now it's gone](https://www.yahoo.com/news/grand-canyon-lodge-elusive-getaway-035917561.html)
 - Jul 15 - [MinLaw acts against firms over billion-dollar money laundering case; Singapore cracks down on drug-laced vapes: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-minlaw-acts-against-firms-over-billion-dollar-money-laundering-case-singapore-cracks-down-on-drug-laced-vapes-013223374.html)
-- Jul 15 - [Former MLB player convicted of murder in California home invasion](https://www.yahoo.com/news/former-mlb-pitcher-daniel-serafini-000828317.html)
 <!-- feed end -->
