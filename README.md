@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Apple Slips As China Smartphone Shipments Fall](https://finance.yahoo.com/news/apple-slips-china-smartphone-shipments-185303322.html)
-- Jul 15 - [GM outlines $4 billion plan to expand production of gas trucks and SUVs](https://finance.yahoo.com/news/gm-outlines-4-billion-plan-181030000.html)
+- Jul 15 - [Fire crews along Grand Canyon are trying to save cabins after loss of historic lodge](https://www.yahoo.com/news/fire-crews-along-grand-canyon-201229231.html)
+- Jul 15 - [The Ethically Dubious Soup Kim Jong-Un Loves To Dine On Is Illegal In The US](https://www.yahoo.com/news/ethically-dubious-soup-kim-jong-190000315.html)
 - Jul 15 - [Congressman scolds protester at college antisemitism hearing: "Shut up and get out of here"](https://www.yahoo.com/news/congressman-scolds-protester-college-antisemitism-165023449.html)
-- Jul 15 - [Two arrested after fight involving suspect’s ex-husband in Baxter County](https://www.yahoo.com/news/two-arrested-fight-involving-suspect-162409019.html)
 - Jul 15 - [Russia, Iran and China intensifying life-threatening operations in UK, police say](https://www.yahoo.com/news/russia-iran-china-intensifying-life-155133552.html)
+- Jul 15 - [Archaeologists Found Trapezoidal Tombs Older Than the Egyptian Pyramids](https://www.yahoo.com/news/archaeologists-found-trapezoidal-tombs-older-130000539.html)
 <!-- feed end -->
