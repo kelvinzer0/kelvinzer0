@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Japan warns of China's military moves as biggest strategic challenge](https://www.yahoo.com/news/japan-warns-chinas-military-moves-014845302.html)
 - Jul 15 - [Former MLB player convicted of murder in California home invasion](https://www.yahoo.com/news/former-mlb-pitcher-daniel-serafini-000828317.html)
 - Jul 14 - [Lockheed Martin delivers 72 F-35 jets facing upgrade delays, Bloomberg News reports](https://finance.yahoo.com/news/lockheed-martin-delivers-72-f-230117192.html)
-- Jul 14 - [Sugar, sex and your health: The connection you might be ignoring](https://health.yahoo.com/conditions/endocrine-system/type-2-diabetes/articles/sugar-sex-health-connection-might-230024276.html)
+- Jul 14 - [Dr. Oz Gives Weird Health Care Advice To Americans Losing Their Medicaid](https://www.yahoo.com/news/dr-oz-gives-weird-health-225831121.html)
 - Jul 14 - [President Trump’s daughter-in-law may have just thrown gasoline on the fire.](https://www.yahoo.com/news/president-trump-daughter-law-may-222934748.html)
+- Jul 14 - [Thomas Massie, GOP congressman who broke with Trump, reports strong fundraising](https://www.yahoo.com/news/thomas-massie-gop-congressman-broke-221233084.html)
 <!-- feed end -->
