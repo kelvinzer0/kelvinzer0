@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Inside the secret scramble to save lives after MoD data breach](https://www.yahoo.com/news/inside-secret-scramble-save-lives-110005121.html)
-- Jul 15 - [Mykonos tourists horrified by €1,000 bill for three dishes at beach restaurant](https://www.yahoo.com/news/mykonos-tourists-horrified-1-000-114856097.html)
-- Jul 15 - [Inside the painstaking delays and disruption of Constance Marten’s trial](https://www.yahoo.com/news/inside-painstaking-delays-disruption-constance-114645780.html)
-- Jul 15 - [Could Buying Nvidia Today Set You Up for Life?](https://finance.yahoo.com/news/could-buying-nvidia-today-set-104500501.html)
+- Jul 15 - [Inside the £7bn secret scramble to save lives after MoD data breach](https://www.yahoo.com/news/inside-secret-scramble-save-lives-110005121.html)
+- Jul 15 - [US Core CPI Rises Less Than Expected for Fifth Month](https://finance.yahoo.com/video/us-core-cpi-rises-less-125215839.html)
+- Jul 15 - [Rock Band Rips Kristi Noem’s DHS For Using Its Song With NSFW 3-Word Demand](https://www.yahoo.com/entertainment/articles/rock-band-rips-kristi-noem-123912376.html)
+- Jul 15 - [Got $1,000? 2 Cryptocurrencies to Buy and Hold for Decades](https://finance.yahoo.com/news/got-1-000-2-cryptocurrencies-114500272.html)
 - Jul 15 - [Trump asked Zelenskiy if Ukraine could hit Moscow, FT reports](https://www.yahoo.com/news/trump-asked-zelenskiy-ukraine-could-091121735.html)
 <!-- feed end -->
