@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Inside the £7bn secret scramble to save lives after MoD data breach](https://www.yahoo.com/news/inside-secret-scramble-save-lives-110005121.html)
-- Jul 15 - [US Core CPI Rises Less Than Expected for Fifth Month](https://finance.yahoo.com/video/us-core-cpi-rises-less-125215839.html)
-- Jul 15 - [Rock Band Rips Kristi Noem’s DHS For Using Its Song With NSFW 3-Word Demand](https://www.yahoo.com/entertainment/articles/rock-band-rips-kristi-noem-123912376.html)
-- Jul 15 - [Got $1,000? 2 Cryptocurrencies to Buy and Hold for Decades](https://finance.yahoo.com/news/got-1-000-2-cryptocurrencies-114500272.html)
+- Jul 15 - [Employees at the nation's consumer financial watchdog say it's become toothless under Trump](https://www.yahoo.com/news/employees-nations-consumer-financial-watchdog-140726000.html)
+- Jul 15 - [5 reasons why crypto is having another moment](https://finance.yahoo.com/news/5-reasons-why-crypto-is-having-another-moment-134714233.html)
+- Jul 15 - [Severe Threat Increasing Across Plains, Midwest Tuesday](https://www.yahoo.com/news/severe-threat-increasing-across-plains-123331248.html)
 - Jul 15 - [Trump asked Zelenskiy if Ukraine could hit Moscow, FT reports](https://www.yahoo.com/news/trump-asked-zelenskiy-ukraine-could-091121735.html)
+- Jul 15 - [Israeli strikes kill 12 in Lebanon, including 5 Hezbollah fighters, source says](https://www.yahoo.com/news/israeli-defence-minister-says-strikes-083037361.html)
 <!-- feed end -->
