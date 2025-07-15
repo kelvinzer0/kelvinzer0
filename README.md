@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [Analysis-Beneath China's resilient economy, a life of pay cuts and side hustles](https://finance.yahoo.com/news/analysis-beneath-chinas-resilient-economy-230231484.html)
+- Jul 15 - [KC-46 Crews Ordered To Drastically Curtail Use Of Jet’s Onboard Auxiliary Power Unit (Updated)](https://www.yahoo.com/news/kc-46-crews-ordered-drastically-000447142.html)
+- Jul 15 - [Tornado Cash was a 'giant washing machine' for North Korea's dirty crypto, feds tell Roman Storm jury](https://www.yahoo.com/news/tornado-cash-giant-washing-machine-215315150.html)
 - Jul 15 - [Bill O’Reilly Corrected On-Air Over False Claim Biden Oversaw Epstein Conviction: ‘How Do You Convict a Guy That Is Dead?’ | Video](https://www.yahoo.com/news/bill-o-reilly-corrected-air-213241038.html)
 - Jul 15 - [Florida man sues NC casino after $500K in winnings withheld, lifetime ban](https://www.yahoo.com/news/florida-man-sues-nc-casino-203159002.html)
-- Jul 15 - [Trump tells Texas Republicans to redraw the state congressional map to help keep House majority](https://www.yahoo.com/news/trump-tells-texas-republicans-redraw-200814002.html)
-- Jul 15 - [Everyone Had Same Reaction To Photo Of President Trump's Ankles](https://www.yahoo.com/news/everyone-had-same-reaction-photo-195647163.html)
-- Jul 15 - [Trump administration fires 17 immigration court judges across ten states, union says](https://www.yahoo.com/news/trump-administration-fires-17-immigration-195557061.html)
 <!-- feed end -->
