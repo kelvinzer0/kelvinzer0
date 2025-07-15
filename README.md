@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Florida man who killed 2 people outside a bar is scheduled to be executed](https://www.yahoo.com/news/florida-man-killed-2-people-040229497.html)
+- Jul 15 - [Reeves to Deliver Mansion House Speech: What to Expect](https://finance.yahoo.com/video/reeves-deliver-mansion-house-speech-063943543.html)
+- Jul 15 - [Nvidia says it will resume sale of key AI chip to China](https://finance.yahoo.com/news/nvidia-says-resume-sale-key-054455783.html)
+- Jul 15 - [Immigration agents demand tenant information from landlords, stirring questions and confusion](https://www.yahoo.com/news/immigration-agents-demand-tenant-information-040506382.html)
 - Jul 15 - [The Grand Canyon Lodge was an elusive getaway for nearly a century. Now it's gone](https://www.yahoo.com/news/grand-canyon-lodge-elusive-getaway-035917561.html)
-- Jul 15 - [Emergency crews respond as '1,000-year' flood devastates North Carolina](https://www.yahoo.com/news/emergency-crews-respond-1-000-002000265.html)
-- Jul 15 - [New UFO research found unidentified object with significance: Professor | Elizabeth Vargas Reports](https://www.yahoo.com/news/ufo-research-found-unidentified-object-001146344.html)
-- Jul 15 - [Former MLB player convicted of murder in California home invasion](https://www.yahoo.com/news/former-mlb-pitcher-daniel-serafini-000828317.html)
+- Jul 15 - [MinLaw acts against firms over billion-dollar money laundering case; Singapore cracks down on drug-laced vapes: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-minlaw-acts-against-firms-over-billion-dollar-money-laundering-case-singapore-cracks-down-on-drug-laced-vapes-013223374.html)
 <!-- feed end -->
