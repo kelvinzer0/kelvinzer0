@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Tesla Makes Long-Awaited India Debut](https://finance.yahoo.com/video/tesla-makes-long-awaited-india-085137865.html)
-- Jul 15 - [Middle East and Ukraine on the agenda as EU foreign ministers gather in Brussels](https://www.yahoo.com/news/middle-east-ukraine-agenda-eu-084900567.html)
+- Jul 15 - [Planning a trip in Colorado but worried about wildfires? This free app can help track them](https://www.yahoo.com/news/planning-trip-colorado-worried-wildfires-100331289.html)
+- Jul 15 - [Nvidia Gets US Green Light to Sell H20 AI Chips to China](https://finance.yahoo.com/video/nvidia-gets-us-green-light-090027109.html)
+- Jul 15 - [Community mourns 7-year-old boy found dead in Dayton; 2 people in custody](https://www.yahoo.com/news/community-mourns-7-old-boy-084333613.html)
+- Jul 15 - [Every Ohio Republican congressmen voted to militarize America’s cities](https://www.yahoo.com/news/every-ohio-republican-congressmen-voted-083024651.html)
 - Jul 15 - [‘They were very happy’: Russian mother defends decision to live with two daughters in remote Indian cave](https://www.yahoo.com/news/were-very-happy-russian-mother-074029128.html)
-- Jul 15 - [The Grand Canyon Lodge was an elusive getaway for nearly a century. Now it's gone](https://www.yahoo.com/news/grand-canyon-lodge-elusive-getaway-035917561.html)
-- Jul 15 - [MinLaw acts against firms over billion-dollar money laundering case; Singapore cracks down on drug-laced vapes: Singapore live news](https://www.yahoo.com/news/live/singapore-live-news-minlaw-acts-against-firms-over-billion-dollar-money-laundering-case-singapore-cracks-down-on-drug-laced-vapes-013223374.html)
 <!-- feed end -->
