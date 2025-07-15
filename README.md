@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [This Growth Stock Is a Pure No-Brainer Buy Right Now](https://finance.yahoo.com/news/growth-stock-pure-no-brainer-002600000.html)
 - Jul 15 - [Former MLB player convicted of murder in California home invasion](https://www.yahoo.com/news/former-mlb-pitcher-daniel-serafini-000828317.html)
+- Jul 14 - [Texas flood death toll rises to 131 as new storms loom](https://www.yahoo.com/news/texas-flood-death-toll-rises-235333346.html)
+- Jul 14 - [Las Vegas man identified in fatal 215 north valley crash](https://www.yahoo.com/news/las-vegas-man-identified-fatal-234343254.html)
 - Jul 14 - [Lockheed Martin delivers 72 F-35 jets facing upgrade delays, Bloomberg News reports](https://finance.yahoo.com/news/lockheed-martin-delivers-72-f-230117192.html)
-- Jul 14 - [Dr. Oz Gives Weird Health Care Advice To Americans Losing Their Medicaid](https://www.yahoo.com/news/dr-oz-gives-weird-health-225831121.html)
-- Jul 14 - [President Trump’s daughter-in-law may have just thrown gasoline on the fire.](https://www.yahoo.com/news/president-trump-daughter-law-may-222934748.html)
-- Jul 14 - [Thomas Massie, GOP congressman who broke with Trump, reports strong fundraising](https://www.yahoo.com/news/thomas-massie-gop-congressman-broke-221233084.html)
 <!-- feed end -->
