@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Fire crews along Grand Canyon are trying to save cabins after loss of historic lodge](https://www.yahoo.com/news/fire-crews-along-grand-canyon-201229231.html)
-- Jul 15 - [The Ethically Dubious Soup Kim Jong-Un Loves To Dine On Is Illegal In The US](https://www.yahoo.com/news/ethically-dubious-soup-kim-jong-190000315.html)
-- Jul 15 - [Congressman scolds protester at college antisemitism hearing: "Shut up and get out of here"](https://www.yahoo.com/news/congressman-scolds-protester-college-antisemitism-165023449.html)
-- Jul 15 - [Russia, Iran and China intensifying life-threatening operations in UK, police say](https://www.yahoo.com/news/russia-iran-china-intensifying-life-155133552.html)
-- Jul 15 - [Archaeologists Found Trapezoidal Tombs Older Than the Egyptian Pyramids](https://www.yahoo.com/news/archaeologists-found-trapezoidal-tombs-older-130000539.html)
+- Jul 15 - [Trump tells Texas Republicans to redraw the state congressional map to help keep House majority](https://www.yahoo.com/news/trump-tells-texas-republicans-redraw-200814002.html)
+- Jul 15 - [U.S. Issues 'Do Not Travel' Warning For Caribbean Country](https://www.yahoo.com/news/u-issues-not-travel-warning-183543969.html)
+- Jul 15 - [Browns owners close on $25 million home after Ohio gives them $600 million for new stadium](https://sports.yahoo.com/article/browns-owners-close-25-million-172310505.html)
+- Jul 15 - [‘There’s just no way’: Man held in same jail cell as Epstein says zero chance he took his own life](https://www.yahoo.com/news/just-no-way-man-held-171451400.html)
+- Jul 15 - [Worker says she was pushed to falsify safety records and saw employees lose limbs at Trump-aligned meatpacking plant](https://www.yahoo.com/news/worker-says-she-pushed-falsify-171427196.html)
 <!-- feed end -->
