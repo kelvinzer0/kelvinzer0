@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [FDA Issues Nationwide Recall for Popular Yogurt Brand Over a Serious Safety Threat](https://www.yahoo.com/lifestyle/articles/fda-issues-nationwide-recall-popular-180449174.html)
-- Jul 15 - [Church of England votes to remove outdated document on sexuality from clergy selection](https://www.yahoo.com/news/church-england-votes-remove-outdated-175006526.html)
+- Jul 15 - [Apple Slips As China Smartphone Shipments Fall](https://finance.yahoo.com/news/apple-slips-china-smartphone-shipments-185303322.html)
+- Jul 15 - [GM outlines $4 billion plan to expand production of gas trucks and SUVs](https://finance.yahoo.com/news/gm-outlines-4-billion-plan-181030000.html)
 - Jul 15 - [Congressman scolds protester at college antisemitism hearing: "Shut up and get out of here"](https://www.yahoo.com/news/congressman-scolds-protester-college-antisemitism-165023449.html)
+- Jul 15 - [Two arrested after fight involving suspect’s ex-husband in Baxter County](https://www.yahoo.com/news/two-arrested-fight-involving-suspect-162409019.html)
 - Jul 15 - [Russia, Iran and China intensifying life-threatening operations in UK, police say](https://www.yahoo.com/news/russia-iran-china-intensifying-life-155133552.html)
-- Jul 15 - [Washington bans sale of a common plant, deems it noxious weed](https://www.yahoo.com/news/washington-bans-sale-common-plant-140747872.html)
 <!-- feed end -->
