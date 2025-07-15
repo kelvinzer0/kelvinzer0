@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [This Growth Stock Is a Pure No-Brainer Buy Right Now](https://finance.yahoo.com/news/growth-stock-pure-no-brainer-002600000.html)
+- Jul 15 - [Florida man who killed 2 people outside a bar is scheduled to be executed](https://www.yahoo.com/news/florida-man-killed-2-people-040229497.html)
+- Jul 15 - [The Grand Canyon Lodge was an elusive getaway for nearly a century. Now it's gone](https://www.yahoo.com/news/grand-canyon-lodge-elusive-getaway-035917561.html)
+- Jul 15 - [Emergency crews respond as '1,000-year' flood devastates North Carolina](https://www.yahoo.com/news/emergency-crews-respond-1-000-002000265.html)
+- Jul 15 - [New UFO research found unidentified object with significance: Professor | Elizabeth Vargas Reports](https://www.yahoo.com/news/ufo-research-found-unidentified-object-001146344.html)
 - Jul 15 - [Former MLB player convicted of murder in California home invasion](https://www.yahoo.com/news/former-mlb-pitcher-daniel-serafini-000828317.html)
-- Jul 14 - [Texas flood death toll rises to 131 as new storms loom](https://www.yahoo.com/news/texas-flood-death-toll-rises-235333346.html)
-- Jul 14 - [Las Vegas man identified in fatal 215 north valley crash](https://www.yahoo.com/news/las-vegas-man-identified-fatal-234343254.html)
-- Jul 14 - [Lockheed Martin delivers 72 F-35 jets facing upgrade delays, Bloomberg News reports](https://finance.yahoo.com/news/lockheed-martin-delivers-72-f-230117192.html)
 <!-- feed end -->
