@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Employees at the nation's consumer financial watchdog say it's become toothless under Trump](https://www.yahoo.com/news/employees-nations-consumer-financial-watchdog-140726000.html)
-- Jul 15 - [5 reasons why crypto is having another moment](https://finance.yahoo.com/news/5-reasons-why-crypto-is-having-another-moment-134714233.html)
-- Jul 15 - [Severe Threat Increasing Across Plains, Midwest Tuesday](https://www.yahoo.com/news/severe-threat-increasing-across-plains-123331248.html)
+- Jul 15 - [Nvidia may resume China sales, but this strategist is hesitant](https://finance.yahoo.com/video/nvidia-may-resume-china-sales-145933562.html)
+- Jul 15 - [Police arrest woman at centre of sex scandal that saw nine monks disrobed](https://www.yahoo.com/news/police-arrest-woman-centre-sex-141645302.html)
+- Jul 15 - [‘China’s car market has lost all reason’ – the country’s largest western carmaker refuses to compete in Tesla and BYD’s EV price war](https://finance.yahoo.com/news/china-car-market-lost-reason-120409832.html)
+- Jul 15 - [New York City subway station floods after deluge of rain](https://www.yahoo.com/news/york-city-subway-station-floods-113531142.html)
 - Jul 15 - [Trump asked Zelenskiy if Ukraine could hit Moscow, FT reports](https://www.yahoo.com/news/trump-asked-zelenskiy-ukraine-could-091121735.html)
-- Jul 15 - [Israeli strikes kill 12 in Lebanon, including 5 Hezbollah fighters, source says](https://www.yahoo.com/news/israeli-defence-minister-says-strikes-083037361.html)
 <!-- feed end -->
