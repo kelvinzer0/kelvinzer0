@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [Bill O’Reilly Corrected On-Air Over False Claim Biden Oversaw Epstein Conviction: ‘How Do You Convict a Guy That Is Dead?’ | Video](https://www.yahoo.com/news/bill-o-reilly-corrected-air-213241038.html)
+- Jul 15 - [Florida man sues NC casino after $500K in winnings withheld, lifetime ban](https://www.yahoo.com/news/florida-man-sues-nc-casino-203159002.html)
 - Jul 15 - [Trump tells Texas Republicans to redraw the state congressional map to help keep House majority](https://www.yahoo.com/news/trump-tells-texas-republicans-redraw-200814002.html)
-- Jul 15 - [U.S. Issues 'Do Not Travel' Warning For Caribbean Country](https://www.yahoo.com/news/u-issues-not-travel-warning-183543969.html)
-- Jul 15 - [Browns owners close on $25 million home after Ohio gives them $600 million for new stadium](https://sports.yahoo.com/article/browns-owners-close-25-million-172310505.html)
-- Jul 15 - [‘There’s just no way’: Man held in same jail cell as Epstein says zero chance he took his own life](https://www.yahoo.com/news/just-no-way-man-held-171451400.html)
-- Jul 15 - [Worker says she was pushed to falsify safety records and saw employees lose limbs at Trump-aligned meatpacking plant](https://www.yahoo.com/news/worker-says-she-pushed-falsify-171427196.html)
+- Jul 15 - [Everyone Had Same Reaction To Photo Of President Trump's Ankles](https://www.yahoo.com/news/everyone-had-same-reaction-photo-195647163.html)
+- Jul 15 - [Trump administration fires 17 immigration court judges across ten states, union says](https://www.yahoo.com/news/trump-administration-fires-17-immigration-195557061.html)
 <!-- feed end -->
