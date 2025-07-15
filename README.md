@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 15 - [FDA Issues Nationwide Recall for Popular Yogurt Brand Over a Serious Safety Threat](https://www.yahoo.com/lifestyle/articles/fda-issues-nationwide-recall-popular-180449174.html)
+- Jul 15 - [Church of England votes to remove outdated document on sexuality from clergy selection](https://www.yahoo.com/news/church-england-votes-remove-outdated-175006526.html)
+- Jul 15 - [Congressman scolds protester at college antisemitism hearing: "Shut up and get out of here"](https://www.yahoo.com/news/congressman-scolds-protester-college-antisemitism-165023449.html)
 - Jul 15 - [Russia, Iran and China intensifying life-threatening operations in UK, police say](https://www.yahoo.com/news/russia-iran-china-intensifying-life-155133552.html)
-- Jul 15 - [EU's list of US goods it may tariff, latest on China trade talks](https://finance.yahoo.com/video/eus-list-us-goods-may-153612810.html)
-- Jul 15 - [The scale of Afghans returning from Iran is overwhelming, says UN official](https://www.yahoo.com/news/scale-afghans-returning-iran-overwhelming-120941807.html)
-- Jul 15 - [‘China’s car market has lost all reason’ – the country’s largest western carmaker refuses to compete in Tesla and BYD’s EV price war](https://finance.yahoo.com/news/china-car-market-lost-reason-120409832.html)
-- Jul 15 - [New York City subway station floods after deluge of rain](https://www.yahoo.com/news/york-city-subway-station-floods-113531142.html)
+- Jul 15 - [Washington bans sale of a common plant, deems it noxious weed](https://www.yahoo.com/news/washington-bans-sale-common-plant-140747872.html)
 <!-- feed end -->
