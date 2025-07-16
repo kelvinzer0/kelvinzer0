@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Air India probe finds no issues with fuel control switches on Boeing 787s, NDTV says](https://www.yahoo.com/news/air-india-completes-fuel-control-173259569.html)
+- Jul 16 - [Woman Living in Cave with 2 Daughters Wanted to 'Stay in Nature.' After Being Found by Police, She's Being Deported](https://www.yahoo.com/news/woman-living-cave-2-daughters-163133659.html)
 - Jul 16 - [Scott Jennings accused another guest of lying on air.](https://www.yahoo.com/news/scott-jennings-accused-another-guest-160446086.html)
 - Jul 16 - [The online gunseller with Donald Trump Jr. on its board makes its market debut. Shares plunge](https://finance.yahoo.com/news/online-gunseller-donald-trump-jr-155939799.html)
-- Jul 16 - [Cameroon's Biya, 92, reshuffles military top brass ahead of vote](https://www.yahoo.com/news/cameroons-biya-92-reshuffles-military-155337112.html)
-- Jul 16 - [Authorities Share New Details About Paranormal Investigator Found Dead After Touring 'Possessed' Annabelle Doll](https://www.yahoo.com/news/authorities-share-details-paranormal-investigator-154755668.html)
-- Jul 16 - [‘Tonight Show’ Calls Out Senate Democrats, Chuck Schumer: ‘I’ve Eaten Roast Beef at Arby’s Tougher Than This Guy’ | Video](https://www.yahoo.com/entertainment/articles/tonight-show-calls-senate-democrats-151314525.html)
+- Jul 16 - [Man charged with sexually assaulting minor with ‘mental deficiencies’ in Marion County](https://www.yahoo.com/news/man-charged-sexually-assaulting-minor-152250933.html)
 <!-- feed end -->
