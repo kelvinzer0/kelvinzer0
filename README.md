@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [President Trump says he doesn't understand 'fascination' with 'pretty boring' Epstein case](https://www.yahoo.com/news/president-trump-says-doesnt-understand-150024487.html)
-- Jul 16 - [Bank of America expects to launch stablecoins as Morgan Stanley weighs use](https://tech.yahoo.com/business/articles/bank-america-expects-launch-stablecoins-145752756.html)
-- Jul 16 - [Veteran fund manager makes bold move on Nvidia price target](https://finance.yahoo.com/news/veteran-fund-manager-makes-bold-133300064.html)
+- Jul 16 - [Instant View: Dollar, Treasury prices tumble after report Trump to fire Fed's Powell](https://finance.yahoo.com/news/instant-view-dollar-treasury-prices-155507270.html)
+- Jul 16 - [Sault man sentenced for threatening a Chippewa County judge & assistant prosecutor](https://www.yahoo.com/news/sault-man-sentenced-threatening-chippewa-152708547.html)
+- Jul 16 - [Fort Who? Republicans join House Dems to bar Hegseth's military base name changes](https://www.yahoo.com/news/house-seeks-bar-hegseth-restoring-151118844.html)
+- Jul 16 - [US will build repair facilities for the Philippine navy near the disputed South China Sea](https://www.yahoo.com/news/us-build-repair-facilities-philippine-114831763.html)
 - Jul 16 - [EV charger company makes game-changing breakthrough that could transform driving experience: 'Another key milestone'](https://tech.yahoo.com/transportation/articles/ev-charger-company-makes-game-113049614.html)
-- Jul 16 - [Elon Musk sparks buzz with prediction about emerging auto trend: 'Let that sink in'](https://autos.yahoo.com/articles/elon-musk-sparks-buzz-prediction-104521093.html)
 <!-- feed end -->
