@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Israel didn’t give permits to these Bedouin villages to build bomb shelters. So they built their own](https://www.yahoo.com/news/israel-didn-t-permits-bedouin-040207915.html)
+- Jul 16 - [Death of Australia's 'Outback Killer' leaves whereabouts of British backpacker's body unknown](https://www.yahoo.com/news/death-australias-outback-killer-leaves-083409207.html)
+- Jul 16 - [Yemen fighters allied to exiled government claim seizure of tons of Iranian-supplied Houthi weapons](https://www.yahoo.com/news/yemen-fighters-allied-exiled-government-071258126.html)
 - Jul 16 - [Trump was speaking to reporters when a camera zoomed in on the president’s hand.](https://www.yahoo.com/news/trump-speaking-reporters-camera-zoomed-030135875.html)
-- Jul 16 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/utterly-foolish-12-hours-world-024059000.html)
+- Jul 16 - [Amanda Knox Claps Back on Leaked Diary About Sex With 7 Past Partners](https://www.yahoo.com/entertainment/articles/amanda-knox-claps-back-leaked-001230167.html)
 - Jul 15 - [Bill O’Reilly Corrected On-Air Over False Claim Biden Oversaw Epstein Conviction: ‘How Do You Convict a Guy That Is Dead?’ | Video](https://www.yahoo.com/news/bill-o-reilly-corrected-air-213241038.html)
-- Jul 15 - [Florida man sues NC casino after $500K in winnings withheld, lifetime ban](https://www.yahoo.com/news/florida-man-sues-nc-casino-203159002.html)
 <!-- feed end -->
