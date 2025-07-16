@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Instant View: Dollar, Treasury prices tumble after report Trump to fire Fed's Powell](https://finance.yahoo.com/news/instant-view-dollar-treasury-prices-155507270.html)
-- Jul 16 - [Sault man sentenced for threatening a Chippewa County judge & assistant prosecutor](https://www.yahoo.com/news/sault-man-sentenced-threatening-chippewa-152708547.html)
-- Jul 16 - [Fort Who? Republicans join House Dems to bar Hegseth's military base name changes](https://www.yahoo.com/news/house-seeks-bar-hegseth-restoring-151118844.html)
-- Jul 16 - [US will build repair facilities for the Philippine navy near the disputed South China Sea](https://www.yahoo.com/news/us-build-repair-facilities-philippine-114831763.html)
-- Jul 16 - [EV charger company makes game-changing breakthrough that could transform driving experience: 'Another key milestone'](https://tech.yahoo.com/transportation/articles/ev-charger-company-makes-game-113049614.html)
+- Jul 16 - [Scott Jennings accused another guest of lying on air.](https://www.yahoo.com/news/scott-jennings-accused-another-guest-160446086.html)
+- Jul 16 - [The online gunseller with Donald Trump Jr. on its board makes its market debut. Shares plunge](https://finance.yahoo.com/news/online-gunseller-donald-trump-jr-155939799.html)
+- Jul 16 - [Cameroon's Biya, 92, reshuffles military top brass ahead of vote](https://www.yahoo.com/news/cameroons-biya-92-reshuffles-military-155337112.html)
+- Jul 16 - [Authorities Share New Details About Paranormal Investigator Found Dead After Touring 'Possessed' Annabelle Doll](https://www.yahoo.com/news/authorities-share-details-paranormal-investigator-154755668.html)
+- Jul 16 - [‘Tonight Show’ Calls Out Senate Democrats, Chuck Schumer: ‘I’ve Eaten Roast Beef at Arby’s Tougher Than This Guy’ | Video](https://www.yahoo.com/entertainment/articles/tonight-show-calls-senate-democrats-151314525.html)
 <!-- feed end -->
