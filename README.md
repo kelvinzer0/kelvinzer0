@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [In 1936, Two Rivers claimed the 'Coolest City in Wisconsin' title with a bucket of snow. Now, city leaders will reenact that moment.](https://www.yahoo.com/news/1936-two-rivers-claimed-coolest-092937784.html)
-- Jul 16 - [Japan's Kawasaki Kisen prepared to reroute more ships away from US over tariffs, CEO says](https://finance.yahoo.com/news/japans-kawasaki-kisen-prepared-reroute-090930918.html)
+- Jul 16 - [At least 20 Palestinians killed in crush at Gaza aid site](https://www.yahoo.com/news/least-20-palestinians-killed-crush-101553960.html)
+- Jul 16 - [Rezoning historic Day Street Mill property comes into focus after Green Bay City Council approval](https://www.yahoo.com/news/rezoning-historic-day-street-mill-100454914.html)
 - Jul 16 - [Yemen fighters allied to exiled government claim seizure of tons of Iranian-supplied Houthi weapons](https://www.yahoo.com/news/yemen-fighters-allied-exiled-government-071258126.html)
 - Jul 16 - [Israel didn’t give permits to these Bedouin villages to build bomb shelters. So they built their own](https://www.yahoo.com/news/israel-didn-t-permits-bedouin-040207915.html)
 - Jul 16 - [Trump was speaking to reporters when a camera zoomed in on the president’s hand.](https://www.yahoo.com/news/trump-speaking-reporters-camera-zoomed-030135875.html)
