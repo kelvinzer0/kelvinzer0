@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [At least 20 Palestinians killed in crush at Gaza aid site](https://www.yahoo.com/news/least-20-palestinians-killed-crush-101553960.html)
-- Jul 16 - [Rezoning historic Day Street Mill property comes into focus after Green Bay City Council approval](https://www.yahoo.com/news/rezoning-historic-day-street-mill-100454914.html)
+- Jul 16 - [Davey: Super-injunction was a cover-up](https://www.yahoo.com/news/davey-super-injunction-cover-120618881.html)
+- Jul 16 - [This 1 Change Could Increase Your 401(k) Balance by Thousands Over Time](https://finance.yahoo.com/news/1-change-could-increase-401-084900974.html)
 - Jul 16 - [Yemen fighters allied to exiled government claim seizure of tons of Iranian-supplied Houthi weapons](https://www.yahoo.com/news/yemen-fighters-allied-exiled-government-071258126.html)
-- Jul 16 - [Israel didn’t give permits to these Bedouin villages to build bomb shelters. So they built their own](https://www.yahoo.com/news/israel-didn-t-permits-bedouin-040207915.html)
 - Jul 16 - [Trump was speaking to reporters when a camera zoomed in on the president’s hand.](https://www.yahoo.com/news/trump-speaking-reporters-camera-zoomed-030135875.html)
+- Jul 16 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/utterly-foolish-12-hours-world-024059000.html)
 <!-- feed end -->
