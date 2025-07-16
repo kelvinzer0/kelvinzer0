@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Davey: Super-injunction was a cover-up](https://www.yahoo.com/news/davey-super-injunction-cover-120618881.html)
+- Jul 16 - [2 Artificial Intelligence (AI) Stocks That Could Soar in the Second Half of 2025](https://finance.yahoo.com/news/2-artificial-intelligence-ai-stocks-121500824.html)
+- Jul 16 - [Texas floods overwhelm Lake Travis with over 17 feet of water: See before, after photos](https://www.yahoo.com/news/texas-floods-overwhelm-lake-travis-100233927.html)
+- Jul 16 - [Japan's Kawasaki Kisen prepared to reroute more ships away from US over tariffs, CEO says](https://finance.yahoo.com/news/japans-kawasaki-kisen-prepared-reroute-090930918.html)
 - Jul 16 - [This 1 Change Could Increase Your 401(k) Balance by Thousands Over Time](https://finance.yahoo.com/news/1-change-could-increase-401-084900974.html)
 - Jul 16 - [Yemen fighters allied to exiled government claim seizure of tons of Iranian-supplied Houthi weapons](https://www.yahoo.com/news/yemen-fighters-allied-exiled-government-071258126.html)
-- Jul 16 - [Trump was speaking to reporters when a camera zoomed in on the president’s hand.](https://www.yahoo.com/news/trump-speaking-reporters-camera-zoomed-030135875.html)
-- Jul 16 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/utterly-foolish-12-hours-world-024059000.html)
 <!-- feed end -->
