@@ -59,7 +59,7 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [ASML Orders Beat Expectations Amid AI Investment Boom](https://finance.yahoo.com/video/asml-orders-beat-expectations-amid-053859015.html)
+- Jul 16 - [New plants, US trade worries to drive China's 2025 naphtha imports to record](https://finance.yahoo.com/news/plants-us-trade-worries-drive-042234464.html)
 - Jul 16 - [Trump was speaking to reporters when a camera zoomed in on the president’s hand.](https://www.yahoo.com/news/trump-speaking-reporters-camera-zoomed-030135875.html)
 - Jul 16 - [Amanda Knox Claps Back on Leaked Diary About Sex With 7 Past Partners](https://www.yahoo.com/entertainment/articles/amanda-knox-claps-back-leaked-001230167.html)
 - Jul 15 - [California couple accused of tricking women into carrying babies through surrogacy; 21 children seized](https://www.yahoo.com/news/california-couple-accused-tricking-women-222028132.html)
