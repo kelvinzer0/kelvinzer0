@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 15 - [Florida woman jailed after her HOA took her to court — why you should never ignore your HOA’s ‘petty’ requests](https://www.yahoo.com/news/florida-woman-jailed-her-hoa-232000209.html)
-- Jul 15 - [Bill O’Reilly Corrected On-Air Over False Claim Biden Oversaw Epstein Conviction: ‘How Do You Convict a Guy That Is Dead?’ | Video](https://www.yahoo.com/news/bill-o-reilly-corrected-air-213241038.html)
+- Jul 16 - [Trump was speaking to reporters when a camera zoomed in on the president’s hand.](https://www.yahoo.com/news/trump-speaking-reporters-camera-zoomed-030135875.html)
+- Jul 16 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/utterly-foolish-12-hours-world-024059000.html)
 - Jul 15 - [Florida man sues NC casino after $500K in winnings withheld, lifetime ban](https://www.yahoo.com/news/florida-man-sues-nc-casino-203159002.html)
-- Jul 15 - [‘I’m a Cardiologist, and This Is the One Type of Cheese (Yes, Cheese) I Swear by for Heart Health’](https://www.yahoo.com/lifestyle/articles/m-cardiologist-one-type-cheese-112500202.html)
 - Jul 15 - [Trump tells Texas Republicans to redraw the state congressional map to help keep House majority](https://www.yahoo.com/news/trump-tells-texas-republicans-redraw-200814002.html)
+- Jul 15 - [Archaeologists Make New Trojan War Discovery That May Rewrite History](https://www.yahoo.com/news/archaeologists-trojan-war-discovery-may-193823337.html)
 <!-- feed end -->
