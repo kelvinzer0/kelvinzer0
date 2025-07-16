@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 16 - [Louisiana police chiefs among those arrested and accused in a bribery scheme to help foreign nationals get visas](https://www.yahoo.com/news/several-louisiana-officers-arrested-accused-153543168.html)
+- Jul 16 - [Melania Trump’s 4-Word Response to Reportedly Marrying Donald for Money Resurfaces](https://www.yahoo.com/entertainment/articles/melania-trump-4-word-response-201232716.html)
 - Jul 16 - [Trump Just Broke A New Record — And He Won't Be Happy About It](https://www.yahoo.com/news/trump-just-broke-record-wont-191130652.html)
-- Jul 16 - [The president blamed Joe Biden for selecting Jerome Powell as the U.S. Central Bank head when it was in fact him who made the appointment.](https://www.yahoo.com/news/president-blamed-joe-biden-selecting-184808783.html)
 - Jul 16 - [OKC reveals design for its $1 billion new NBA arena: Here's how social media reacted](https://sports.yahoo.com/article/okc-reveals-design-1-billion-183045228.html)
 - Jul 16 - [If This Comet Is What We Think It Is, It’s Unlike Any Object Humanity Has Ever Seen](https://www.yahoo.com/news/comet-think-unlike-object-humanity-180700671.html)
-- Jul 16 - [Air India probe finds no issues with fuel control switches on Boeing 787s, NDTV says](https://www.yahoo.com/news/air-india-completes-fuel-control-173259332.html)
 <!-- feed end -->
