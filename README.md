@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Air India probe finds no issues with fuel control switches on Boeing 787s, NDTV says](https://www.yahoo.com/news/air-india-completes-fuel-control-173259569.html)
-- Jul 16 - [Woman Living in Cave with 2 Daughters Wanted to 'Stay in Nature.' After Being Found by Police, She's Being Deported](https://www.yahoo.com/news/woman-living-cave-2-daughters-163133659.html)
+- Jul 16 - [Arrest after 'American Idol' music supervisor and husband found shot dead in LA home](https://www.yahoo.com/news/2-people-found-shot-dead-190200482.html)
+- Jul 16 - [Air India probe finds no issues with fuel control switches on Boeing 787s, NDTV says](https://www.yahoo.com/news/air-india-completes-fuel-control-173259332.html)
 - Jul 16 - [Scott Jennings accused another guest of lying on air.](https://www.yahoo.com/news/scott-jennings-accused-another-guest-160446086.html)
 - Jul 16 - [The online gunseller with Donald Trump Jr. on its board makes its market debut. Shares plunge](https://finance.yahoo.com/news/online-gunseller-donald-trump-jr-155939799.html)
-- Jul 16 - [Man charged with sexually assaulting minor with ‘mental deficiencies’ in Marion County](https://www.yahoo.com/news/man-charged-sexually-assaulting-minor-152250933.html)
+- Jul 16 - [Authorities Share New Details About Paranormal Investigator Found Dead After Touring 'Possessed' Annabelle Doll](https://www.yahoo.com/news/authorities-share-details-paranormal-investigator-154755668.html)
 <!-- feed end -->
