@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Nvidia, Meta, Google, Microsoft, and other giant tech stocks have one important challenge coming up](https://finance.yahoo.com/news/nvidia-meta-google-microsoft-and-other-giant-tech-stocks-have-one-important-challenge-coming-up-131344418.html)
-- Jul 16 - [Virginia Beach Fire Marshals seeks public help for illegal fireworks display at Oceanfront](https://www.yahoo.com/news/virginia-beach-fire-marshals-seeks-124433287.html)
-- Jul 16 - [A Legendary Ship Vanished With $138 Million in Treasure. Two Explorers Say They Found It.](https://www.yahoo.com/news/legendary-ship-vanished-138-million-120000222.html)
-- Jul 16 - [Florida python challenge: Why state recommends not eating invasive snakes](https://www.yahoo.com/news/florida-python-challenge-why-state-100538861.html)
-- Jul 16 - [Japan's Kawasaki Kisen prepared to reroute more ships away from US over tariffs, CEO says](https://finance.yahoo.com/news/japans-kawasaki-kisen-prepared-reroute-090930918.html)
+- Jul 16 - [President Trump says he doesn't understand 'fascination' with 'pretty boring' Epstein case](https://www.yahoo.com/news/president-trump-says-doesnt-understand-150024487.html)
+- Jul 16 - [Bank of America expects to launch stablecoins as Morgan Stanley weighs use](https://tech.yahoo.com/business/articles/bank-america-expects-launch-stablecoins-145752756.html)
+- Jul 16 - [Veteran fund manager makes bold move on Nvidia price target](https://finance.yahoo.com/news/veteran-fund-manager-makes-bold-133300064.html)
+- Jul 16 - [EV charger company makes game-changing breakthrough that could transform driving experience: 'Another key milestone'](https://tech.yahoo.com/transportation/articles/ev-charger-company-makes-game-113049614.html)
+- Jul 16 - [Elon Musk sparks buzz with prediction about emerging auto trend: 'Let that sink in'](https://autos.yahoo.com/articles/elon-musk-sparks-buzz-prediction-104521093.html)
 <!-- feed end -->
