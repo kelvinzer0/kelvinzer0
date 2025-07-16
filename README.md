@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Arrest after 'American Idol' music supervisor and husband found shot dead in LA home](https://www.yahoo.com/news/2-people-found-shot-dead-190200482.html)
+- Jul 16 - [Trump Just Broke A New Record — And He Won't Be Happy About It](https://www.yahoo.com/news/trump-just-broke-record-wont-191130652.html)
+- Jul 16 - [The president blamed Joe Biden for selecting Jerome Powell as the U.S. Central Bank head when it was in fact him who made the appointment.](https://www.yahoo.com/news/president-blamed-joe-biden-selecting-184808783.html)
+- Jul 16 - [OKC reveals design for its $1 billion new NBA arena: Here's how social media reacted](https://sports.yahoo.com/article/okc-reveals-design-1-billion-183045228.html)
+- Jul 16 - [If This Comet Is What We Think It Is, It’s Unlike Any Object Humanity Has Ever Seen](https://www.yahoo.com/news/comet-think-unlike-object-humanity-180700671.html)
 - Jul 16 - [Air India probe finds no issues with fuel control switches on Boeing 787s, NDTV says](https://www.yahoo.com/news/air-india-completes-fuel-control-173259332.html)
-- Jul 16 - [Scott Jennings accused another guest of lying on air.](https://www.yahoo.com/news/scott-jennings-accused-another-guest-160446086.html)
-- Jul 16 - [The online gunseller with Donald Trump Jr. on its board makes its market debut. Shares plunge](https://finance.yahoo.com/news/online-gunseller-donald-trump-jr-155939799.html)
-- Jul 16 - [Authorities Share New Details About Paranormal Investigator Found Dead After Touring 'Possessed' Annabelle Doll](https://www.yahoo.com/news/authorities-share-details-paranormal-investigator-154755668.html)
 <!-- feed end -->
