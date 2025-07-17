@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Sirens wail, cities shut down as Taiwan simulates Chinese air raid](https://www.yahoo.com/news/sirens-wail-cities-shut-down-095045339.html)
-- Jul 17 - [Air India captain ‘cut off’ fuel while co-pilot panicked](https://www.yahoo.com/news/air-india-captain-cut-off-064006609.html)
-- Jul 17 - [Analysis-Rise in Al Qaeda attacks revives spectre of West African caliphate](https://www.yahoo.com/news/analysis-rise-al-qaeda-attacks-091426502.html)
+- Jul 17 - ['We are witnessing terrible atrocities,' Israeli Druze says from within Syria](https://www.yahoo.com/news/witnessing-terrible-atrocities-israeli-druze-101827447.html)
+- Jul 17 - [Air India captain ‘cut off’ fuel while co-pilot panicked](https://www.yahoo.com/news/air-india-captain-cut-off-064006341.html)
+- Jul 17 - [Nvidia Backs It. Goldman Sachs Loves It. Should You Invest in Nebius Stock?](https://finance.yahoo.com/news/nvidia-backs-goldman-sachs-loves-090900634.html)
 - Jul 17 - [Russia's Medvedev says preemptive strikes against the West could be needed, TASS reports](https://www.yahoo.com/news/russias-medvedev-says-preemptive-strikes-085408933.html)
-- Jul 17 - ['I thought I was going to die': sailor recounts Huthi attack in Red Sea](https://www.yahoo.com/news/thought-going-die-sailor-recounts-073918767.html)
+- Jul 16 - [Air India crash probe focuses on actions of plane's captain, WSJ reports](https://www.yahoo.com/news/details-air-india-crash-probe-231135528.html)
 <!-- feed end -->
