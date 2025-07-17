@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 17 - [Trump comes clean after questions raised about his swollen ankles and bruised hand](https://www.yahoo.com/news/trump-comes-clean-questions-raised-180427214.html)
-- Jul 17 - [Louisiana cancels $3B repair coastal restoration funded by Deepwater Horizon oil spill settlement](https://www.yahoo.com/news/louisiana-cancels-3b-repair-coastal-195707609.html)
-- Jul 17 - [Russian crew member of ship sunk by Houthi militants undergoing treatment in Yemen](https://www.yahoo.com/news/russian-crew-member-ship-sunk-193710862.html)
-- Jul 17 - [Exclusive: Brazil’s president hits back at Trump’s threat of 50% tariffs: He ‘was elected not to be emperor of the world’](https://www.yahoo.com/news/exclusive-brazil-president-hits-back-154152157.html)
-- Jul 17 - [President Trump working on executive order intending to 'preserve' college sports from 'threat'](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-working-on-executive-order-intending-to-preserve-college-sports-from-threat-181935311.html)
+- Jul 17 - [An uncontrolled wildfire sends a cloud of smoke over Spain's capital](https://www.yahoo.com/news/wildfire-outside-madrid-sends-cloud-204207414.html)
+- Jul 17 - [Over 140 guests, crew sick due to a gastrointestinal outbreak on this popular cruise line](https://www.yahoo.com/news/over-140-guests-crew-sick-200512640.html)
+- Jul 17 - [Analysis: Lebanon wary of Israel’s peace push](https://www.yahoo.com/news/analysis-lebanon-wary-israel-peace-194406903.html)
+- Jul 17 - [Ukraine offers its front line as test bed for foreign weapons](https://www.yahoo.com/news/ukraine-offers-front-line-test-185536899.html)
 <!-- feed end -->
