@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [EasyJet warns on profit hit from French air strike and fuel costs](https://finance.yahoo.com/video/easyjet-warns-profit-hit-french-144908384.html)
+- Jul 17 - [Exclusive-Amazon's AWS cloud computing unit cuts jobs](https://finance.yahoo.com/news/exclusive-amazons-aws-cloud-computing-152613657.html)
+- Jul 17 - [Former pro baseball player dies trying to save swimmers off South Carolina](https://www.yahoo.com/news/former-pro-baseball-player-dies-140351818.html)
 - Jul 17 - [Wells Fargo suspends China travel after employee exit ban, source says](https://finance.yahoo.com/news/u-based-wells-fargo-banker-132754597.html)
-- Jul 17 - [Russian banks prepare for bailouts as Putin’s war hammers economy](https://finance.yahoo.com/news/russian-banks-prepare-bailouts-putin-131232614.html)
-- Jul 17 - [China chases 373mph ‘flying train’ that would make HS2 obsolete](https://www.yahoo.com/news/china-chases-373mph-flying-train-123713589.html)
 - Jul 17 - [Experts issue warning on ocean phenomenon that could impact hurricane season: 'It's been notable over the month'](https://www.yahoo.com/news/experts-issue-warning-ocean-phenomenon-121523581.html)
+- Jul 17 - [Nancy Pelosi Reveals The Cold Truth About Why Republicans Won't Cross Trump](https://www.yahoo.com/news/nancy-pelosi-reveals-cold-truth-113825178.html)
 <!-- feed end -->
