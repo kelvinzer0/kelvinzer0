@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [DWP urges 200,000 parents to come forward after missing out on massive state pension top up](https://www.yahoo.com/news/dwp-urges-200-000-parents-130207181.html)
+- Jul 17 - [U.S.-based Wells Fargo banker barred from exiting China, WSJ reports](https://finance.yahoo.com/news/u-based-wells-fargo-banker-132754597.html)
+- Jul 17 - [Fed's Kugler: No rate cut for some time as tariffs pass through to prices](https://finance.yahoo.com/news/feds-kugler-no-rate-cut-131739379.html)
 - Jul 17 - [Nancy Pelosi Reveals The Cold Truth About Why Republicans Won't Cross Trump](https://www.yahoo.com/news/nancy-pelosi-reveals-cold-truth-113825178.html)
+- Jul 17 - [Utah liquor store owner closes shop instead of signing new state contract she says would’ve drained her profit](https://finance.yahoo.com/news/utah-liquor-store-owner-closes-111500777.html)
 - Jul 17 - [US strikes destroyed only one of three Iranian nuclear sites, NBC News reports](https://www.yahoo.com/news/us-strikes-destroyed-only-one-092119078.html)
-- Jul 17 - [‘Calm’ Air India captain ‘cut off’ fuel while co-pilot panicked](https://www.yahoo.com/news/air-india-captain-cut-off-064006341.html)
-- Jul 17 - [Russia must be ready to strike West if it escalates Ukraine war, Medvedev says](https://www.yahoo.com/news/russias-medvedev-says-preemptive-strikes-085408933.html)
 <!-- feed end -->
