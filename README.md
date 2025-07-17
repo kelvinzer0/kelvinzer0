@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 17 - [Trump comes clean after questions raised about his swollen ankles and bruised hand](https://www.yahoo.com/news/trump-comes-clean-questions-raised-180427214.html)
-- Jul 17 - [HSBC executive's fraud conviction voided by US appeals court](https://www.yahoo.com/news/hsbc-executives-fraud-conviction-voided-181459783.html)
-- Jul 17 - [Trump diagnosed with chronic venous insufficiency, press secretary says](https://www.yahoo.com/news/trump-diagnosed-chronic-venous-insufficiency-180134561.html)
-- Jul 17 - [An Idaho judge has lifted a sweeping gag order in Bryan Kohberger's quadruple murder case](https://www.yahoo.com/news/idaho-judge-lifted-sweeping-gag-165401738.html)
-- Jul 17 - [Damning Resurfaced Video Reveals Just How Evil Stephen Miller Is](https://www.yahoo.com/news/stephen-miller-always-evil-little-154839499.html)
+- Jul 17 - [Louisiana cancels $3B repair coastal restoration funded by Deepwater Horizon oil spill settlement](https://www.yahoo.com/news/louisiana-cancels-3b-repair-coastal-195707609.html)
+- Jul 17 - [Russian crew member of ship sunk by Houthi militants undergoing treatment in Yemen](https://www.yahoo.com/news/russian-crew-member-ship-sunk-193710862.html)
+- Jul 17 - [Exclusive: Brazil’s president hits back at Trump’s threat of 50% tariffs: He ‘was elected not to be emperor of the world’](https://www.yahoo.com/news/exclusive-brazil-president-hits-back-154152157.html)
+- Jul 17 - [President Trump working on executive order intending to 'preserve' college sports from 'threat'](https://sports.yahoo.com/college-football/breaking-news/article/president-trump-working-on-executive-order-intending-to-preserve-college-sports-from-threat-181935311.html)
 <!-- feed end -->
