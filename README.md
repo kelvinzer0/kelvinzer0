@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Senate votes to cut $9 billion from public broadcasting and foreign aid](https://www.yahoo.com/news/senate-votes-cut-9-billion-063232136.html)
 - Jul 16 - [Air India crash probe focuses on actions of plane's captain, WSJ reports](https://www.yahoo.com/news/details-air-india-crash-probe-231135528.html)
 - Jul 16 - [Trump says Coca-Cola will use real sugar in its US flagship drink. The company isn't confirming that](https://www.yahoo.com/news/trump-says-coca-cola-real-222843451.html)
+- Jul 16 - [This Was the Average 401(k) Balance Last Year, According to a Recent Vanguard Report. Do Your Savings Stack Up?](https://finance.yahoo.com/news/average-401-k-balance-last-220000830.html)
+- Jul 16 - [Evacuation orders in place as crews make progress on Riverside County blaze](https://www.yahoo.com/news/two-fires-erupt-combine-spread-204805860.html)
 - Jul 16 - [Melania Trump’s 4-Word Response to Reportedly Marrying Donald for Money Resurfaces](https://www.yahoo.com/entertainment/articles/melania-trump-4-word-response-201232716.html)
-- Jul 16 - [The president blamed Joe Biden for selecting Jerome Powell as the U.S. Central Bank head when it was in fact him who made the appointment.](https://www.yahoo.com/news/president-blamed-joe-biden-selecting-184808783.html)
 <!-- feed end -->
