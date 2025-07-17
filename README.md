@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Utah liquor store owner closes shop instead of signing new state contract she says would’ve drained her profit](https://finance.yahoo.com/news/utah-liquor-store-owner-closes-111500777.html)
+- Jul 17 - [DWP urges 200,000 parents to come forward after missing out on massive state pension top up](https://www.yahoo.com/news/dwp-urges-200-000-parents-130207181.html)
+- Jul 17 - [Nancy Pelosi Reveals The Cold Truth About Why Republicans Won't Cross Trump](https://www.yahoo.com/news/nancy-pelosi-reveals-cold-truth-113825178.html)
 - Jul 17 - [US strikes destroyed only one of three Iranian nuclear sites, NBC News reports](https://www.yahoo.com/news/us-strikes-destroyed-only-one-092119078.html)
 - Jul 17 - [‘Calm’ Air India captain ‘cut off’ fuel while co-pilot panicked](https://www.yahoo.com/news/air-india-captain-cut-off-064006341.html)
-- Jul 16 - [Air India crash probe focuses on actions of plane's captain, WSJ reports](https://www.yahoo.com/news/details-air-india-crash-probe-231135528.html)
-- Jul 16 - [Trump says Coca-Cola will use real sugar in its US flagship drink. The company isn't confirming that](https://www.yahoo.com/news/trump-says-coca-cola-real-222843451.html)
+- Jul 17 - [Russia must be ready to strike West if it escalates Ukraine war, Medvedev says](https://www.yahoo.com/news/russias-medvedev-says-preemptive-strikes-085408933.html)
 <!-- feed end -->
