@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [TikTok of couple caught on camera at Coldplay concert goes viral. The internet is determined to find 'cheaters.' Why?](https://www.yahoo.com/entertainment/articles/tiktok-couple-caught-camera-coldplay-174103544.html)
-- Jul 17 - [Florida congressional districts that eliminated a majority-Black seat upheld by state Supreme Court](https://www.yahoo.com/news/florida-congressional-districts-eliminated-majority-173807986.html)
+- Jul 17 - [Trump comes clean after questions raised about his swollen ankles and bruised hand](https://www.yahoo.com/news/trump-comes-clean-questions-raised-180427214.html)
+- Jul 17 - [HSBC executive's fraud conviction voided by US appeals court](https://www.yahoo.com/news/hsbc-executives-fraud-conviction-voided-181459783.html)
+- Jul 17 - [Trump diagnosed with chronic venous insufficiency, press secretary says](https://www.yahoo.com/news/trump-diagnosed-chronic-venous-insufficiency-180134561.html)
 - Jul 17 - [An Idaho judge has lifted a sweeping gag order in Bryan Kohberger's quadruple murder case](https://www.yahoo.com/news/idaho-judge-lifted-sweeping-gag-165401738.html)
-- Jul 17 - [Chiefs WR Rashee Rice sentenced to 5 years probation, 30 days in jail after multi-car crash in Dallas](https://sports.yahoo.com/nfl/breaking-news/article/chiefs-wr-rashee-rice-sentenced-to-5-years-probation-30-days-in-jail-after-multi-car-crash-in-dallas-161436013.html)
-- Jul 17 - [Former pro baseball player dies trying to save swimmers off South Carolina](https://www.yahoo.com/news/former-pro-baseball-player-dies-140351818.html)
+- Jul 17 - [Damning Resurfaced Video Reveals Just How Evil Stephen Miller Is](https://www.yahoo.com/news/stephen-miller-always-evil-little-154839499.html)
 <!-- feed end -->
