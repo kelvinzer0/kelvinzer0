@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Two dead, several injured in raid on Catholic church in Gaza](https://www.yahoo.com/news/two-dead-several-injured-raid-084829223.html)
-- Jul 17 - [Air India captain ‘cut off’ fuel to engines](https://www.yahoo.com/news/air-india-captain-cut-off-064006341.html)
-- Jul 16 - [Trader Joe's adds 16 new stores to 'coming soon' list: See locations](https://www.yahoo.com/news/trader-joes-adds-16-stores-232351219.html)
-- Jul 16 - [Trump says Coca-Cola will use real sugar in its US flagship drink. The company isn't confirming that](https://www.yahoo.com/news/trump-says-coca-cola-real-222843451.html)
-- Jul 16 - [This Was the Average 401(k) Balance Last Year, According to a Recent Vanguard Report. Do Your Savings Stack Up?](https://finance.yahoo.com/news/average-401-k-balance-last-220000830.html)
+- Jul 17 - [Sirens wail, cities shut down as Taiwan simulates Chinese air raid](https://www.yahoo.com/news/sirens-wail-cities-shut-down-095045339.html)
+- Jul 17 - [Air India captain ‘cut off’ fuel while co-pilot panicked](https://www.yahoo.com/news/air-india-captain-cut-off-064006609.html)
+- Jul 17 - [Analysis-Rise in Al Qaeda attacks revives spectre of West African caliphate](https://www.yahoo.com/news/analysis-rise-al-qaeda-attacks-091426502.html)
+- Jul 17 - [Russia's Medvedev says preemptive strikes against the West could be needed, TASS reports](https://www.yahoo.com/news/russias-medvedev-says-preemptive-strikes-085408933.html)
+- Jul 17 - ['I thought I was going to die': sailor recounts Huthi attack in Red Sea](https://www.yahoo.com/news/thought-going-die-sailor-recounts-073918767.html)
 <!-- feed end -->
