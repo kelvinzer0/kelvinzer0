@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [U.S.-based Wells Fargo banker barred from exiting China, WSJ reports](https://finance.yahoo.com/news/u-based-wells-fargo-banker-132754597.html)
-- Jul 17 - [Fed's Kugler: No rate cut for some time as tariffs pass through to prices](https://finance.yahoo.com/news/feds-kugler-no-rate-cut-131739379.html)
-- Jul 17 - [Nancy Pelosi Reveals The Cold Truth About Why Republicans Won't Cross Trump](https://www.yahoo.com/news/nancy-pelosi-reveals-cold-truth-113825178.html)
-- Jul 17 - [Utah liquor store owner closes shop instead of signing new state contract she says would’ve drained her profit](https://finance.yahoo.com/news/utah-liquor-store-owner-closes-111500777.html)
-- Jul 17 - [US strikes destroyed only one of three Iranian nuclear sites, NBC News reports](https://www.yahoo.com/news/us-strikes-destroyed-only-one-092119078.html)
+- Jul 17 - [EasyJet warns on profit hit from French air strike and fuel costs](https://finance.yahoo.com/video/easyjet-warns-profit-hit-french-144908384.html)
+- Jul 17 - [Wells Fargo suspends China travel after employee exit ban, source says](https://finance.yahoo.com/news/u-based-wells-fargo-banker-132754597.html)
+- Jul 17 - [Russian banks prepare for bailouts as Putin’s war hammers economy](https://finance.yahoo.com/news/russian-banks-prepare-bailouts-putin-131232614.html)
+- Jul 17 - [China chases 373mph ‘flying train’ that would make HS2 obsolete](https://www.yahoo.com/news/china-chases-373mph-flying-train-123713589.html)
+- Jul 17 - [Experts issue warning on ocean phenomenon that could impact hurricane season: 'It's been notable over the month'](https://www.yahoo.com/news/experts-issue-warning-ocean-phenomenon-121523581.html)
 <!-- feed end -->
