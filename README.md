@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 16 - [Melania Trump’s 4-Word Response to Reportedly Marrying Donald for Money Resurfaces](https://www.yahoo.com/entertainment/articles/melania-trump-4-word-response-201232716.html)
-- Jul 16 - [Trump Just Broke A New Record — And He Won't Be Happy About It](https://www.yahoo.com/news/trump-just-broke-record-wont-191130652.html)
-- Jul 16 - [The president blamed Joe Biden for selecting Jerome Powell as the U.S. Central Bank head when it was in fact him who made the appointment.](https://www.yahoo.com/news/president-blamed-joe-biden-selecting-184808783.html)
-- Jul 16 - [OKC reveals design for its $1 billion new NBA arena: Here's how social media reacted](https://sports.yahoo.com/article/okc-reveals-design-1-billion-183045228.html)
-- Jul 16 - [If This Comet Is What We Think It Is, It’s Unlike Any Object Humanity Has Ever Seen](https://www.yahoo.com/news/comet-think-unlike-object-humanity-180700671.html)
+- Jul 17 - [Vehicle break-ins at Medway gym thought to be tied to organized criminal group, police say](https://www.yahoo.com/news/vehicle-break-ins-medway-gym-004342782.html)
+- Jul 16 - [‘Difficult decision’: Fred Meyer to close Gateway store in East Portland](https://www.yahoo.com/news/difficult-decision-fred-meyer-close-233154469.html)
+- Jul 16 - [Air India crash probe focuses on actions of plane's captain, Wall Street Journal reports](https://www.yahoo.com/news/details-air-india-crash-probe-231135528.html)
+- Jul 16 - [Trump says Coca-Cola will use real sugar in its US flagship drink. The company isn't confirming that](https://www.yahoo.com/news/trump-says-coca-cola-real-222843451.html)
+- Jul 16 - [Details Emerge About An-124 Condor’s Mystery Flight Through Kyiv’s Restricted Airspace](https://www.yahoo.com/news/details-emerge-124-condor-mystery-221621211.html)
 <!-- feed end -->
