@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [TikTok of couple caught on camera at Coldplay concert goes viral. The internet is determined to find 'cheaters.' Why?](https://www.yahoo.com/entertainment/articles/tiktok-couple-caught-camera-coldplay-174103544.html)
+- Jul 17 - [Florida congressional districts that eliminated a majority-Black seat upheld by state Supreme Court](https://www.yahoo.com/news/florida-congressional-districts-eliminated-majority-173807986.html)
 - Jul 17 - [An Idaho judge has lifted a sweeping gag order in Bryan Kohberger's quadruple murder case](https://www.yahoo.com/news/idaho-judge-lifted-sweeping-gag-165401738.html)
 - Jul 17 - [Chiefs WR Rashee Rice sentenced to 5 years probation, 30 days in jail after multi-car crash in Dallas](https://sports.yahoo.com/nfl/breaking-news/article/chiefs-wr-rashee-rice-sentenced-to-5-years-probation-30-days-in-jail-after-multi-car-crash-in-dallas-161436013.html)
 - Jul 17 - [Former pro baseball player dies trying to save swimmers off South Carolina](https://www.yahoo.com/news/former-pro-baseball-player-dies-140351818.html)
-- Jul 17 - [Archaeologists Found an ‘Anomaly’ Near the Pyramids That May Reveal an Ancient Portal](https://www.yahoo.com/news/archaeologists-found-anomaly-near-pyramids-141700765.html)
-- Jul 17 - [Here’s why those military helicopters were flying low over Bellevue](https://www.yahoo.com/news/why-those-military-helicopters-were-140638705.html)
 <!-- feed end -->
