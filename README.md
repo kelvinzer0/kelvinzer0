@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Suspect arrested for murder in deadly Riverside County shooting](https://www.yahoo.com/news/suspect-arrested-murder-deadly-riverside-003257693.html)
 - Jul 16 - [Air India crash probe focuses on actions of plane's captain, WSJ reports](https://www.yahoo.com/news/details-air-india-crash-probe-231135528.html)
 - Jul 16 - [Trump says Coca-Cola will use real sugar in its US flagship drink. The company isn't confirming that](https://www.yahoo.com/news/trump-says-coca-cola-real-222843451.html)
-- Jul 16 - [7 Signs You Should Retire Earlier Than You Think, According to Humphrey Yang](https://finance.yahoo.com/news/7-signs-retire-earlier-think-210045169.html)
 - Jul 16 - [Melania Trump’s 4-Word Response to Reportedly Marrying Donald for Money Resurfaces](https://www.yahoo.com/entertainment/articles/melania-trump-4-word-response-201232716.html)
+- Jul 16 - [Philippines VP Sara Duterte used snack-brand names to get millions in government funds](https://www.yahoo.com/news/philippines-vp-sara-duterte-used-192556957.html)
+- Jul 16 - [Trump Just Broke A New Record — And He Won't Be Happy About It](https://www.yahoo.com/news/trump-just-broke-record-wont-191130652.html)
 <!-- feed end -->
