@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Exclusive-Amazon's AWS cloud computing unit cuts jobs](https://finance.yahoo.com/news/exclusive-amazons-aws-cloud-computing-152613657.html)
+- Jul 17 - [An Idaho judge has lifted a sweeping gag order in Bryan Kohberger's quadruple murder case](https://www.yahoo.com/news/idaho-judge-lifted-sweeping-gag-165401738.html)
+- Jul 17 - [Chiefs WR Rashee Rice sentenced to 5 years probation, 30 days in jail after multi-car crash in Dallas](https://sports.yahoo.com/nfl/breaking-news/article/chiefs-wr-rashee-rice-sentenced-to-5-years-probation-30-days-in-jail-after-multi-car-crash-in-dallas-161436013.html)
 - Jul 17 - [Former pro baseball player dies trying to save swimmers off South Carolina](https://www.yahoo.com/news/former-pro-baseball-player-dies-140351818.html)
-- Jul 17 - [Wells Fargo suspends China travel after employee exit ban, source says](https://finance.yahoo.com/news/u-based-wells-fargo-banker-132754597.html)
-- Jul 17 - [Experts issue warning on ocean phenomenon that could impact hurricane season: 'It's been notable over the month'](https://www.yahoo.com/news/experts-issue-warning-ocean-phenomenon-121523581.html)
-- Jul 17 - [Nancy Pelosi Reveals The Cold Truth About Why Republicans Won't Cross Trump](https://www.yahoo.com/news/nancy-pelosi-reveals-cold-truth-113825178.html)
+- Jul 17 - [Archaeologists Found an ‘Anomaly’ Near the Pyramids That May Reveal an Ancient Portal](https://www.yahoo.com/news/archaeologists-found-anomaly-near-pyramids-141700765.html)
+- Jul 17 - [Here’s why those military helicopters were flying low over Bellevue](https://www.yahoo.com/news/why-those-military-helicopters-were-140638705.html)
 <!-- feed end -->
