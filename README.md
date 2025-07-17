@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 17 - [Neo-Nazi podcaster Fuentes calls MAGA a “scam” following Epstein “cover-up”](https://www.yahoo.com/news/neo-nazi-podcaster-fuentes-calls-223259299.html)
+- Jul 17 - [Burning cash: Sask. insurance agencies dealing with glut of wildfire insurance claims](https://www.yahoo.com/news/burning-cash-sask-insurance-agencies-221313172.html)
+- Jul 17 - [UK's Starmer hails new 'unprecedented' treaty with Germany at briefing alongside Merz](https://www.yahoo.com/news/uks-starmer-hails-unprecedented-treaty-220020041.html)
+- Jul 17 - [Fed's Powell responds to White House on Fed headquarters renovation](https://www.yahoo.com/news/powell-responds-white-house-fed-214933407.html)
 - Jul 17 - [Trump comes clean after questions raised about his swollen ankles and bruised hand](https://www.yahoo.com/news/trump-comes-clean-questions-raised-180427214.html)
-- Jul 17 - [Over 140 guests, crew sick due to a gastrointestinal outbreak on this popular cruise line](https://www.yahoo.com/news/over-140-guests-crew-sick-200512640.html)
-- Jul 17 - [Louisiana cancels $3B repair coastal restoration funded by Deepwater Horizon oil spill settlement](https://www.yahoo.com/news/louisiana-cancels-3b-repair-coastal-195707609.html)
-- Jul 17 - [Unemployment claims in Connecticut increased last week](https://www.yahoo.com/news/unemployment-claims-connecticut-increased-last-195609820.html)
-- Jul 17 - [Exclusive: Brazil’s president hits back at Trump’s threat of 50% tariffs: He ‘was elected not to be emperor of the world’](https://www.yahoo.com/news/exclusive-brazil-president-hits-back-154152157.html)
 <!-- feed end -->
