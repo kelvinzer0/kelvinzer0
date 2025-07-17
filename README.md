@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - ['We are witnessing terrible atrocities,' Israeli Druze says from within Syria](https://www.yahoo.com/news/witnessing-terrible-atrocities-israeli-druze-101827447.html)
-- Jul 17 - [Air India captain ‘cut off’ fuel while co-pilot panicked](https://www.yahoo.com/news/air-india-captain-cut-off-064006341.html)
-- Jul 17 - [Nvidia Backs It. Goldman Sachs Loves It. Should You Invest in Nebius Stock?](https://finance.yahoo.com/news/nvidia-backs-goldman-sachs-loves-090900634.html)
-- Jul 17 - [Russia's Medvedev says preemptive strikes against the West could be needed, TASS reports](https://www.yahoo.com/news/russias-medvedev-says-preemptive-strikes-085408933.html)
+- Jul 17 - [Utah liquor store owner closes shop instead of signing new state contract she says would’ve drained her profit](https://finance.yahoo.com/news/utah-liquor-store-owner-closes-111500777.html)
+- Jul 17 - [US strikes destroyed only one of three Iranian nuclear sites, NBC News reports](https://www.yahoo.com/news/us-strikes-destroyed-only-one-092119078.html)
+- Jul 17 - [‘Calm’ Air India captain ‘cut off’ fuel while co-pilot panicked](https://www.yahoo.com/news/air-india-captain-cut-off-064006341.html)
 - Jul 16 - [Air India crash probe focuses on actions of plane's captain, WSJ reports](https://www.yahoo.com/news/details-air-india-crash-probe-231135528.html)
+- Jul 16 - [Trump says Coca-Cola will use real sugar in its US flagship drink. The company isn't confirming that](https://www.yahoo.com/news/trump-says-coca-cola-real-222843451.html)
 <!-- feed end -->
