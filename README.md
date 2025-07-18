@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Police in Wisconsin searching for suspects who allegedly assaulted woman for taking too long in a Raising Cane’s bathroom](https://www.yahoo.com/news/police-wisconsin-searching-suspects-allegedly-012751663.html)
-- Jul 18 - [Chinese university expels female student after relationship with a foreigner](https://www.yahoo.com/news/chinese-university-announces-expulsion-student-004259488.html)
-- Jul 17 - [‘McDonald’s has to go,’ says rheumatologist after President Trump’s Chronic Venous Insufficiency diagnosis](https://www.yahoo.com/news/mcdonald-says-rheumatologist-president-trump-212922802.html)
-- Jul 17 - [Over 140 guests, crew sick due to a gastrointestinal outbreak on this popular cruise line](https://www.yahoo.com/news/over-140-guests-crew-sick-200512640.html)
-- Jul 17 - [Exclusive: Brazil’s president hits back at Trump’s threat of 50% tariffs: He ‘was elected not to be emperor of the world’](https://www.yahoo.com/news/exclusive-brazil-president-hits-back-154152157.html)
+- Jul 18 - [China's spy agency attacks foreign efforts to 'steal' rare earths](https://www.yahoo.com/news/chinas-spy-agency-attacks-foreign-044728965.html)
+- Jul 18 - [Shutdowns of cellphone internet links sweep Russia, further limiting already-stifled net freedom](https://www.yahoo.com/news/shutdowns-cellphone-internet-links-sweep-040851401.html)
+- Jul 18 - [I Had An Itch In A Very Private Spot. Things Turned Tragic After I Asked My Doctor A Simple 4-Word Question.](https://www.yahoo.com/news/had-itch-very-private-spot-031602961.html)
+- Jul 18 - [China’s supersoldier experiments ‘disturbing’: Ex-intelligence officer](https://www.yahoo.com/news/china-supersoldier-experiments-disturbing-ex-013233565.html)
+- Jul 17 - [Skydiver Felix Baumgartner, known for record-breaking jump from stratosphere, dies in paragliding crash](https://www.yahoo.com/news/skydiver-felix-baumgartner-known-record-205029332.html)
 <!-- feed end -->
