@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Big Tech earnings, Powell remarks, housing data: What to Watch](https://finance.yahoo.com/video/big-tech-earnings-powell-remarks-230000937.html)
+- Jul 18 - [A court docket says Trump is suing Murdoch, but there's something weird](https://www.yahoo.com/news/court-docket-says-trump-suing-215520552.html)
 - Jul 18 - [The Druze are a religious sect. Here's a look at their beliefs and history](https://www.yahoo.com/news/druze-religious-sect-heres-look-205214366.html)
 - Jul 18 - [Spirit Passenger Claims She Was Denied Boarding Because of Her Shorts. The Airline Says It Was Her 'Behavior'](https://www.yahoo.com/news/spirit-passenger-claims-she-denied-204456105.html)
 - Jul 18 - [Ex-NFLPA head Lloyd Howell reportedly resigned after charging union for strip club visits totaling over $3,000](https://sports.yahoo.com/nfl/article/ex-nflpa-head-lloyd-howell-reportedly-resigned-after-charging-union-for-strip-club-visits-totaling-over-3000-193007691.html)
-- Jul 18 - [Hollie Strano, former WKYC meteorologist, to do forecast work for southern radio stations](https://www.yahoo.com/news/hollie-strano-former-wkyc-meteorologist-184001589.html)
-- Jul 18 - [Opinion - The scandal that could finally end Trump](https://www.yahoo.com/news/opinion-scandal-could-finally-end-173000069.html)
 <!-- feed end -->
