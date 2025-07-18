@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [China quietly issues 2025 rare earth quotas, sources say](https://finance.yahoo.com/news/exclusive-china-quietly-issues-2025-095800919.html)
-- Jul 18 - [An Owego restaurant owner was detained by ICE. The community raised $15K for his family](https://www.yahoo.com/news/owego-restaurant-owner-detained-ice-090853190.html)
-- Jul 18 - [Is driving slow in left lane illegal in South Carolina? What to know about Move Right Law](https://www.yahoo.com/news/driving-slow-left-lane-illegal-090654264.html)
-- Jul 18 - [EU approves new Russia sanctions with lower oil price cap](https://www.yahoo.com/news/eu-agrees-18th-sanctions-package-063442206.html)
-- Jul 18 - [Shutdowns of cellphone internet links sweep Russia, further limiting already-stifled net freedom](https://www.yahoo.com/news/shutdowns-cellphone-internet-links-sweep-040851401.html)
+- Jul 18 - [EU's new Russia sanctions aim for more effective oil price cap](https://www.yahoo.com/news/eu-agrees-18th-sanctions-package-063442206.html)
+- Jul 18 - [Xi Jinping is questioning if all of China should chase the same AI and EV dreams](https://finance.yahoo.com/news/xi-jinping-questioning-china-chase-051203684.html)
+- Jul 18 - [China's spy agency attacks foreign efforts to 'steal' rare earths](https://www.yahoo.com/news/chinas-spy-agency-attacks-foreign-044728965.html)
+- Jul 18 - [Disruptions of cellphone internet links in Russia are spreading](https://www.yahoo.com/news/shutdowns-cellphone-internet-links-sweep-040851401.html)
+- Jul 18 - [China says successful US trade talks make return to tariff war unnecessary](https://finance.yahoo.com/news/china-wants-return-us-trade-040300401.html)
 <!-- feed end -->
