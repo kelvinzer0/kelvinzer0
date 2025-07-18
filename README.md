@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Gavin Newsom says Alcatraz will reopen the ‘same day Trump releases the Epstein files’](https://www.yahoo.com/news/gavin-newsom-says-alcatraz-reopen-133023112.html)
+- Jul 18 - [Blame it on tariffs: CEOs roll out new excuse for bankruptcies](https://finance.yahoo.com/news/blame-tariffs-ceos-roll-excuse-133000695.html)
 - Jul 18 - [Officials uncover shocking scale of smuggling ring driving species to brink: 'Substantial and lucrative'](https://www.yahoo.com/news/officials-uncover-shocking-scale-smuggling-104539401.html)
+- Jul 18 - [Las Vegas residents denied reimbursement from the state after reporting they lost thousands in contractor scam](https://www.yahoo.com/news/las-vegas-residents-denied-reimbursement-103000544.html)
 - Jul 18 - [Perplexity's CEO says his AI browser could replace 2 white-collar roles every company relies on](https://tech.yahoo.com/ai/articles/perplexitys-ceo-says-ai-browser-102805744.html)
-- Jul 18 - [Chevron closes Hess acquisition after winning Exxon legal battle](https://finance.yahoo.com/news/chevron-prevails-mediation-over-exxon-101312388.html)
-- Jul 18 - [I'm a 28-year-old AI engineer in Big Tech. Here's my advice for others who want to break into this growing field.](https://www.yahoo.com/lifestyle/articles/im-28-old-ai-engineer-090801737.html)
-- Jul 18 - [Disruptions of cellphone internet links in Russia are spreading](https://www.yahoo.com/news/shutdowns-cellphone-internet-links-sweep-040851401.html)
 <!-- feed end -->
