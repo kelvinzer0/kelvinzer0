@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [China quietly issues 2025 rare earth quotas, sources say](https://finance.yahoo.com/news/exclusive-china-quietly-issues-2025-095800919.html)
+- Jul 18 - [An Owego restaurant owner was detained by ICE. The community raised $15K for his family](https://www.yahoo.com/news/owego-restaurant-owner-detained-ice-090853190.html)
+- Jul 18 - [Is driving slow in left lane illegal in South Carolina? What to know about Move Right Law](https://www.yahoo.com/news/driving-slow-left-lane-illegal-090654264.html)
+- Jul 18 - [EU approves new Russia sanctions with lower oil price cap](https://www.yahoo.com/news/eu-agrees-18th-sanctions-package-063442206.html)
 - Jul 18 - [Shutdowns of cellphone internet links sweep Russia, further limiting already-stifled net freedom](https://www.yahoo.com/news/shutdowns-cellphone-internet-links-sweep-040851401.html)
-- Jul 18 - [I Had An Itch In A Very Private Spot. Things Turned Tragic After I Asked My Doctor A Simple 4-Word Question.](https://www.yahoo.com/news/had-itch-very-private-spot-031602961.html)
-- Jul 18 - [China’s super soldier experiments ‘disturbing’: Ex-intelligence officer](https://www.yahoo.com/news/china-supersoldier-experiments-disturbing-ex-013233565.html)
-- Jul 18 - [Chinese university expels female student after relationship with a foreigner](https://www.yahoo.com/news/chinese-university-announces-expulsion-student-004259488.html)
-- Jul 17 - [Skydiver Felix Baumgartner, known for record-breaking jump from stratosphere, dies in paragliding crash](https://www.yahoo.com/news/skydiver-felix-baumgartner-known-record-205029332.html)
 <!-- feed end -->
