@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [The Druze are a religious sect. Here's a look at their beliefs and history](https://www.yahoo.com/news/druze-religious-sect-heres-look-205214366.html)
+- Jul 18 - [Spirit Passenger Claims She Was Denied Boarding Because of Her Shorts. The Airline Says It Was Her 'Behavior'](https://www.yahoo.com/news/spirit-passenger-claims-she-denied-204456105.html)
 - Jul 18 - [Ex-NFLPA head Lloyd Howell reportedly resigned after charging union for strip club visits totaling over $3,000](https://sports.yahoo.com/nfl/article/ex-nflpa-head-lloyd-howell-reportedly-resigned-after-charging-union-for-strip-club-visits-totaling-over-3000-193007691.html)
 - Jul 18 - [Hollie Strano, former WKYC meteorologist, to do forecast work for southern radio stations](https://www.yahoo.com/news/hollie-strano-former-wkyc-meteorologist-184001589.html)
 - Jul 18 - [Opinion - The scandal that could finally end Trump](https://www.yahoo.com/news/opinion-scandal-could-finally-end-173000069.html)
-- Jul 18 - [6-Year-Old Soccer Player Player's Family Bought Him Goalie Gloves Just Days Before He Was Killed in 'Major Accident'](https://www.yahoo.com/news/6-old-soccer-player-players-172517529.html)
-- Jul 18 - [The 4,000-year-old mystery of a shepherd’s arrow to the back](https://www.yahoo.com/news/4-000-old-mystery-shepherd-155707422.html)
 <!-- feed end -->
