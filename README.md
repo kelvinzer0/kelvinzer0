@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Four dead, 1,300 evacuated as heavy rains hit South Korea](https://www.yahoo.com/news/four-dead-1-300-evacuated-014426464.html)
+- Jul 18 - [Police in Wisconsin searching for suspects who allegedly assaulted woman for taking too long in a Raising Cane’s bathroom](https://www.yahoo.com/news/police-wisconsin-searching-suspects-allegedly-012751663.html)
 - Jul 18 - [Chinese university expels female student after relationship with a foreigner](https://www.yahoo.com/news/chinese-university-announces-expulsion-student-004259488.html)
-- Jul 17 - [A CEO was caught hugging his chief people officer during a Coldplay concert—and people are furious](https://www.yahoo.com/entertainment/articles/ceo-caught-hugging-chief-people-220510203.html)
 - Jul 17 - [‘McDonald’s has to go,’ says rheumatologist after President Trump’s Chronic Venous Insufficiency diagnosis](https://www.yahoo.com/news/mcdonald-says-rheumatologist-president-trump-212922802.html)
 - Jul 17 - [Over 140 guests, crew sick due to a gastrointestinal outbreak on this popular cruise line](https://www.yahoo.com/news/over-140-guests-crew-sick-200512640.html)
+- Jul 17 - [Exclusive: Brazil’s president hits back at Trump’s threat of 50% tariffs: He ‘was elected not to be emperor of the world’](https://www.yahoo.com/news/exclusive-brazil-president-hits-back-154152157.html)
 <!-- feed end -->
