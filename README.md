@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Burmese pythons completely digest prey, including skeletons. Here's how](https://www.yahoo.com/news/burmese-pythons-completely-digest-prey-164207594.html)
-- Jul 18 - ['Miscommunication with a medical agency': DA issues Fall River fire death toll correction](https://www.yahoo.com/news/miscommunication-medical-agency-da-issues-163505109.html)
-- Jul 18 - [Jane Street's Secrets Spill Into the Spotlight](https://finance.yahoo.com/video/jane-streets-secrets-spill-spotlight-161611635.html)
-- Jul 18 - [Crypto asset market hits record high $4T](https://finance.yahoo.com/video/crypto-asset-market-hits-record-160509029.html)
-- Jul 18 - [Trump Just Screwed Himself on the Epstein Fiasco—with Don Jr.’s Help](https://www.yahoo.com/news/trump-just-screwed-himself-epstein-154825322.html)
+- Jul 18 - [Convicted ax killer David Brom says 'cloud of depression' impacted his thoughts in 1988](https://www.yahoo.com/news/convicted-ax-killer-david-brom-172000451.html)
+- Jul 18 - [Incorrect speed record card caused 2024 Nepal plane crash, panel says](https://www.yahoo.com/news/incorrect-speed-record-card-caused-135731269.html)
+- Jul 18 - [I moved to Florida when my husband got a job there. It was nice at first, but the downsides pushed me to leave 3 years later.](https://www.yahoo.com/lifestyle/articles/moved-orlando-husband-got-job-175712189.html)
+- Jul 18 - [Scientists Just Solved a Solar Mystery That Baffled Humanity For Centuries](https://www.yahoo.com/news/scientists-just-solved-solar-mystery-123000992.html)
+- Jul 18 - [NVDA: Nvidia AI Boom Sparks Warning Bells as Pullback Risks Climb](https://finance.yahoo.com/news/nvda-nvidia-ai-boom-sparks-122012543.html)
 <!-- feed end -->
