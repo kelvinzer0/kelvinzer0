@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 18 - [Burmese pythons completely digest prey, including skeletons. Here's how](https://www.yahoo.com/news/burmese-pythons-completely-digest-prey-164207594.html)
+- Jul 18 - ['Miscommunication with a medical agency': DA issues Fall River fire death toll correction](https://www.yahoo.com/news/miscommunication-medical-agency-da-issues-163505109.html)
+- Jul 18 - [Jane Street's Secrets Spill Into the Spotlight](https://finance.yahoo.com/video/jane-streets-secrets-spill-spotlight-161611635.html)
 - Jul 18 - [Crypto asset market hits record high $4T](https://finance.yahoo.com/video/crypto-asset-market-hits-record-160509029.html)
-- Jul 18 - [Witnesses to Felix Baumgartner's fatal paragliding crash heard large boom as it spun to the ground](https://www.yahoo.com/news/witnesses-felix-baumgartners-fatal-paragliding-145756003.html)
-- Jul 18 - [I moved to Florida when my husband got a job there. It was nice at first, but the downsides pushed me to leave 3 years later.](https://www.yahoo.com/lifestyle/articles/moved-orlando-husband-got-job-175712189.html)
-- Jul 18 - [Divers Excavated a Lake—and Stumbled Upon a Haunting Ancient Face](https://www.yahoo.com/news/divers-excavated-lake-stumbled-upon-133000690.html)
-- Jul 18 - [Officials uncover shocking scale of smuggling ring driving species to brink: 'Substantial and lucrative'](https://www.yahoo.com/news/officials-uncover-shocking-scale-smuggling-104539401.html)
+- Jul 18 - [Trump Just Screwed Himself on the Epstein Fiasco—with Don Jr.’s Help](https://www.yahoo.com/news/trump-just-screwed-himself-epstein-154825322.html)
 <!-- feed end -->
