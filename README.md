@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Convicted ax killer David Brom says 'cloud of depression' impacted his thoughts in 1988](https://www.yahoo.com/news/convicted-ax-killer-david-brom-172000451.html)
-- Jul 18 - [Incorrect speed record card caused 2024 Nepal plane crash, panel says](https://www.yahoo.com/news/incorrect-speed-record-card-caused-135731269.html)
-- Jul 18 - [I moved to Florida when my husband got a job there. It was nice at first, but the downsides pushed me to leave 3 years later.](https://www.yahoo.com/lifestyle/articles/moved-orlando-husband-got-job-175712189.html)
-- Jul 18 - [Scientists Just Solved a Solar Mystery That Baffled Humanity For Centuries](https://www.yahoo.com/news/scientists-just-solved-solar-mystery-123000992.html)
-- Jul 18 - [NVDA: Nvidia AI Boom Sparks Warning Bells as Pullback Risks Climb](https://finance.yahoo.com/news/nvda-nvidia-ai-boom-sparks-122012543.html)
+- Jul 18 - [Good To See Bipartisan Support For Crypto: Rettig](https://finance.yahoo.com/video/good-see-bipartisan-support-crypto-185642742.html)
+- Jul 18 - [Pakistan says it held productive trade talks in Washington](https://www.yahoo.com/news/pakistan-says-held-productive-trade-185241747.html)
+- Jul 18 - [Pfizer (PFE) and Bristol Myers (BMY) Launch Direct-to-Patient Eliquis Program](https://finance.yahoo.com/news/pfizer-pfe-bristol-myers-bmy-184558659.html)
+- Jul 18 - [Manchester Airport suspect: I had no idea officers I punched were women](https://www.yahoo.com/news/manchester-airport-suspect-had-no-183000782.html)
+- Jul 18 - [Federal judge halts project in Chico, Calif., cites risk to 3 threatened species](https://www.yahoo.com/news/federal-judge-halts-project-chico-180755080.html)
 <!-- feed end -->
