@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Iran's president injured during Israeli strikes, U.S. intelligence sources say](https://www.yahoo.com/news/irans-president-injured-during-israeli-004039254.html)
-- Jul 18 - [This Under-the-Radar Stablecoin Just Exploded 337%—And It's Reshaping How Businesses Think About Crypto](https://finance.yahoo.com/news/under-radar-stablecoin-just-exploded-010140215.html)
+- Jul 18 - [Four dead, 1,300 evacuated as heavy rains hit South Korea](https://www.yahoo.com/news/four-dead-1-300-evacuated-014426464.html)
+- Jul 18 - [Chinese university expels female student after relationship with a foreigner](https://www.yahoo.com/news/chinese-university-announces-expulsion-student-004259488.html)
 - Jul 17 - [A CEO was caught hugging his chief people officer during a Coldplay concert—and people are furious](https://www.yahoo.com/entertainment/articles/ceo-caught-hugging-chief-people-220510203.html)
 - Jul 17 - [‘McDonald’s has to go,’ says rheumatologist after President Trump’s Chronic Venous Insufficiency diagnosis](https://www.yahoo.com/news/mcdonald-says-rheumatologist-president-trump-212922802.html)
 - Jul 17 - [Over 140 guests, crew sick due to a gastrointestinal outbreak on this popular cruise line](https://www.yahoo.com/news/over-140-guests-crew-sick-200512640.html)
