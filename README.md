@@ -62,6 +62,6 @@ https://kelvinzer0.github.io
 - Jul 18 - [Ex-NFLPA head Lloyd Howell reportedly resigned after charging union for strip club visits totaling over $3,000](https://sports.yahoo.com/nfl/article/ex-nflpa-head-lloyd-howell-reportedly-resigned-after-charging-union-for-strip-club-visits-totaling-over-3000-193007691.html)
 - Jul 18 - [Hollie Strano, former WKYC meteorologist, to do forecast work for southern radio stations](https://www.yahoo.com/news/hollie-strano-former-wkyc-meteorologist-184001589.html)
 - Jul 18 - [Opinion - The scandal that could finally end Trump](https://www.yahoo.com/news/opinion-scandal-could-finally-end-173000069.html)
-- Jul 18 - [Miami Herald: 15-year-old boy with no criminal record held at ‘Alligator Alcatraz’ for three days](https://www.yahoo.com/news/miami-herald-15-old-boy-170219461.html)
+- Jul 18 - [6-Year-Old Soccer Player Player's Family Bought Him Goalie Gloves Just Days Before He Was Killed in 'Major Accident'](https://www.yahoo.com/news/6-old-soccer-player-players-172517529.html)
 - Jul 18 - [The 4,000-year-old mystery of a shepherd’s arrow to the back](https://www.yahoo.com/news/4-000-old-mystery-shepherd-155707422.html)
 <!-- feed end -->
