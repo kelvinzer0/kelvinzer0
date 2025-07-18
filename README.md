@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Good To See Bipartisan Support For Crypto: Rettig](https://finance.yahoo.com/video/good-see-bipartisan-support-crypto-185642742.html)
-- Jul 18 - [Pakistan says it held productive trade talks in Washington](https://www.yahoo.com/news/pakistan-says-held-productive-trade-185241747.html)
-- Jul 18 - [Pfizer (PFE) and Bristol Myers (BMY) Launch Direct-to-Patient Eliquis Program](https://finance.yahoo.com/news/pfizer-pfe-bristol-myers-bmy-184558659.html)
-- Jul 18 - [Manchester Airport suspect: I had no idea officers I punched were women](https://www.yahoo.com/news/manchester-airport-suspect-had-no-183000782.html)
-- Jul 18 - [Federal judge halts project in Chico, Calif., cites risk to 3 threatened species](https://www.yahoo.com/news/federal-judge-halts-project-chico-180755080.html)
+- Jul 18 - [Ex-NFLPA head Lloyd Howell reportedly resigned after charging union for strip club visits totaling over $3,000](https://sports.yahoo.com/nfl/article/ex-nflpa-head-lloyd-howell-reportedly-resigned-after-charging-union-for-strip-club-visits-totaling-over-3000-193007691.html)
+- Jul 18 - [Hollie Strano, former WKYC meteorologist, to do forecast work for southern radio stations](https://www.yahoo.com/news/hollie-strano-former-wkyc-meteorologist-184001589.html)
+- Jul 18 - [Opinion - The scandal that could finally end Trump](https://www.yahoo.com/news/opinion-scandal-could-finally-end-173000069.html)
+- Jul 18 - [Miami Herald: 15-year-old boy with no criminal record held at ‘Alligator Alcatraz’ for three days](https://www.yahoo.com/news/miami-herald-15-old-boy-170219461.html)
+- Jul 18 - [The 4,000-year-old mystery of a shepherd’s arrow to the back](https://www.yahoo.com/news/4-000-old-mystery-shepherd-155707422.html)
 <!-- feed end -->
