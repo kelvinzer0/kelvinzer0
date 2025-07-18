@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 18 - [Tariff war must end quickly, German finance minister tells G7 partners](https://finance.yahoo.com/news/tariff-war-must-end-quickly-113230270.html)
-- Jul 18 - [Chevron clinches Hess acquisition after winning Exxon legal battle](https://finance.yahoo.com/news/chevron-prevails-mediation-over-exxon-101312388.html)
+- Jul 18 - [Georgia's tea growers working to revive a Soviet-era industry](https://finance.yahoo.com/video/georgias-tea-growers-working-revive-130216872.html)
+- Jul 18 - [Explainer-French PM aims to soften opposition to his budget to avert new crisis](https://finance.yahoo.com/news/explainer-french-pm-aims-soften-124727542.html)
+- Jul 18 - [Officials uncover shocking scale of smuggling ring driving species to brink: 'Substantial and lucrative'](https://www.yahoo.com/news/officials-uncover-shocking-scale-smuggling-104539401.html)
+- Jul 18 - [Chevron closes Hess acquisition after winning Exxon legal battle](https://finance.yahoo.com/news/chevron-prevails-mediation-over-exxon-101312388.html)
 - Jul 18 - [Mortgage and refinance interest rates today, July 18, 2025: Mortgage rates are slightly lower than last summer](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-july-18-2025-100058057.html)
-- Jul 18 - [This Unstoppable Cryptocurrency Is Now As Big As Amazon, and It Could Soar By Another 10,500%, According to Strategy's Michael Saylor](https://finance.yahoo.com/news/unstoppable-cryptocurrency-now-big-amazon-081800654.html)
-- Jul 18 - [China's spy agency attacks foreign efforts to 'steal' rare earths](https://www.yahoo.com/news/chinas-spy-agency-attacks-foreign-044728965.html)
 <!-- feed end -->
