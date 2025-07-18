@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 17 - [Neo-Nazi podcaster Fuentes calls MAGA a “scam” following Epstein “cover-up”](https://www.yahoo.com/news/neo-nazi-podcaster-fuentes-calls-223259299.html)
-- Jul 17 - [Burning cash: Sask. insurance agencies dealing with glut of wildfire insurance claims](https://www.yahoo.com/news/burning-cash-sask-insurance-agencies-221313172.html)
-- Jul 17 - [UK's Starmer hails new 'unprecedented' treaty with Germany at briefing alongside Merz](https://www.yahoo.com/news/uks-starmer-hails-unprecedented-treaty-220020041.html)
-- Jul 17 - [Fed's Powell responds to White House on Fed headquarters renovation](https://www.yahoo.com/news/powell-responds-white-house-fed-214933407.html)
-- Jul 17 - [Trump comes clean after questions raised about his swollen ankles and bruised hand](https://www.yahoo.com/news/trump-comes-clean-questions-raised-180427214.html)
+- Jul 18 - [Iran's president injured during Israeli strikes, U.S. intelligence sources say](https://www.yahoo.com/news/irans-president-injured-during-israeli-004039254.html)
+- Jul 18 - [This Under-the-Radar Stablecoin Just Exploded 337%—And It's Reshaping How Businesses Think About Crypto](https://finance.yahoo.com/news/under-radar-stablecoin-just-exploded-010140215.html)
+- Jul 17 - [A CEO was caught hugging his chief people officer during a Coldplay concert—and people are furious](https://www.yahoo.com/entertainment/articles/ceo-caught-hugging-chief-people-220510203.html)
+- Jul 17 - [‘McDonald’s has to go,’ says rheumatologist after President Trump’s Chronic Venous Insufficiency diagnosis](https://www.yahoo.com/news/mcdonald-says-rheumatologist-president-trump-212922802.html)
+- Jul 17 - [Over 140 guests, crew sick due to a gastrointestinal outbreak on this popular cruise line](https://www.yahoo.com/news/over-140-guests-crew-sick-200512640.html)
 <!-- feed end -->
