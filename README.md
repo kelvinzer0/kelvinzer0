@@ -61,7 +61,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 18 - [Shutdowns of cellphone internet links sweep Russia, further limiting already-stifled net freedom](https://www.yahoo.com/news/shutdowns-cellphone-internet-links-sweep-040851401.html)
 - Jul 18 - [I Had An Itch In A Very Private Spot. Things Turned Tragic After I Asked My Doctor A Simple 4-Word Question.](https://www.yahoo.com/news/had-itch-very-private-spot-031602961.html)
+- Jul 18 - [China’s super soldier experiments ‘disturbing’: Ex-intelligence officer](https://www.yahoo.com/news/china-supersoldier-experiments-disturbing-ex-013233565.html)
 - Jul 18 - [Chinese university expels female student after relationship with a foreigner](https://www.yahoo.com/news/chinese-university-announces-expulsion-student-004259488.html)
-- Jul 17 - [Louisiana police chiefs among those arrested and accused in a bribery scheme to help foreign nationals get visas](https://www.yahoo.com/news/several-louisiana-officers-arrested-accused-153543168.html)
 - Jul 17 - [Skydiver Felix Baumgartner, known for record-breaking jump from stratosphere, dies in paragliding crash](https://www.yahoo.com/news/skydiver-felix-baumgartner-known-record-205029332.html)
 <!-- feed end -->
