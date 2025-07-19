@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Trump's antitrust cops are OK with new mergers. Old tech monopolies, not so much.](https://finance.yahoo.com/news/trumps-antitrust-cops-are-ok-with-new-mergers-old-tech-monopolies-not-so-much-140038953.html)
+- Jul 19 - [US threatens Mexican airline flights over airline competition issues](https://www.yahoo.com/news/us-threatens-mexican-airline-flights-133112128.html)
+- Jul 19 - [Albanian who cannot be deported taunts Home Office with personalised number plate](https://www.yahoo.com/news/albanian-cannot-deported-taunts-home-120225673.html)
+- Jul 19 - [Scientists raise alarm as 'ghost forests' creep inland on East Coast: 'A process we are still looking at'](https://www.yahoo.com/news/scientists-raise-alarm-ghost-forests-114519748.html)
 - Jul 19 - [China plans crackdown on zero-mileage used car sales](https://finance.yahoo.com/news/china-plans-ban-cars-being-114010560.html)
 - Jul 19 - [Scientist makes astonishing discovery after observing US-Mexico border wall with motion-sensing cameras: 'Beautiful region'](https://www.yahoo.com/news/scientist-makes-astonishing-discovery-observing-104500657.html)
-- Jul 19 - [Scientists discover worrying phenomenon after drilling into glaciers: 'We need to be prepared'](https://www.yahoo.com/news/scientists-discover-worrying-phenomenon-drilling-104500656.html)
-- Jul 19 - [Scientists stunned after finding one of Earth's most remote places blanketed in dangerous material: 'Is it snowing plastic … ?'](https://www.yahoo.com/news/scientists-stunned-finding-one-earths-103044853.html)
 <!-- feed end -->
