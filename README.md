@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 19 - [Australia delivers Abrams tanks to Ukraine for war with Russia](https://www.yahoo.com/news/australia-delivers-abrams-tanks-ukraine-004642215.html)
+- Jul 19 - [Trump says he thinks 5 jets were shot down in India-Pakistan hostilities](https://www.yahoo.com/news/trump-says-thinks-5-jets-003604014.html)
 - Jul 18 - [Judge orders Tennessee to turn off inmate's heart-regulating implanted device at execution](https://www.yahoo.com/news/judge-orders-tennessee-turn-off-235507097.html)
-- Jul 18 - [Kidnappers Planned to Force a 12-Year-Old Girl into Marriage. A Pride of Lions Came To Her Rescue](https://www.yahoo.com/news/kidnappers-planned-force-12-old-230000941.html)
 - Jul 18 - [Congressman says ‘Obama needs to answer for this’ after documents seemingly show Obama admin manufactured Trump-Russia hoax](https://www.yahoo.com/news/congressman-says-obama-needs-answer-211224333.html)
-- Jul 18 - [Former Central Pennsylvania Youth Ministries assistant director charged with child pornography offenses](https://www.yahoo.com/news/former-central-pennsylvania-youth-ministries-210919557.html)
+- Jul 18 - [Ex-NFLPA head Lloyd Howell reportedly resigned after charging union for strip club visits totaling over $3,000](https://sports.yahoo.com/nfl/article/ex-nflpa-head-lloyd-howell-reportedly-resigned-after-charging-union-for-strip-club-visits-totaling-over-3000-193007691.html)
 <!-- feed end -->
