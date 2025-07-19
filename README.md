@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 19 - [Best money market account rates today, July 19, 2025 (best account provides 4.41% APY)](https://finance.yahoo.com/personal-finance/banking/article/best-money-market-account-rates-today-saturday-july-19-2025-100030255.html)
+- Jul 19 - [This Under-the-Radar Stock Could Be the Next Palantir](https://finance.yahoo.com/news/under-radar-stock-could-next-095000679.html)
+- Jul 19 - [Tropical storm Wipha threatens southern China after battering Taiwan and the Philippines](https://www.yahoo.com/news/tropical-storm-wipha-threatens-southern-094551018.html)
 - Jul 19 - [As missiles fall, Kyiv battles for a few hours' sleep](https://www.yahoo.com/news/missiles-fall-kyiv-battles-few-090723525.html)
-- Jul 18 - [Judge orders Tennessee to turn off inmate's heart-regulating implanted device at execution](https://www.yahoo.com/news/judge-orders-tennessee-turn-off-235507097.html)
-- Jul 18 - [Kidnappers Planned to Force a 12-Year-Old Girl into Marriage. A Pride of Lions Came To Her Rescue](https://www.yahoo.com/news/kidnappers-planned-force-12-old-230000941.html)
-- Jul 18 - [Congressman says ‘Obama needs to answer for this’ after documents seemingly show Obama admin manufactured Trump-Russia hoax](https://www.yahoo.com/news/congressman-says-obama-needs-answer-211224333.html)
-- Jul 18 - [Anti-Woke Dad Who Fled With Family to Russia Sent to War Zone](https://www.yahoo.com/news/anti-woke-dad-fled-family-205720341.html)
+- Jul 19 - [Dave Ramsey vs. Suze Orman on the 4% rule: Who's right?](https://finance.yahoo.com/news/dave-ramsey-vs-suze-orman-084400107.html)
 <!-- feed end -->
