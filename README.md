@@ -59,8 +59,8 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [The owner of the Tennessee plastics factory where workers were swept away by Hurricane Helene won’t face charges](https://www.yahoo.com/news/owner-tennessee-plastics-factory-where-175200653.html)
 - Jul 19 - [Dave Ramsey Caller Says Her Husband Makes $156,000 But They Can't Afford Groceries. He Spends $700 Monthly On Vices. Ramsey Isn't Having It](https://finance.yahoo.com/news/dave-ramsey-caller-says-her-153124347.html)
+- Jul 19 - [US threatens Mexican flights over cargo, competition issues](https://www.yahoo.com/news/us-threatens-mexican-airline-flights-133112128.html)
 - Jul 19 - [3 Democrat-led states have rolled back Medicaid access for people lacking permanent legal status](https://www.yahoo.com/news/3-democrat-led-states-rolled-130147833.html)
 - Jul 19 - [Albanian who cannot be deported taunts Home Office with personalised number plate](https://www.yahoo.com/news/albanian-cannot-deported-taunts-home-120225673.html)
 - Jul 19 - [Scientists raise alarm as 'ghost forests' creep inland on East Coast: 'A process we are still looking at'](https://www.yahoo.com/news/scientists-raise-alarm-ghost-forests-114519748.html)
