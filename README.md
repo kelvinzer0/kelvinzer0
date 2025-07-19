@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 19 - [As missiles fall, Kyiv battles for a few hours' sleep](https://www.yahoo.com/news/missiles-fall-kyiv-battles-few-090723525.html)
-- Jul 19 - [Turkey's Fidan tells Rubio Syria conflict needs to end now](https://www.yahoo.com/news/turkeys-fidan-tells-rubio-syria-064650438.html)
-- Jul 19 - [West Virginia Lottery results: See winning numbers for Mega Millions, Daily 3 on July 18, 2025](https://www.yahoo.com/news/west-virginia-lottery-results-see-033008505.html)
 - Jul 18 - [Judge orders Tennessee to turn off inmate's heart-regulating implanted device at execution](https://www.yahoo.com/news/judge-orders-tennessee-turn-off-235507097.html)
 - Jul 18 - [Kidnappers Planned to Force a 12-Year-Old Girl into Marriage. A Pride of Lions Came To Her Rescue](https://www.yahoo.com/news/kidnappers-planned-force-12-old-230000941.html)
+- Jul 18 - [Congressman says ‘Obama needs to answer for this’ after documents seemingly show Obama admin manufactured Trump-Russia hoax](https://www.yahoo.com/news/congressman-says-obama-needs-answer-211224333.html)
+- Jul 18 - [Anti-Woke Dad Who Fled With Family to Russia Sent to War Zone](https://www.yahoo.com/news/anti-woke-dad-fled-family-205720341.html)
 <!-- feed end -->
