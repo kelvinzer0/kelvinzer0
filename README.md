@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Best money market account rates today, July 19, 2025 (best account provides 4.41% APY)](https://finance.yahoo.com/personal-finance/banking/article/best-money-market-account-rates-today-saturday-july-19-2025-100030255.html)
-- Jul 19 - [This Under-the-Radar Stock Could Be the Next Palantir](https://finance.yahoo.com/news/under-radar-stock-could-next-095000679.html)
-- Jul 19 - [Tropical storm Wipha threatens southern China after battering Taiwan and the Philippines](https://www.yahoo.com/news/tropical-storm-wipha-threatens-southern-094551018.html)
-- Jul 19 - [As missiles fall, Kyiv battles for a few hours' sleep](https://www.yahoo.com/news/missiles-fall-kyiv-battles-few-090723525.html)
+- Jul 19 - [Scientists discover worrying phenomenon after drilling into glaciers: 'We need to be prepared'](https://www.yahoo.com/news/scientists-discover-worrying-phenomenon-drilling-104500656.html)
 - Jul 19 - [Dave Ramsey vs. Suze Orman on the 4% rule: Who's right?](https://finance.yahoo.com/news/dave-ramsey-vs-suze-orman-084400107.html)
+- Jul 19 - [Prediction: 1 AI Stock Will Be Worth More Than Nvidia and Palantir Technologies Combined by 2030](https://finance.yahoo.com/news/prediction-1-ai-stock-worth-084200697.html)
+- Jul 19 - [Wordle hints today for #1,491: Clues and answer for Saturday, July 19](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1491-clues-and-answer-for-saturday-july-19-040124735.html)
+- Jul 19 - [Australia delivers Abrams tanks to Ukraine for war with Russia](https://www.yahoo.com/news/australia-delivers-abrams-tanks-ukraine-004642215.html)
 <!-- feed end -->
