@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Scientists discover worrying phenomenon after drilling into glaciers: 'We need to be prepared'](https://www.yahoo.com/news/scientists-discover-worrying-phenomenon-drilling-104500656.html)
-- Jul 19 - [Dave Ramsey vs. Suze Orman on the 4% rule: Who's right?](https://finance.yahoo.com/news/dave-ramsey-vs-suze-orman-084400107.html)
-- Jul 19 - [Prediction: 1 AI Stock Will Be Worth More Than Nvidia and Palantir Technologies Combined by 2030](https://finance.yahoo.com/news/prediction-1-ai-stock-worth-084200697.html)
-- Jul 19 - [Wordle hints today for #1,491: Clues and answer for Saturday, July 19](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1491-clues-and-answer-for-saturday-july-19-040124735.html)
-- Jul 19 - [Australia delivers Abrams tanks to Ukraine for war with Russia](https://www.yahoo.com/news/australia-delivers-abrams-tanks-ukraine-004642215.html)
+- Jul 19 - [National Hurricane Center watching disturbance in the Atlantic, as heat is on in Florida](https://www.yahoo.com/news/national-hurricane-center-watching-disturbance-130232479.html)
+- Jul 19 - [China plans crackdown on zero-mileage used car sales](https://finance.yahoo.com/news/china-plans-ban-cars-being-114010560.html)
+- Jul 19 - [Border Patrol morale goes through the roof, 'dramatically' changed under Trump administration](https://www.yahoo.com/news/border-patrol-morale-goes-roof-110004469.html)
+- Jul 19 - [Scientist makes astonishing discovery after observing US-Mexico border wall with motion-sensing cameras: 'Beautiful region'](https://www.yahoo.com/news/scientist-makes-astonishing-discovery-observing-104500657.html)
+- Jul 19 - [I Asked ChatGPT What the Stock Market Will Look Like in 100 Days — Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-stock-market-look-103748456.html)
 <!-- feed end -->
