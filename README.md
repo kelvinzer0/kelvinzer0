@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Could This Under-the-Radar Artificial Intelligence (AI) Defense Company Be the Next Palantir?](https://finance.yahoo.com/news/could-under-radar-artificial-intelligence-163000570.html)
-- Jul 19 - [At least 4 killed, 11 injured in overnight shootings across Chicago, police say](https://www.yahoo.com/news/least-4-killed-11-injured-153600440.html)
+- Jul 19 - [Stocks just hit a 'line of death' last reached at the peak of the dot-com bubble, veteran investor Bill Smead warns](https://finance.yahoo.com/news/stocks-just-hit-line-death-173001872.html)
 - Jul 19 - [Dave Ramsey Caller Says Her Husband Makes $156,000 But They Can't Afford Groceries. He Spends $700 Monthly On Vices. Ramsey Isn't Having It](https://finance.yahoo.com/news/dave-ramsey-caller-says-her-153124347.html)
-- Jul 19 - [3 Democrat-led states have rolled back Medicaid access for people lacking permanent legal status](https://www.yahoo.com/news/3-democrat-led-states-rolled-130147833.html)
 - Jul 19 - [At least 27 killed after Vietnam tourist boat capsizes in Halong Bay](https://www.yahoo.com/news/vietnam-tourist-boat-capsizes-halong-123732323.html)
+- Jul 19 - [Missouri mechanic protects client's car from being towed — by a company just fined $7.1M for predatory towing](https://www.yahoo.com/news/missouri-mechanic-protects-clients-car-123000605.html)
+- Jul 19 - [Albanian who cannot be deported taunts Home Office with personalised number plate](https://www.yahoo.com/news/albanian-cannot-deported-taunts-home-120225673.html)
 <!-- feed end -->
