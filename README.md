@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Popular deodorant recall affects over 67,000 cases sold at Walmart, Amazon, and Dollar Tree](https://www.yahoo.com/lifestyle/articles/over-67-000-cases-popular-133326972.html)
-- Jul 19 - [Trump threatens to bomb Iran again if it builds new nuclear plants](https://www.yahoo.com/news/trump-threatens-bomb-iran-again-164854326.html)
+- Jul 19 - [Could This Under-the-Radar Artificial Intelligence (AI) Defense Company Be the Next Palantir?](https://finance.yahoo.com/news/could-under-radar-artificial-intelligence-163000570.html)
+- Jul 19 - [At least 4 killed, 11 injured in overnight shootings across Chicago, police say](https://www.yahoo.com/news/least-4-killed-11-injured-153600440.html)
 - Jul 19 - [Dave Ramsey Caller Says Her Husband Makes $156,000 But They Can't Afford Groceries. He Spends $700 Monthly On Vices. Ramsey Isn't Having It](https://finance.yahoo.com/news/dave-ramsey-caller-says-her-153124347.html)
-- Jul 19 - [Buried in Trump’s beautiful bill is a new $250 fee on travelers to the U.S. Estimates project it could cut the federal deficit by nearly $30 billion](https://www.yahoo.com/news/buried-trump-beautiful-bill-250-124400225.html)
+- Jul 19 - [3 Democrat-led states have rolled back Medicaid access for people lacking permanent legal status](https://www.yahoo.com/news/3-democrat-led-states-rolled-130147833.html)
 - Jul 19 - [At least 27 killed after Vietnam tourist boat capsizes in Halong Bay](https://www.yahoo.com/news/vietnam-tourist-boat-capsizes-halong-123732323.html)
 <!-- feed end -->
