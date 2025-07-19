@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Stocks just hit a 'line of death' last reached at the peak of the dot-com bubble, veteran investor Bill Smead warns](https://finance.yahoo.com/news/stocks-just-hit-line-death-173001872.html)
+- Jul 19 - [The owner of the Tennessee plastics factory where workers were swept away by Hurricane Helene won’t face charges](https://www.yahoo.com/news/owner-tennessee-plastics-factory-where-175200653.html)
 - Jul 19 - [Dave Ramsey Caller Says Her Husband Makes $156,000 But They Can't Afford Groceries. He Spends $700 Monthly On Vices. Ramsey Isn't Having It](https://finance.yahoo.com/news/dave-ramsey-caller-says-her-153124347.html)
-- Jul 19 - [At least 27 killed after Vietnam tourist boat capsizes in Halong Bay](https://www.yahoo.com/news/vietnam-tourist-boat-capsizes-halong-123732323.html)
-- Jul 19 - [Missouri mechanic protects client's car from being towed — by a company just fined $7.1M for predatory towing](https://www.yahoo.com/news/missouri-mechanic-protects-clients-car-123000605.html)
+- Jul 19 - [3 Democrat-led states have rolled back Medicaid access for people lacking permanent legal status](https://www.yahoo.com/news/3-democrat-led-states-rolled-130147833.html)
 - Jul 19 - [Albanian who cannot be deported taunts Home Office with personalised number plate](https://www.yahoo.com/news/albanian-cannot-deported-taunts-home-120225673.html)
+- Jul 19 - [Scientists raise alarm as 'ghost forests' creep inland on East Coast: 'A process we are still looking at'](https://www.yahoo.com/news/scientists-raise-alarm-ghost-forests-114519748.html)
 <!-- feed end -->
