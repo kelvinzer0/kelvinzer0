@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Dave Ramsey Caller Says Her Husband Makes $156,000 But They Can't Afford Groceries. He Spends $700 Monthly On Vices. Ramsey Isn't Having It](https://finance.yahoo.com/news/dave-ramsey-caller-says-her-153124347.html)
-- Jul 19 - [US threatens Mexican flights over cargo, competition issues](https://www.yahoo.com/news/us-threatens-mexican-airline-flights-133112128.html)
-- Jul 19 - [3 Democrat-led states have rolled back Medicaid access for people lacking permanent legal status](https://www.yahoo.com/news/3-democrat-led-states-rolled-130147833.html)
+- Jul 19 - [Florida football offensive lineman arrested on DUI, felony weapons charges](https://sports.yahoo.com/article/florida-football-offensive-lineman-arrested-193952085.html)
+- Jul 19 - [Quantum computing is so fire — No, seriously. BofA says it could be humanity’s biggest breakthrough since the discovery of fire](https://finance.yahoo.com/news/quantum-computing-fire-no-seriously-190420811.html)
+- Jul 19 - [FDA Announces Major Recall of Popular Deodorant](https://www.yahoo.com/news/fda-announces-major-recall-popular-183618832.html)
+- Jul 19 - [Man dies after heavy weight-training chain around neck pulls him into MRI machine](https://www.yahoo.com/news/man-dies-large-chain-necklace-155704828.html)
 - Jul 19 - [Albanian who cannot be deported taunts Home Office with personalised number plate](https://www.yahoo.com/news/albanian-cannot-deported-taunts-home-120225673.html)
-- Jul 19 - [Scientists raise alarm as 'ghost forests' creep inland on East Coast: 'A process we are still looking at'](https://www.yahoo.com/news/scientists-raise-alarm-ghost-forests-114519748.html)
 <!-- feed end -->
