@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Australia delivers Abrams tanks to Ukraine for war with Russia](https://www.yahoo.com/news/australia-delivers-abrams-tanks-ukraine-004642215.html)
+- Jul 19 - [Japan tariff negotiator Akazawa to hold more trade talks in US next week](https://www.yahoo.com/news/japan-tariff-negotiator-akazawa-hold-070457703.html)
+- Jul 19 - [Turkey's Fidan tells Rubio Syria conflict needs to end now](https://www.yahoo.com/news/turkeys-fidan-tells-rubio-syria-064650438.html)
+- Jul 19 - [Cop who interviewed Bryan Kohberger: 'Hair on back of my neck stood up' | Banfield](https://www.yahoo.com/news/cop-interviewed-bryan-kohberger-hair-022458707.html)
 - Jul 18 - [Judge orders Tennessee to turn off inmate's heart-regulating implanted device at execution](https://www.yahoo.com/news/judge-orders-tennessee-turn-off-235507097.html)
 - Jul 18 - [Kidnappers Planned to Force a 12-Year-Old Girl into Marriage. A Pride of Lions Came To Her Rescue](https://www.yahoo.com/news/kidnappers-planned-force-12-old-230000941.html)
-- Jul 18 - [Anti-Woke Dad Who Fled With Family to Russia Sent to War Zone](https://www.yahoo.com/news/anti-woke-dad-fled-family-205720341.html)
-- Jul 18 - [The Druze are a religious sect. Here's a look at their beliefs and history](https://www.yahoo.com/news/druze-religious-sect-heres-look-205214366.html)
 <!-- feed end -->
