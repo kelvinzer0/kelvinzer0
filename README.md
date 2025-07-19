@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [National Hurricane Center watching disturbance in the Atlantic, as heat is on in Florida](https://www.yahoo.com/news/national-hurricane-center-watching-disturbance-130232479.html)
+- Jul 19 - [Trump's antitrust cops are OK with new mergers. Old tech monopolies, not so much.](https://finance.yahoo.com/news/trumps-antitrust-cops-are-ok-with-new-mergers-old-tech-monopolies-not-so-much-140038953.html)
 - Jul 19 - [China plans crackdown on zero-mileage used car sales](https://finance.yahoo.com/news/china-plans-ban-cars-being-114010560.html)
-- Jul 19 - [Border Patrol morale goes through the roof, 'dramatically' changed under Trump administration](https://www.yahoo.com/news/border-patrol-morale-goes-roof-110004469.html)
 - Jul 19 - [Scientist makes astonishing discovery after observing US-Mexico border wall with motion-sensing cameras: 'Beautiful region'](https://www.yahoo.com/news/scientist-makes-astonishing-discovery-observing-104500657.html)
-- Jul 19 - [I Asked ChatGPT What the Stock Market Will Look Like in 100 Days — Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-stock-market-look-103748456.html)
+- Jul 19 - [Scientists discover worrying phenomenon after drilling into glaciers: 'We need to be prepared'](https://www.yahoo.com/news/scientists-discover-worrying-phenomenon-drilling-104500656.html)
+- Jul 19 - [Scientists stunned after finding one of Earth's most remote places blanketed in dangerous material: 'Is it snowing plastic … ?'](https://www.yahoo.com/news/scientists-stunned-finding-one-earths-103044853.html)
 <!-- feed end -->
