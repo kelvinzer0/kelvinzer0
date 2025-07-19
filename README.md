@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [US threatens Mexican airline flights over airline competition issues](https://www.yahoo.com/news/us-threatens-mexican-airline-flights-133112128.html)
-- Jul 19 - [Albanian who cannot be deported taunts Home Office with personalised number plate](https://www.yahoo.com/news/albanian-cannot-deported-taunts-home-120225673.html)
+- Jul 19 - [Dave Ramsey Caller Says Her Husband Makes $156,000 But They Can't Afford Groceries. He Spends $700 Monthly On Vices. Ramsey Isn't Having It](https://finance.yahoo.com/news/dave-ramsey-caller-says-her-153124347.html)
+- Jul 19 - [Buried in Trump’s beautiful bill is a new $250 fee on travelers to the U.S. Estimates project it could cut the federal deficit by nearly $30 billion](https://www.yahoo.com/news/buried-trump-beautiful-bill-250-124400225.html)
 - Jul 19 - [Scientists raise alarm as 'ghost forests' creep inland on East Coast: 'A process we are still looking at'](https://www.yahoo.com/news/scientists-raise-alarm-ghost-forests-114519748.html)
 - Jul 19 - [China plans crackdown on zero-mileage used car sales](https://finance.yahoo.com/news/china-plans-ban-cars-being-114010560.html)
-- Jul 19 - [Scientist makes astonishing discovery after observing US-Mexico border wall with motion-sensing cameras: 'Beautiful region'](https://www.yahoo.com/news/scientist-makes-astonishing-discovery-observing-104500657.html)
+- Jul 19 - [Secret Chappaquiddick Tapes of Ted Kennedy's Cousin Discovered in Lost Briefcase: What They Reveal 56 Years Later (Exclusive)](https://www.yahoo.com/news/secret-chappaquiddick-tapes-ted-kennedys-110000794.html)
 <!-- feed end -->
