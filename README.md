@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [His Family Has Spent Months Trying To Free Him From CECOT. They Finally Reunited.](https://www.yahoo.com/news/family-spent-months-trying-free-043433071.html)
 - Jul 19 - [Australia delivers Abrams tanks to Ukraine for war with Russia](https://www.yahoo.com/news/australia-delivers-abrams-tanks-ukraine-004642215.html)
+- Jul 19 - [Trump says he thinks 5 jets were shot down in India-Pakistan hostilities](https://www.yahoo.com/news/trump-says-thinks-5-jets-003604014.html)
 - Jul 18 - [Judge orders Tennessee to turn off inmate's heart-regulating implanted device at execution](https://www.yahoo.com/news/judge-orders-tennessee-turn-off-235507097.html)
-- Jul 18 - [Kidnappers Planned to Force a 12-Year-Old Girl into Marriage. A Pride of Lions Came To Her Rescue](https://www.yahoo.com/news/kidnappers-planned-force-12-old-230000941.html)
 - Jul 18 - [Congressman says ‘Obama needs to answer for this’ after documents seemingly show Obama admin manufactured Trump-Russia hoax](https://www.yahoo.com/news/congressman-says-obama-needs-answer-211224333.html)
+- Jul 18 - [The Druze are a religious sect. Here's a look at their beliefs and history](https://www.yahoo.com/news/druze-religious-sect-heres-look-205214366.html)
 <!-- feed end -->
