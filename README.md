@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Japan tariff negotiator Akazawa to hold more trade talks in US next week](https://www.yahoo.com/news/japan-tariff-negotiator-akazawa-hold-070457703.html)
+- Jul 19 - [As missiles fall, Kyiv battles for a few hours' sleep](https://www.yahoo.com/news/missiles-fall-kyiv-battles-few-090723525.html)
 - Jul 19 - [Turkey's Fidan tells Rubio Syria conflict needs to end now](https://www.yahoo.com/news/turkeys-fidan-tells-rubio-syria-064650438.html)
-- Jul 19 - [Cop who interviewed Bryan Kohberger: 'Hair on back of my neck stood up' | Banfield](https://www.yahoo.com/news/cop-interviewed-bryan-kohberger-hair-022458707.html)
+- Jul 19 - [West Virginia Lottery results: See winning numbers for Mega Millions, Daily 3 on July 18, 2025](https://www.yahoo.com/news/west-virginia-lottery-results-see-033008505.html)
 - Jul 18 - [Judge orders Tennessee to turn off inmate's heart-regulating implanted device at execution](https://www.yahoo.com/news/judge-orders-tennessee-turn-off-235507097.html)
 - Jul 18 - [Kidnappers Planned to Force a 12-Year-Old Girl into Marriage. A Pride of Lions Came To Her Rescue](https://www.yahoo.com/news/kidnappers-planned-force-12-old-230000941.html)
 <!-- feed end -->
