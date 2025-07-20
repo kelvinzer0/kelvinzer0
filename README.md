@@ -62,6 +62,6 @@ https://kelvinzer0.github.io
 - Jul 20 - [Passengers jump for their lives as fire engulfs Indonesian ferry](https://www.yahoo.com/news/passengers-jump-lives-fire-engulfs-184805957.html)
 - Jul 20 - [Author Michael Wolff tells The Daily Beast Podcast about the psychology behind Trump’s look-alike female staffers.](https://www.yahoo.com/news/author-michael-wolff-tells-daily-193238317.html)
 - Jul 20 - [Doctors Are Sharing The One Thing They Wish Everyone Knew About Their Body, And People Are Shocked At How Uneducated They Are About Themselves](https://www.yahoo.com/news/doctors-sharing-one-thing-wish-192102283.html)
-- Jul 20 - [Delta regional pilot makes 'aggressive maneuver' to avoid B-52 collision](https://www.yahoo.com/news/delta-regional-pilot-makes-aggressive-182800468.html)
-- Jul 20 - [Ole Miss freshman defensive end Corey Adams reportedly killed in shooting in Tennessee](https://sports.yahoo.com/college-football/breaking-news/article/ole-miss-freshman-defensive-end-corey-adams-reportedly-killed-in-shooting-in-tennessee-171502689.html)
+- Jul 20 - [1 killed and 2 missing after a group is swept over an Oregon waterfall](https://www.yahoo.com/news/1-killed-2-missing-group-191749268.html)
+- Jul 20 - [People Are Calling Donald Trump's Latest Truth Social Rant "Batsh** Crazy" After He Demanded Two Sports Teams Bring Back Their Offensive Team Names](https://sports.yahoo.com/article/people-calling-donald-trumps-latest-182606398.html)
 <!-- feed end -->
