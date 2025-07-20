@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Kremlin says Putin is ready to discuss peace in Ukraine but wants to achieve goals](https://www.yahoo.com/news/kremlin-says-putin-ready-discuss-090520895.html)
 - Jul 20 - [Popular deodorant recall affects over 67,000 cases sold at Walmart, Amazon, and Dollar Tree](https://www.yahoo.com/lifestyle/articles/over-67-000-cases-popular-133326972.html)
 - Jul 20 - [Texas officials revise number of people missing in Kerr County following catastrophic flooding down to 3](https://www.yahoo.com/news/texas-officials-revise-number-people-011652077.html)
 - Jul 20 - [For the first time in modern history a capital city is on the verge of running dry](https://www.yahoo.com/news/first-time-modern-history-capital-010252699.html)
-- Jul 19 - [Jacksonville police shoot, kill man in Beach Blvd. incident](https://www.yahoo.com/news/officer-involved-shooting-closes-beach-235131252.html)
+- Jul 19 - [ICE secretly deported Pennsylvania grandfather, 82, after he lost his Green Card](https://www.yahoo.com/news/ice-secretly-deported-pennsylvania-grandfather-231727150.html)
+- Jul 19 - [OPEC Is Playing The Long Game](https://finance.yahoo.com/news/opec-playing-long-game-230000878.html)
 <!-- feed end -->
