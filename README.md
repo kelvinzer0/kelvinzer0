@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [2 No-Brainer Warren Buffett Stocks to Buy Right Now](https://finance.yahoo.com/news/2-no-brainer-warren-buffett-072500579.html)
+- Jul 20 - [Kremlin says Putin is ready to discuss peace in Ukraine but wants to achieve goals](https://www.yahoo.com/news/kremlin-says-putin-ready-discuss-090520895.html)
+- Jul 20 - [Popular deodorant recall affects over 67,000 cases sold at Walmart, Amazon, and Dollar Tree](https://www.yahoo.com/lifestyle/articles/over-67-000-cases-popular-133326972.html)
+- Jul 20 - [Texas officials revise number of people missing in Kerr County following catastrophic flooding down to 3](https://www.yahoo.com/news/texas-officials-revise-number-people-011652077.html)
 - Jul 20 - [For the first time in modern history a capital city is on the verge of running dry](https://www.yahoo.com/news/first-time-modern-history-capital-010252699.html)
-- Jul 19 - [Trump administration imposes limits on Mexican flights and threatens Delta alliance in trade dispute](https://www.yahoo.com/news/trump-administration-imposes-limits-mexican-210447704.html)
-- Jul 19 - ['I Will Never Let Someone Take 50K From Me For Doing 4 Hours Of Work,' Says A Home Seller. 'Selling A House The Traditional Way Is Absurd'](https://finance.yahoo.com/news/never-let-someone-50k-doing-203350685.html)
-- Jul 19 - [FDA Announces Major Recall of Popular Deodorant](https://www.yahoo.com/news/fda-announces-major-recall-popular-183618832.html)
+- Jul 19 - [Jacksonville police shoot, kill man in Beach Blvd. incident](https://www.yahoo.com/news/officer-involved-shooting-closes-beach-235131252.html)
 <!-- feed end -->
