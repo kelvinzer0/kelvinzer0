@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - ['Quiet cracking' is affecting millions of workers — why it's dangerous and how to spot it](https://www.yahoo.com/news/quiet-cracking-affecting-millions-workers-121500915.html)
 - Jul 20 - [How AI is breathing new life into old tech giants](https://finance.yahoo.com/video/ai-breathing-life-old-tech-120046220.html)
-- Jul 20 - [Scientists stunned after discovering long-lost fish thriving in lake for decades: 'It's kind of like finding the missing link'](https://www.yahoo.com/news/scientists-stunned-discovering-long-lost-104536203.html)
 - Jul 20 - [Experts issue warning as beloved staple food could be wiped out: 'It's quite possible'](https://www.yahoo.com/news/experts-issue-warning-beloved-staple-104532432.html)
-- Jul 20 - [The Smartest Dividend Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/smartest-dividend-stock-buy-1-080500208.html)
-- Jul 20 - [Prediction: Nvidia Stock Will Soar in the Second Half of 2025, Thanks to This Incredible News From Taiwan Semiconductor Manufacturing](https://finance.yahoo.com/news/prediction-nvidia-stock-soar-second-070200496.html)
+- Jul 20 - [Kremlin says Putin is ready to discuss peace in Ukraine but wants to achieve goals](https://www.yahoo.com/news/kremlin-says-putin-ready-discuss-090520895.html)
+- Jul 20 - [Wordle hints today for #1,492: Clues and answer for Sunday, July 20](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1492-clues-and-answer-for-sunday-july-20-040113004.html)
 <!-- feed end -->
