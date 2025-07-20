@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Multi-day enforcement efforts led to several arrests, drug and gun seizures in Springfield](https://www.yahoo.com/news/multi-day-enforcement-efforts-led-011642254.html)
 - Jul 20 - [For the first time in modern history a capital city is on the verge of running dry](https://www.yahoo.com/news/first-time-modern-history-capital-010252699.html)
-- Jul 19 - [ICE secretly deported Pennsylvania grandfather, 82, after he lost his Green Card](https://www.yahoo.com/news/ice-secretly-deported-pennsylvania-grandfather-231727150.html)
 - Jul 19 - [Fact Check: Photo showing Trump and Epstein with a minor girl isn't what it seems](https://www.yahoo.com/news/fact-check-photo-showing-trump-230000576.html)
-- Jul 19 - [TRACKING: Potential for strong evening storms](https://www.yahoo.com/news/tracking-potential-strong-evening-storms-113750504.html)
+- Jul 19 - [Trump administration imposes limits on Mexican flights and threatens Delta alliance in trade dispute](https://www.yahoo.com/news/trump-administration-imposes-limits-mexican-210447704.html)
+- Jul 19 - ['I Will Never Let Someone Take 50K From Me For Doing 4 Hours Of Work,' Says A Home Seller. 'Selling A House The Traditional Way Is Absurd'](https://finance.yahoo.com/news/never-let-someone-50k-doing-203350685.html)
+- Jul 19 - [FDA Announces Major Recall of Popular Deodorant](https://www.yahoo.com/news/fda-announces-major-recall-popular-183618832.html)
 <!-- feed end -->
