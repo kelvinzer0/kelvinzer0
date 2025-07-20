@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - ['Quiet cracking' is affecting millions of workers — why it's dangerous and how to spot it](https://www.yahoo.com/news/quiet-cracking-affecting-millions-workers-121500915.html)
-- Jul 20 - [The No. 1 Reason Retiring Rich Seems Impossible — and 3 Reasons You Can Do It Anyway](https://finance.yahoo.com/news/no-1-reason-retiring-rich-110713882.html)
-- Jul 20 - [Kremlin says Putin is ready to discuss peace in Ukraine but wants to achieve goals](https://www.yahoo.com/news/kremlin-says-putin-ready-discuss-090520895.html)
-- Jul 20 - [For the first time in modern history a capital city is on the verge of running dry](https://www.yahoo.com/news/first-time-modern-history-capital-010252699.html)
-- Jul 19 - [Fact Check: Photo showing Trump and Epstein with a minor girl isn't what it seems](https://www.yahoo.com/news/fact-check-photo-showing-trump-230000576.html)
+- Jul 20 - [How AI is breathing new life into old tech giants](https://finance.yahoo.com/video/ai-breathing-life-old-tech-120046220.html)
+- Jul 20 - [Scientists stunned after discovering long-lost fish thriving in lake for decades: 'It's kind of like finding the missing link'](https://www.yahoo.com/news/scientists-stunned-discovering-long-lost-104536203.html)
+- Jul 20 - [Experts issue warning as beloved staple food could be wiped out: 'It's quite possible'](https://www.yahoo.com/news/experts-issue-warning-beloved-staple-104532432.html)
+- Jul 20 - [The Smartest Dividend Stock to Buy With $1,000 Right Now](https://finance.yahoo.com/news/smartest-dividend-stock-buy-1-080500208.html)
+- Jul 20 - [Prediction: Nvidia Stock Will Soar in the Second Half of 2025, Thanks to This Incredible News From Taiwan Semiconductor Manufacturing](https://finance.yahoo.com/news/prediction-nvidia-stock-soar-second-070200496.html)
 <!-- feed end -->
