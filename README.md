@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - ['Quiet cracking' is affecting millions of workers — why it's dangerous and how to spot it](https://www.yahoo.com/news/quiet-cracking-affecting-millions-workers-121500915.html)
-- Jul 20 - [How AI is breathing new life into old tech giants](https://finance.yahoo.com/video/ai-breathing-life-old-tech-120046220.html)
+- Jul 20 - [Archaeologists Made a Real-Life ‘Indiana Jones’ Discovery at a True Wonder of the World](https://www.yahoo.com/news/archaeologists-made-real-life-indiana-123800451.html)
+- Jul 20 - [Scientists stunned after discovering long-lost fish thriving in lake for decades: 'It's kind of like finding the missing link'](https://www.yahoo.com/news/scientists-stunned-discovering-long-lost-104536203.html)
 - Jul 20 - [Experts issue warning as beloved staple food could be wiped out: 'It's quite possible'](https://www.yahoo.com/news/experts-issue-warning-beloved-staple-104532432.html)
 - Jul 20 - [Kremlin says Putin is ready to discuss peace in Ukraine but wants to achieve goals](https://www.yahoo.com/news/kremlin-says-putin-ready-discuss-090520895.html)
-- Jul 20 - [Wordle hints today for #1,492: Clues and answer for Sunday, July 20](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1492-clues-and-answer-for-sunday-july-20-040113004.html)
+- Jul 20 - [Nvidia Just Topped a $4 Trillion Market Cap, but a Different Artificial Intelligence (AI) Giant Is Headed to $4.5 Trillion, According to a Certain Wall Street Analyst](https://finance.yahoo.com/news/nvidia-just-topped-4-trillion-085500074.html)
 <!-- feed end -->
