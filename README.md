@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 19 - [Florida football offensive lineman arrested on DUI, felony weapons charges](https://sports.yahoo.com/article/florida-football-offensive-lineman-arrested-193952085.html)
-- Jul 19 - [Quantum computing is so fire — No, seriously. BofA says it could be humanity’s biggest breakthrough since the discovery of fire](https://finance.yahoo.com/news/quantum-computing-fire-no-seriously-190420811.html)
-- Jul 19 - [FDA Announces Major Recall of Popular Deodorant](https://www.yahoo.com/news/fda-announces-major-recall-popular-183618832.html)
-- Jul 19 - [Man dies after heavy weight-training chain around neck pulls him into MRI machine](https://www.yahoo.com/news/man-dies-large-chain-necklace-155704828.html)
-- Jul 19 - [Albanian who cannot be deported taunts Home Office with personalised number plate](https://www.yahoo.com/news/albanian-cannot-deported-taunts-home-120225673.html)
+- Jul 20 - [Multi-day enforcement efforts led to several arrests, drug and gun seizures in Springfield](https://www.yahoo.com/news/multi-day-enforcement-efforts-led-011642254.html)
+- Jul 20 - [For the first time in modern history a capital city is on the verge of running dry](https://www.yahoo.com/news/first-time-modern-history-capital-010252699.html)
+- Jul 19 - [ICE secretly deported Pennsylvania grandfather, 82, after he lost his Green Card](https://www.yahoo.com/news/ice-secretly-deported-pennsylvania-grandfather-231727150.html)
+- Jul 19 - [Fact Check: Photo showing Trump and Epstein with a minor girl isn't what it seems](https://www.yahoo.com/news/fact-check-photo-showing-trump-230000576.html)
+- Jul 19 - [TRACKING: Potential for strong evening storms](https://www.yahoo.com/news/tracking-potential-strong-evening-storms-113750504.html)
 <!-- feed end -->
