@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Wisconsin dad issues warning after lithium battery destroys family home — how to ‘protect your family’ now](https://www.yahoo.com/news/wisconsin-dad-issues-warning-lithium-180000246.html)
+- Jul 20 - [Ole Miss football player Corey Adams is killed in Tennessee shooting](https://www.yahoo.com/news/ole-miss-football-player-corey-183253425.html)
+- Jul 20 - [People Are Calling Donald Trump's Latest Truth Social Rant "Batsh** Crazy" After He Demanded Two Sports Teams Bring Back Their Offensive Team Names](https://sports.yahoo.com/article/people-calling-donald-trumps-latest-182606398.html)
 - Jul 20 - [L.A. Mayor Karen Bass says "I don't think that's a problem" as city lacks permanent fire chief](https://www.yahoo.com/news/l-mayor-karen-bass-says-172944775.html)
-- Jul 20 - [60 Interesting Ocean Facts That'll Either Terrify You or Amaze You](https://www.yahoo.com/news/60-interesting-ocean-facts-thatll-172000163.html)
-- Jul 20 - [I’m a physician who has looked at hundreds of studies of vaccine safety, and here’s some of what RFK Jr. gets wrong](https://www.yahoo.com/news/m-physician-looked-hundreds-studies-140352956.html)
-- Jul 20 - [A Route 66 ghost town was ‘frozen in time’. Is it on the brink of a comeback?](https://www.yahoo.com/lifestyle/articles/route-66-ghost-town-frozen-140052839.html)
+- Jul 20 - [Ole Miss freshman defensive end Corey Adams reportedly killed in shooting in Tennessee](https://sports.yahoo.com/college-football/breaking-news/article/ole-miss-freshman-defensive-end-corey-adams-reportedly-killed-in-shooting-in-tennessee-171502689.html)
+- Jul 20 - [Archaeologists Made a Real-Life ‘Indiana Jones’ Discovery at a True Wonder of the World](https://www.yahoo.com/news/archaeologists-made-real-life-indiana-123800451.html)
 <!-- feed end -->
