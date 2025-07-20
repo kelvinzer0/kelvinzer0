@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Popular deodorant recall affects over 67,000 cases sold at Walmart, Amazon, and Dollar Tree](https://www.yahoo.com/lifestyle/articles/over-67-000-cases-popular-133326972.html)
-- Jul 20 - [Texas officials revise number of people missing in Kerr County following catastrophic flooding down to 3](https://www.yahoo.com/news/texas-officials-revise-number-people-011652077.html)
+- Jul 20 - [26 cities and towns across the US that offer cash and other perks to people who move there](https://www.yahoo.com/news/dreaming-fresh-start-towns-cities-153047851.html)
 - Jul 20 - [For the first time in modern history a capital city is on the verge of running dry](https://www.yahoo.com/news/first-time-modern-history-capital-010252699.html)
-- Jul 19 - [ICE secretly deported Pennsylvania grandfather, 82, after he lost his Green Card](https://www.yahoo.com/news/ice-secretly-deported-pennsylvania-grandfather-231727150.html)
-- Jul 19 - [OPEC Is Playing The Long Game](https://finance.yahoo.com/news/opec-playing-long-game-230000878.html)
+- Jul 19 - [Trump administration imposes limits on Mexican flights and threatens Delta alliance in trade dispute](https://www.yahoo.com/news/trump-administration-imposes-limits-mexican-210447704.html)
+- Jul 19 - [FDA Announces Major Recall of Popular Deodorant](https://www.yahoo.com/news/fda-announces-major-recall-popular-183618832.html)
+- Jul 19 - [US says attack on West Bank Palestinian church was 'act of terror'](https://www.yahoo.com/news/us-says-attack-west-bank-155439678.html)
 <!-- feed end -->
