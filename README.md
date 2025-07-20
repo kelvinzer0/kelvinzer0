@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Indonesia coast guard responds to fatal ship fire, reports say](https://www.yahoo.com/news/indonesia-coast-guard-responds-fatal-220023126.html)
-- Jul 20 - [I Asked ChatGPT How To Get Rich Off of Bitcoin — Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-rich-off-bitcoin-211221187.html)
-- Jul 20 - [Passengers jump for their lives as fire engulfs Indonesian ferry](https://www.yahoo.com/news/passengers-jump-lives-fire-engulfs-184805957.html)
+- Jul 20 - [Hegseth abandoned by aides as Pentagon left in turmoil](https://www.yahoo.com/news/hegseth-abandoned-aides-pentagon-left-204833457.html)
 - Jul 20 - [Author Michael Wolff tells The Daily Beast Podcast about the psychology behind Trump’s look-alike female staffers.](https://www.yahoo.com/news/author-michael-wolff-tells-daily-193238317.html)
-- Jul 20 - [Ole Miss freshman defensive end Corey Adams reportedly killed in shooting in Tennessee](https://sports.yahoo.com/college-football/breaking-news/article/ole-miss-freshman-defensive-end-corey-adams-reportedly-killed-in-shooting-in-tennessee-171502689.html)
+- Jul 20 - [Doctors Are Sharing The One Thing They Wish Everyone Knew About Their Body, And People Are Shocked At How Uneducated They Are About Themselves](https://www.yahoo.com/news/doctors-sharing-one-thing-wish-192102283.html)
+- Jul 20 - [1 killed and 2 missing after a group is swept over an Oregon waterfall](https://www.yahoo.com/news/1-killed-2-missing-group-191749268.html)
+- Jul 20 - [Florida Rep. Joe Casello dies following heart attack](https://www.yahoo.com/news/florida-rep-joe-casello-dies-172727574.html)
 <!-- feed end -->
