@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 20 - [Texas officials revise number of people missing in Kerr County following catastrophic flooding down to 3](https://www.yahoo.com/news/texas-officials-revise-number-people-011652077.html)
 - Jul 20 - [For the first time in modern history a capital city is on the verge of running dry](https://www.yahoo.com/news/first-time-modern-history-capital-010252699.html)
-- Jul 19 - [Jacksonville police shoot, kill man in Beach Blvd. incident](https://www.yahoo.com/news/officer-involved-shooting-closes-beach-235131252.html)
 - Jul 19 - [Fact Check: Photo showing Trump and Epstein with a minor girl isn't what it seems](https://www.yahoo.com/news/fact-check-photo-showing-trump-230000576.html)
 - Jul 19 - [Fire at Palm Springs mobile home park damages 5 mobile homes; one person hospitalized](https://www.yahoo.com/news/fire-breaks-ramon-mobile-home-223934710.html)
-- Jul 19 - [Trump administration imposes limits on Mexican flights and threatens Delta alliance in trade dispute](https://www.yahoo.com/news/trump-administration-imposes-limits-mexican-210447704.html)
+- Jul 19 - [TRACKING: Potential for strong evening storms](https://www.yahoo.com/news/tracking-potential-strong-evening-storms-113750504.html)
 <!-- feed end -->
