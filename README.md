@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Pete Hegseth's Senior Advisor Justin Fulcher Resigns from the Pentagon After 6 Months](https://www.yahoo.com/news/pete-hegseths-senior-advisor-justin-165508194.html)
-- Jul 20 - [2 Top Quantum Computing Stocks to Buy in July](https://finance.yahoo.com/news/2-top-quantum-computing-stocks-162000930.html)
-- Jul 20 - [Coldplay’s Chris Martin offered concertgoers a friendly warning before ‘Jumbotron Song’](https://www.yahoo.com/entertainment/articles/coldplay-chris-martin-offered-concertgoers-155727431.html)
+- Jul 20 - [Wisconsin dad issues warning after lithium battery destroys family home — how to ‘protect your family’ now](https://www.yahoo.com/news/wisconsin-dad-issues-warning-lithium-180000246.html)
+- Jul 20 - [L.A. Mayor Karen Bass says "I don't think that's a problem" as city lacks permanent fire chief](https://www.yahoo.com/news/l-mayor-karen-bass-says-172944775.html)
+- Jul 20 - [60 Interesting Ocean Facts That'll Either Terrify You or Amaze You](https://www.yahoo.com/news/60-interesting-ocean-facts-thatll-172000163.html)
 - Jul 20 - [I’m a physician who has looked at hundreds of studies of vaccine safety, and here’s some of what RFK Jr. gets wrong](https://www.yahoo.com/news/m-physician-looked-hundreds-studies-140352956.html)
-- Jul 20 - [Police: Pilot deceased after plane crashes in field near Lancaster Airport](https://www.yahoo.com/news/plane-crashes-near-lancaster-airport-125436204.html)
+- Jul 20 - [A Route 66 ghost town was ‘frozen in time’. Is it on the brink of a comeback?](https://www.yahoo.com/lifestyle/articles/route-66-ghost-town-frozen-140052839.html)
 <!-- feed end -->
