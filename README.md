@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Tsunami watch for Hawaii canceled after 7.4 magnitude quake off Russia](https://www.yahoo.com/news/tsunami-watch-hawaii-canceled-7-160500686.html)
-- Jul 20 - [Ferry Bursts into Flames with 280 Passengers Onboard, Forcing Many to Jump into the Sea to Escape Inferno](https://www.yahoo.com/entertainment/videos/ferry-bursts-flames-280-passengers-151201376.html)
-- Jul 20 - [Why Does Cadillac's Northstar Engine Get Such A Bad Rap?](https://autos.yahoo.com/articles/why-does-cadillacs-northstar-engine-150500696.html)
-- Jul 20 - [It’s Never ‘Happened in the History of Tech to Any Company Before’: OpenAI’s Sam Altman Says ChatGPT is Growing at an Unprecedented Rate](https://finance.yahoo.com/news/never-happened-history-tech-company-130002312.html)
-- Jul 20 - [Archaeologists Made a Real-Life ‘Indiana Jones’ Discovery at a True Wonder of the World](https://www.yahoo.com/news/archaeologists-made-real-life-indiana-123800451.html)
+- Jul 20 - [Pete Hegseth's Senior Advisor Justin Fulcher Resigns from the Pentagon After 6 Months](https://www.yahoo.com/news/pete-hegseths-senior-advisor-justin-165508194.html)
+- Jul 20 - [2 Top Quantum Computing Stocks to Buy in July](https://finance.yahoo.com/news/2-top-quantum-computing-stocks-162000930.html)
+- Jul 20 - [Coldplay’s Chris Martin offered concertgoers a friendly warning before ‘Jumbotron Song’](https://www.yahoo.com/entertainment/articles/coldplay-chris-martin-offered-concertgoers-155727431.html)
+- Jul 20 - [I’m a physician who has looked at hundreds of studies of vaccine safety, and here’s some of what RFK Jr. gets wrong](https://www.yahoo.com/news/m-physician-looked-hundreds-studies-140352956.html)
+- Jul 20 - [Police: Pilot deceased after plane crashes in field near Lancaster Airport](https://www.yahoo.com/news/plane-crashes-near-lancaster-airport-125436204.html)
 <!-- feed end -->
