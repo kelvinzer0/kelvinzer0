@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Tel Aviv installation commemorates fallen Israeli soldiers](https://www.yahoo.com/news/tel-aviv-installation-commemorates-fallen-224501323.html)
+- Jul 21 - [RFK Jr orders changes for organ donation network as report finds dozens were not dead when harvested](https://www.yahoo.com/news/rfk-jr-orders-changes-organ-204941188.html)
+- Jul 21 - [$1 Billion Bitcoin Transfer Triggers Massive Liquidations — This Is Where It Was Offloaded](https://finance.yahoo.com/news/1-billion-bitcoin-transfer-triggers-203157935.html)
 - Jul 21 - [Billionaire Charlie Munger Said Only Married Couples Need To Buy Homes — 'Single People, I Don't Care If They Ever Get A House'](https://finance.yahoo.com/news/billionaire-charlie-munger-said-only-203156049.html)
 - Jul 21 - [Malcolm-Jamal Warner drowned while swimming off coast of Costa Rica, authorities say. Here are 9 swim safety tips that could save your life.](https://www.yahoo.com/lifestyle/article/malcolm-jamal-warner-drowned-while-swimming-off-coast-of-costa-rica-authorities-say-here-are-9-swim-safety-tips-that-could-save-your-life-195918971.html)
-- Jul 21 - [Trump administration releases FBI records on MLK Jr. despite his family’s opposition](https://www.yahoo.com/news/trump-administration-released-fbi-records-194607500.html)
-- Jul 21 - [Mark Green resigns from Congress, further shrinking House GOP majority](https://www.yahoo.com/news/mark-green-resigns-congress-further-190418185.html)
-- Jul 21 - [Minnesota lawmaker to resign after being convicted of felony burglary](https://www.yahoo.com/news/minnesota-lawmaker-resign-being-convicted-183323831.html)
 <!-- feed end -->
