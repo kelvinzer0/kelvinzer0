@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Iran’s generals tighten grip on the country after Israeli strikes](https://www.yahoo.com/news/iran-generals-tighten-grip-country-050000944.html)
-- Jul 21 - [Alaska Airlines grounds all flights after IT outage disrupts systems](https://www.yahoo.com/news/alaska-airlines-requests-ground-stop-030945093.html)
+- Jul 21 - [Japan's Ishiba says he'll stay in office to tackle inflation and US tariffs despite election loss](https://www.yahoo.com/news/japanese-pm-stay-tackle-challenges-055359022.html)
+- Jul 21 - [Alaska Airlines resumes operations after IT outage](https://www.yahoo.com/news/alaska-airlines-requests-ground-stop-030945093.html)
 - Jul 21 - [Ronda Rousey Refuses To Apologize For Where She Stands Politically](https://www.yahoo.com/entertainment/articles/ronda-rousey-refuses-apologize-where-015007650.html)
-- Jul 20 - [Coldplay’s Chris Martin offered concertgoers a friendly warning before ‘Jumbotron Song’](https://www.yahoo.com/entertainment/articles/coldplay-chris-martin-offered-concertgoers-155727431.html)
+- Jul 20 - [Bystander struck by vehicle in Northern California sideshow, several cars involved](https://www.yahoo.com/news/bystander-struck-vehicle-northern-california-220647024.html)
 - Jul 20 - [Barron Trump Made 'Sad' Sports Career Announcement](https://sports.yahoo.com/article/barron-trump-made-sad-sports-214307086.html)
 <!-- feed end -->
