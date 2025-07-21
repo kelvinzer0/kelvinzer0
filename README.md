@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Mexico sees no reason for US to impose sanctions on airlines](https://www.yahoo.com/news/mexico-sees-no-reason-us-150803041.html)
-- Jul 21 - [US government agencies are under attack in widespread Microsoft hack](https://www.yahoo.com/news/us-government-agencies-under-attack-142808309.html)
+- Jul 21 - [Average UK house asking price sees steepest monthly drop in 20 years](https://finance.yahoo.com/news/average-uk-house-asking-price-152121501.html)
+- Jul 21 - [Georgia Homeowner Says Neighbor Replaced 'Rotting' Shared Fence Without Permission — Then Demanded $2,000 While He Was 6 Feet Up A Tree](https://finance.yahoo.com/news/georgia-homeowner-says-neighbor-replaced-151604874.html)
+- Jul 21 - [Former interim NYPD commissioner Donlon files $10M notice he’ll sue Mayor Adams for defamation](https://www.yahoo.com/news/former-interim-nypd-commissioner-donlon-145900211.html)
+- Jul 21 - [Search underway for escaped prisoner in Northern Kentucky](https://www.yahoo.com/news/search-underway-escaped-prisoner-northern-144232517.html)
 - Jul 21 - [Amid the Jeffrey Epstein saga, Rep. James Comer claimed Joe Biden’s alleged autopen use was the “biggest scandal in the history of American politics.”](https://www.yahoo.com/news/amid-jeffrey-epstein-saga-rep-141819907.html)
-- Jul 21 - [Alaska Airlines Grounds All Flights After IT System Meltdown](https://www.yahoo.com/news/alaska-airlines-grounds-flights-system-140041069.html)
-- Jul 21 - [Warren Buffett: Here’s What You’d Make If You Invested $100 a Week in These Index Funds](https://finance.yahoo.com/news/warren-buffett-winner-invested-1-120019648.html)
 <!-- feed end -->
