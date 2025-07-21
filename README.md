@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Analysis-US sanctions could cause chaos on Latam farms run on Russian fertilizers](https://finance.yahoo.com/news/analysis-us-sanctions-could-cause-100743098.html)
-- Jul 21 - [US hotels boost background checks as migrant scrutiny grows](https://www.yahoo.com/news/us-hotels-boost-background-checks-100415455.html)
-- Jul 21 - [Dozens of Palestinians Seeking Aid Killed in Northern Gaza](https://finance.yahoo.com/video/dozens-palestinians-seeking-aid-killed-091000831.html)
-- Jul 21 - [Women on Pensacola streets are trafficked every day. It's difficult to prove and stop.](https://www.yahoo.com/news/women-pensacola-streets-trafficked-every-090059066.html)
+- Jul 21 - [Analysis-Kraft Heinz seeks to revive old brands by undoing 2015 mega-merger](https://finance.yahoo.com/news/analysis-kraft-heinz-seeks-revive-100240592.html)
+- Jul 21 - [Trump officials to visit Fed amid renovation probe, Semafor reports](https://www.yahoo.com/news/trump-officials-visit-fed-amid-094952020.html)
 - Jul 21 - [Israeli military attacks Houthi targets in Yemen's Hodeidah port](https://www.yahoo.com/news/israeli-military-attacking-houthi-targets-082509446.html)
+- Jul 21 - [Pilots ‘switched off wrong engine’ in South Korea crash that killed 179](https://www.yahoo.com/news/pilots-switched-off-wrong-engine-082403902.html)
+- Jul 21 - [TSMC CFO on Currency Volatility Impact on Business](https://finance.yahoo.com/video/tsmc-cfo-currency-volatility-impact-075216419.html)
 <!-- feed end -->
