@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 20 - [Hegseth abandoned by aides as Pentagon left in turmoil](https://www.yahoo.com/news/hegseth-abandoned-aides-pentagon-left-204833457.html)
-- Jul 20 - [Author Michael Wolff tells The Daily Beast Podcast about the psychology behind Trump’s look-alike female staffers.](https://www.yahoo.com/news/author-michael-wolff-tells-daily-193238317.html)
-- Jul 20 - [Doctors Are Sharing The One Thing They Wish Everyone Knew About Their Body, And People Are Shocked At How Uneducated They Are About Themselves](https://www.yahoo.com/news/doctors-sharing-one-thing-wish-192102283.html)
-- Jul 20 - [1 killed and 2 missing after a group is swept over an Oregon waterfall](https://www.yahoo.com/news/1-killed-2-missing-group-191749268.html)
-- Jul 20 - [Florida Rep. Joe Casello dies following heart attack](https://www.yahoo.com/news/florida-rep-joe-casello-dies-172727574.html)
+- Jul 21 - [A Once-in-a-Lifetime Opportunity: This Blue Chip Healthcare Stock Down 50% Could Double Your Money](https://finance.yahoo.com/news/once-lifetime-opportunity-blue-chip-012400715.html)
+- Jul 21 - [FBI agent found guilty of raping three women inside of his secret tattoo parlor](https://www.yahoo.com/news/fbi-agent-found-guilty-raping-154217403.html)
+- Jul 20 - [Coldplay’s Chris Martin offered concertgoers a friendly warning before ‘Jumbotron Song’](https://www.yahoo.com/entertainment/articles/coldplay-chris-martin-offered-concertgoers-155727431.html)
+- Jul 20 - [Barron Trump Made 'Sad' Sports Career Announcement](https://sports.yahoo.com/article/barron-trump-made-sad-sports-214307086.html)
+- Jul 20 - [Top economist sounds the alarm even louder on the housing market and says homebuilders are ‘giving up’](https://finance.yahoo.com/news/top-economist-sounds-alarm-even-205542455.html)
 <!-- feed end -->
