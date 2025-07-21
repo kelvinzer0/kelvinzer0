@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Japan's Ishiba says he'll stay in office to tackle inflation and US tariffs despite election loss](https://www.yahoo.com/news/japanese-pm-stay-tackle-challenges-055359022.html)
 - Jul 21 - [Alaska Airlines resumes operations after IT outage](https://www.yahoo.com/news/alaska-airlines-requests-ground-stop-030945093.html)
-- Jul 21 - [Ronda Rousey Refuses To Apologize For Where She Stands Politically](https://www.yahoo.com/entertainment/articles/ronda-rousey-refuses-apologize-where-015007650.html)
-- Jul 20 - [Bystander struck by vehicle in Northern California sideshow, several cars involved](https://www.yahoo.com/news/bystander-struck-vehicle-northern-california-220647024.html)
-- Jul 20 - [Barron Trump Made 'Sad' Sports Career Announcement](https://sports.yahoo.com/article/barron-trump-made-sad-sports-214307086.html)
+- Jul 21 - [Delta pilot forced to make ‘aggressive maneuver’ to avoid mid-air collision with B-52 bomber](https://www.yahoo.com/news/delta-pilot-forced-aggressive-maneuver-211650199.html)
+- Jul 21 - [Suspect in Los Angeles car-ramming incident has a criminal history and was on parole, police say](https://www.yahoo.com/news/suspect-los-angeles-car-ramming-021043462.html)
+- Jul 21 - [Investigation in one case leads to charges in another](https://www.yahoo.com/news/investigation-one-case-leads-charges-014700576.html)
+- Jul 21 - [Asia Morning Briefing: Miners and Whales Dumping BTC Amid Rally May Signal 'Local Top'](https://finance.yahoo.com/news/asia-morning-briefing-miners-whales-012537410.html)
 <!-- feed end -->
