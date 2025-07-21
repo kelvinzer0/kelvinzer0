@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [A Once-in-a-Lifetime Opportunity: This Blue Chip Healthcare Stock Down 50% Could Double Your Money](https://finance.yahoo.com/news/once-lifetime-opportunity-blue-chip-012400715.html)
-- Jul 21 - [FBI agent found guilty of raping three women inside of his secret tattoo parlor](https://www.yahoo.com/news/fbi-agent-found-guilty-raping-154217403.html)
-- Jul 20 - [Coldplay’s Chris Martin offered concertgoers a friendly warning before ‘Jumbotron Song’](https://www.yahoo.com/entertainment/articles/coldplay-chris-martin-offered-concertgoers-155727431.html)
+- Jul 21 - [Delta pilot forced to make ‘aggressive maneuver’ to avoid mid-air collision with B-52 bomber](https://www.yahoo.com/news/delta-pilot-forced-aggressive-maneuver-211650199.html)
+- Jul 21 - ["It's a long time" - Nick Van Exel on his son getting a 60-year jail sentence for murder in 2013](https://sports.yahoo.com/article/long-time-nick-van-exel-001100541.html)
 - Jul 20 - [Barron Trump Made 'Sad' Sports Career Announcement](https://sports.yahoo.com/article/barron-trump-made-sad-sports-214307086.html)
-- Jul 20 - [Top economist sounds the alarm even louder on the housing market and says homebuilders are ‘giving up’](https://finance.yahoo.com/news/top-economist-sounds-alarm-even-205542455.html)
+- Jul 20 - [Alan Dershowitz also said the convicted sex trafficker should be granted immunity to speak about her relationship with Epstein.](https://www.yahoo.com/news/alan-dershowitz-said-convicted-sex-205142271.html)
+- Jul 20 - [Hegseth abandoned by aides as Pentagon left in turmoil](https://www.yahoo.com/news/hegseth-abandoned-aides-pentagon-left-204833457.html)
 <!-- feed end -->
