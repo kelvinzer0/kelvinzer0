@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Analysis-US sanctions could cause chaos on Latam farms run on Russian fertilizers](https://finance.yahoo.com/news/analysis-us-sanctions-could-cause-100743098.html)
+- Jul 21 - [US hotels boost background checks as migrant scrutiny grows](https://www.yahoo.com/news/us-hotels-boost-background-checks-100415455.html)
 - Jul 21 - [Dozens of Palestinians Seeking Aid Killed in Northern Gaza](https://finance.yahoo.com/video/dozens-palestinians-seeking-aid-killed-091000831.html)
-- Jul 21 - [TSMC CFO on Currency Volatility Impact on Business](https://finance.yahoo.com/video/tsmc-cfo-currency-volatility-impact-075216419.html)
-- Jul 21 - [UK fighter jet stuck in India for five weeks is finally ready to fly](https://www.yahoo.com/news/uk-fighter-jet-stuck-india-053948067.html)
-- Jul 21 - [Ronda Rousey Refuses To Apologize For Where She Stands Politically](https://www.yahoo.com/entertainment/articles/ronda-rousey-refuses-apologize-where-015007650.html)
-- Jul 21 - [Investigation in one case leads to charges in another](https://www.yahoo.com/news/investigation-one-case-leads-charges-014700576.html)
+- Jul 21 - [Women on Pensacola streets are trafficked every day. It's difficult to prove and stop.](https://www.yahoo.com/news/women-pensacola-streets-trafficked-every-090059066.html)
+- Jul 21 - [Israeli military attacks Houthi targets in Yemen's Hodeidah port](https://www.yahoo.com/news/israeli-military-attacking-houthi-targets-082509446.html)
 <!-- feed end -->
