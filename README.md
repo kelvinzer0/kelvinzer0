@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Democratic AGs sue to bar immigration requirements for Head Start and other federal programs](https://www.yahoo.com/news/democratic-ags-sue-bar-immigration-194534754.html)
+- Jul 21 - [Oregon authorities are still searching for 2 missing after a fatal waterfall accident](https://www.yahoo.com/news/oregon-authorities-still-searching-2-192935729.html)
 - Jul 21 - [Minnesota lawmaker to resign after being convicted of felony burglary](https://www.yahoo.com/news/minnesota-lawmaker-resign-being-convicted-183323831.html)
-- Jul 21 - [Ice cream recall: Bars sold in 23 states including Alabama pose listeria risk](https://www.yahoo.com/news/ice-cream-recall-bars-sold-181056349.html)
-- Jul 21 - [Meet Rory McIlroy's billionaire neighbor with 7,000 cars, 39 tigers and $15K haircut habit](https://sports.yahoo.com/article/meet-rory-mcilroys-billionaire-neighbor-172014397.html)
-- Jul 21 - [This 12 Dividend Stock Portfolio Will Pay Your Bills – Every Week](https://finance.yahoo.com/news/12-dividend-stock-portfolio-pay-170406575.html)
-- Jul 21 - [Brazil's President's Eye-Opening Message To The American People Is Going Super Viral](https://www.yahoo.com/news/brazils-presidents-eye-opening-message-164901689.html)
+- Jul 21 - [Russia appears to be launching its exploding Shahed-style drones from American-designed pickup trucks](https://www.yahoo.com/news/russia-appears-launching-exploding-shahed-181258550.html)
+- Jul 21 - [Marine who criticized leaders for Afghanistan withdrawal to lead promotions review](https://www.yahoo.com/news/marine-criticized-leaders-afghanistan-withdrawal-180501670.html)
 <!-- feed end -->
