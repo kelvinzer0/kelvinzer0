@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Democratic AGs sue to bar immigration requirements for Head Start and other federal programs](https://www.yahoo.com/news/democratic-ags-sue-bar-immigration-194534754.html)
-- Jul 21 - [Oregon authorities are still searching for 2 missing after a fatal waterfall accident](https://www.yahoo.com/news/oregon-authorities-still-searching-2-192935729.html)
-- Jul 21 - [Minnesota lawmaker to resign after being convicted of felony burglary](https://www.yahoo.com/news/minnesota-lawmaker-resign-being-convicted-183323831.html)
-- Jul 21 - [Russia appears to be launching its exploding Shahed-style drones from American-designed pickup trucks](https://www.yahoo.com/news/russia-appears-launching-exploding-shahed-181258550.html)
-- Jul 21 - [Marine who criticized leaders for Afghanistan withdrawal to lead promotions review](https://www.yahoo.com/news/marine-criticized-leaders-afghanistan-withdrawal-180501670.html)
+- Jul 21 - [Speaker Mike Johnson Won't Allow House Vote On Jeffrey Epstein Files](https://www.yahoo.com/news/speaker-mike-johnson-wont-allow-205500985.html)
+- Jul 21 - [Billionaire Charlie Munger Said Only Married Couples Need To Buy Homes — 'Single People, I Don't Care If They Ever Get A House'](https://finance.yahoo.com/news/billionaire-charlie-munger-said-only-203156049.html)
+- Jul 21 - [Trump 'caught off guard' by recent Israeli strikes, White House says](https://www.yahoo.com/news/trump-caught-off-guard-recent-202329725.html)
+- Jul 21 - [Malcolm-Jamal Warner drowned while swimming off coast of Costa Rica, authorities say. Here are 9 swim safety tips that could save your life.](https://www.yahoo.com/lifestyle/article/malcolm-jamal-warner-drowned-while-swimming-off-coast-of-costa-rica-authorities-say-here-are-9-swim-safety-tips-that-could-save-your-life-195918971.html)
+- Jul 21 - [Trump administration released FBI records on MLK Jr. despite his family’s opposition](https://www.yahoo.com/news/trump-administration-released-fbi-records-194607500.html)
 <!-- feed end -->
