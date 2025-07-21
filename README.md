@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Dramatic video shows people in water after Indonesian passenger ferry catches fire at sea](https://www.yahoo.com/news/dramatic-video-shows-people-water-133635252.html)
 - Jul 21 - [Delta regional pilot makes 'aggressive maneuver' to avoid B-52 collision](https://www.yahoo.com/news/delta-regional-pilot-makes-aggressive-182800468.html)
-- Jul 21 - [Microsoft releases urgent fix for Sharepoint vulnerability being used in global cyberattacks](https://www.yahoo.com/news/microsoft-releases-urgent-fix-sharepoint-130326084.html)
-- Jul 21 - [Driver who inhaled laughing gas before crash jailed](https://www.yahoo.com/news/driver-inhaled-laughing-gas-crash-123609268.html)
-- Jul 21 - [Why is heart cancer so rare? A biologist explains](https://www.yahoo.com/news/why-heart-cancer-rare-biologist-123355569.html)
-- Jul 21 - [North Carolina neighbors report a noisy party — but instead of the owners, police found the ‘lawn guy’ hosting](https://www.yahoo.com/news/north-carolina-neighbors-report-noisy-123000472.html)
+- Jul 21 - [Microsoft server hack likely single actor, thousands of firms now vulnerable, researchers say](https://finance.yahoo.com/news/microsoft-server-hack-likely-single-132801073.html)
+- Jul 21 - [Brazil economy on track despite U.S. tariffs, but inflation risk up: Reuters Poll](https://finance.yahoo.com/news/brazil-economy-track-despite-u-131049010.html)
+- Jul 21 - [More Americans shift money from checking and savings to accounts with investment income, study says](https://finance.yahoo.com/news/more-americans-shift-money-checking-130006661.html)
 <!-- feed end -->
