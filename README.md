@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Average UK house asking price sees steepest monthly drop in 20 years](https://finance.yahoo.com/news/average-uk-house-asking-price-152121501.html)
-- Jul 21 - [Georgia Homeowner Says Neighbor Replaced 'Rotting' Shared Fence Without Permission — Then Demanded $2,000 While He Was 6 Feet Up A Tree](https://finance.yahoo.com/news/georgia-homeowner-says-neighbor-replaced-151604874.html)
-- Jul 21 - [Former interim NYPD commissioner Donlon files $10M notice he’ll sue Mayor Adams for defamation](https://www.yahoo.com/news/former-interim-nypd-commissioner-donlon-145900211.html)
-- Jul 21 - [Search underway for escaped prisoner in Northern Kentucky](https://www.yahoo.com/news/search-underway-escaped-prisoner-northern-144232517.html)
-- Jul 21 - [Amid the Jeffrey Epstein saga, Rep. James Comer claimed Joe Biden’s alleged autopen use was the “biggest scandal in the history of American politics.”](https://www.yahoo.com/news/amid-jeffrey-epstein-saga-rep-141819907.html)
+- Jul 21 - [Second suspect arrested in the shooting of an off-duty US customs officer in a Manhattan park](https://www.yahoo.com/news/second-suspect-arrested-shooting-off-165301003.html)
+- Jul 21 - [Trump-Epstein latest: FBI agents were told to 'flag' any files that mentioned the president, Sen. Durbin says, as an Epstein accuser recalls an encounter with both men](https://www.yahoo.com/news/trump-epstein-latest-fbi-agents-were-told-to-flag-any-files-that-mentioned-the-president-sen-durbin-says-as-an-epstein-accuser-recalls-an-encounter-with-both-men-163644244.html)
+- Jul 21 - [Prosecutors seek to try 17-year-old as an adult in Maine paddleboarder's death](https://www.yahoo.com/news/prosecutors-seek-try-17-old-163444165.html)
+- Jul 21 - [Former USAF Lt. Col. Larry Brock Jr. speaks to Amarillo Republicans](https://www.yahoo.com/news/former-usaf-lt-col-larry-162016193.html)
+- Jul 21 - [Ole Miss player killed in Tennessee: What to know about Corey Adams and the shooting that took his life](https://www.yahoo.com/news/ole-miss-player-killed-tennessee-161620217.html)
 <!-- feed end -->
