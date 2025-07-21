@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Minnesota lawmaker to resign after being convicted of felony burglary](https://www.yahoo.com/news/minnesota-lawmaker-resign-being-convicted-183323831.html)
+- Jul 21 - [Ice cream recall: Bars sold in 23 states including Alabama pose listeria risk](https://www.yahoo.com/news/ice-cream-recall-bars-sold-181056349.html)
 - Jul 21 - [Meet Rory McIlroy's billionaire neighbor with 7,000 cars, 39 tigers and $15K haircut habit](https://sports.yahoo.com/article/meet-rory-mcilroys-billionaire-neighbor-172014397.html)
+- Jul 21 - [This 12 Dividend Stock Portfolio Will Pay Your Bills – Every Week](https://finance.yahoo.com/news/12-dividend-stock-portfolio-pay-170406575.html)
 - Jul 21 - [Brazil's President's Eye-Opening Message To The American People Is Going Super Viral](https://www.yahoo.com/news/brazils-presidents-eye-opening-message-164901689.html)
-- Jul 21 - [Parents Abandoned Their Baby at Courthouse, Then Dad Told Cops, 'They Were Going to Take Him Anyway': Police](https://www.yahoo.com/news/parents-abandoned-baby-courthouse-then-164826024.html)
-- Jul 21 - [Analyst who correctly predicted 2022 bull run sees Dogecoin hitting $1T](https://finance.yahoo.com/news/analyst-correctly-predicted-2022-bull-164814521.html)
-- Jul 21 - [Trump-Epstein latest: FBI agents were told to 'flag' any files that mentioned the president, Sen. Durbin says, as an Epstein accuser recalls an encounter with both men](https://www.yahoo.com/news/trump-epstein-latest-fbi-agents-were-told-to-flag-any-files-that-mentioned-the-president-sen-durbin-says-as-an-epstein-accuser-recalls-an-encounter-with-both-men-163644244.html)
 <!-- feed end -->
