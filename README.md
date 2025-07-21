@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Alaska Airlines resumes operations after IT outage](https://www.yahoo.com/news/alaska-airlines-requests-ground-stop-030945093.html)
-- Jul 21 - [Delta pilot forced to make ‘aggressive maneuver’ to avoid mid-air collision with B-52 bomber](https://www.yahoo.com/news/delta-pilot-forced-aggressive-maneuver-211650199.html)
-- Jul 21 - [Suspect in Los Angeles car-ramming incident has a criminal history and was on parole, police say](https://www.yahoo.com/news/suspect-los-angeles-car-ramming-021043462.html)
+- Jul 21 - [Dozens of Palestinians Seeking Aid Killed in Northern Gaza](https://finance.yahoo.com/video/dozens-palestinians-seeking-aid-killed-091000831.html)
+- Jul 21 - [TSMC CFO on Currency Volatility Impact on Business](https://finance.yahoo.com/video/tsmc-cfo-currency-volatility-impact-075216419.html)
+- Jul 21 - [UK fighter jet stuck in India for five weeks is finally ready to fly](https://www.yahoo.com/news/uk-fighter-jet-stuck-india-053948067.html)
+- Jul 21 - [Ronda Rousey Refuses To Apologize For Where She Stands Politically](https://www.yahoo.com/entertainment/articles/ronda-rousey-refuses-apologize-where-015007650.html)
 - Jul 21 - [Investigation in one case leads to charges in another](https://www.yahoo.com/news/investigation-one-case-leads-charges-014700576.html)
-- Jul 21 - [Asia Morning Briefing: Miners and Whales Dumping BTC Amid Rally May Signal 'Local Top'](https://finance.yahoo.com/news/asia-morning-briefing-miners-whales-012537410.html)
 <!-- feed end -->
