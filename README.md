@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Second suspect arrested in the shooting of an off-duty US customs officer in a Manhattan park](https://www.yahoo.com/news/second-suspect-arrested-shooting-off-165301003.html)
+- Jul 21 - [Meet Rory McIlroy's billionaire neighbor with 7,000 cars, 39 tigers and $15K haircut habit](https://sports.yahoo.com/article/meet-rory-mcilroys-billionaire-neighbor-172014397.html)
+- Jul 21 - [Brazil's President's Eye-Opening Message To The American People Is Going Super Viral](https://www.yahoo.com/news/brazils-presidents-eye-opening-message-164901689.html)
+- Jul 21 - [Parents Abandoned Their Baby at Courthouse, Then Dad Told Cops, 'They Were Going to Take Him Anyway': Police](https://www.yahoo.com/news/parents-abandoned-baby-courthouse-then-164826024.html)
+- Jul 21 - [Analyst who correctly predicted 2022 bull run sees Dogecoin hitting $1T](https://finance.yahoo.com/news/analyst-correctly-predicted-2022-bull-164814521.html)
 - Jul 21 - [Trump-Epstein latest: FBI agents were told to 'flag' any files that mentioned the president, Sen. Durbin says, as an Epstein accuser recalls an encounter with both men](https://www.yahoo.com/news/trump-epstein-latest-fbi-agents-were-told-to-flag-any-files-that-mentioned-the-president-sen-durbin-says-as-an-epstein-accuser-recalls-an-encounter-with-both-men-163644244.html)
-- Jul 21 - [Prosecutors seek to try 17-year-old as an adult in Maine paddleboarder's death](https://www.yahoo.com/news/prosecutors-seek-try-17-old-163444165.html)
-- Jul 21 - [Former USAF Lt. Col. Larry Brock Jr. speaks to Amarillo Republicans](https://www.yahoo.com/news/former-usaf-lt-col-larry-162016193.html)
-- Jul 21 - [Ole Miss player killed in Tennessee: What to know about Corey Adams and the shooting that took his life](https://www.yahoo.com/news/ole-miss-player-killed-tennessee-161620217.html)
 <!-- feed end -->
