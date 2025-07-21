@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 21 - [Soleno Therapeutics’ Vykat XR Exceeds Sales Expectations](https://finance.yahoo.com/news/soleno-therapeutics-vykat-xr-exceeds-041510381.html)
 - Jul 21 - [Delta pilot forced to make ‘aggressive maneuver’ to avoid mid-air collision with B-52 bomber](https://www.yahoo.com/news/delta-pilot-forced-aggressive-maneuver-211650199.html)
-- Jul 21 - ["It's a long time" - Nick Van Exel on his son getting a 60-year jail sentence for murder in 2013](https://sports.yahoo.com/article/long-time-nick-van-exel-001100541.html)
-- Jul 20 - [Barron Trump Made 'Sad' Sports Career Announcement](https://sports.yahoo.com/article/barron-trump-made-sad-sports-214307086.html)
-- Jul 20 - [Alan Dershowitz also said the convicted sex trafficker should be granted immunity to speak about her relationship with Epstein.](https://www.yahoo.com/news/alan-dershowitz-said-convicted-sex-205142271.html)
-- Jul 20 - [Hegseth abandoned by aides as Pentagon left in turmoil](https://www.yahoo.com/news/hegseth-abandoned-aides-pentagon-left-204833457.html)
+- Jul 21 - [Ronda Rousey Refuses To Apologize For Where She Stands Politically](https://www.yahoo.com/entertainment/articles/ronda-rousey-refuses-apologize-where-015007650.html)
+- Jul 20 - [Coldplay’s Chris Martin offered concertgoers a friendly warning before ‘Jumbotron Song’](https://www.yahoo.com/entertainment/articles/coldplay-chris-martin-offered-concertgoers-155727431.html)
+- Jul 20 - [Bystander struck by vehicle in Northern California sideshow, several cars involved](https://www.yahoo.com/news/bystander-struck-vehicle-northern-california-220647024.html)
 <!-- feed end -->
