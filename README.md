@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Dramatic video shows people in water after Indonesian passenger ferry catches fire at sea](https://www.yahoo.com/news/dramatic-video-shows-people-water-133635252.html)
-- Jul 21 - [Delta regional pilot makes 'aggressive maneuver' to avoid B-52 collision](https://www.yahoo.com/news/delta-regional-pilot-makes-aggressive-182800468.html)
-- Jul 21 - [Microsoft server hack likely single actor, thousands of firms now vulnerable, researchers say](https://finance.yahoo.com/news/microsoft-server-hack-likely-single-132801073.html)
-- Jul 21 - [Brazil economy on track despite U.S. tariffs, but inflation risk up: Reuters Poll](https://finance.yahoo.com/news/brazil-economy-track-despite-u-131049010.html)
-- Jul 21 - [More Americans shift money from checking and savings to accounts with investment income, study says](https://finance.yahoo.com/news/more-americans-shift-money-checking-130006661.html)
+- Jul 21 - [Mexico sees no reason for US to impose sanctions on airlines](https://www.yahoo.com/news/mexico-sees-no-reason-us-150803041.html)
+- Jul 21 - [US government agencies are under attack in widespread Microsoft hack](https://www.yahoo.com/news/us-government-agencies-under-attack-142808309.html)
+- Jul 21 - [Amid the Jeffrey Epstein saga, Rep. James Comer claimed Joe Biden’s alleged autopen use was the “biggest scandal in the history of American politics.”](https://www.yahoo.com/news/amid-jeffrey-epstein-saga-rep-141819907.html)
+- Jul 21 - [Alaska Airlines Grounds All Flights After IT System Meltdown](https://www.yahoo.com/news/alaska-airlines-grounds-flights-system-140041069.html)
+- Jul 21 - [Warren Buffett: Here’s What You’d Make If You Invested $100 a Week in These Index Funds](https://finance.yahoo.com/news/warren-buffett-winner-invested-1-120019648.html)
 <!-- feed end -->
