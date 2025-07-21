@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Azerbaijan to file international lawsuits against Russia over Aktau plane crash, president says](https://www.yahoo.com/news/azerbaijan-file-international-lawsuits-against-114654315.html)
-- Jul 21 - [Mag 7 Earnings Preview: What to Watch for in AI, Cloud](https://finance.yahoo.com/video/mag-7-earnings-preview-watch-111519602.html)
-- Jul 21 - [At Least 19 Dead and Over 100 Injured After Military Jet Crashes into School Campus in Fireball Explosion: Reports](https://www.yahoo.com/news/1-dead-several-injured-military-102243716.html)
-- Jul 21 - [Analysis-Kraft Heinz seeks to revive old brands by undoing 2015 mega-merger](https://finance.yahoo.com/news/analysis-kraft-heinz-seeks-revive-100240172.html)
-- Jul 21 - [Air India jet skids during landing in Mumbai, damaging aircraft and runway](https://finance.yahoo.com/news/air-india-jet-skids-during-094332829.html)
+- Jul 21 - [Delta regional pilot makes 'aggressive maneuver' to avoid B-52 collision](https://www.yahoo.com/news/delta-regional-pilot-makes-aggressive-182800468.html)
+- Jul 21 - [Microsoft releases urgent fix for Sharepoint vulnerability being used in global cyberattacks](https://www.yahoo.com/news/microsoft-releases-urgent-fix-sharepoint-130326084.html)
+- Jul 21 - [Driver who inhaled laughing gas before crash jailed](https://www.yahoo.com/news/driver-inhaled-laughing-gas-crash-123609268.html)
+- Jul 21 - [Why is heart cancer so rare? A biologist explains](https://www.yahoo.com/news/why-heart-cancer-rare-biologist-123355569.html)
+- Jul 21 - [North Carolina neighbors report a noisy party — but instead of the owners, police found the ‘lawn guy’ hosting](https://www.yahoo.com/news/north-carolina-neighbors-report-noisy-123000472.html)
 <!-- feed end -->
