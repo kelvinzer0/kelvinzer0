@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [FTSE 100 LIVE: London stocks tread water as UK borrowing jumps above £20bn](https://uk.finance.yahoo.com/news/ftse-100-live-london-stocks-uk-borrowing-074620543.html)
 - Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
 - Jul 22 - [RFK Jr.'s choice of attire while hiking in Arizona sparks online chatter](https://www.yahoo.com/news/rfk-jr-choice-attire-while-021443643.html)
+- Jul 22 - [Malcolm-Jamal Warner's Drowning Accident Includes Second Victim in 'Critical Condition'](https://www.yahoo.com/entertainment/articles/malcolm-jamal-warners-drowning-accident-013806157.html)
 - Jul 22 - [Hundreds were reported missing after deadly Texas floods. Most of them were found safe](https://www.yahoo.com/news/hundreds-were-reported-missing-deadly-001721496.html)
-- Jul 21 - [Earth is spinning faster, leading timekeepers to consider an unprecedented move](https://www.yahoo.com/news/earth-spinning-faster-making-days-221434679.html)
-- Jul 21 - [Donald Trump Just Got A Brutal New Nickname Courtesy Of Jasmine Crockett, And The Internet Can't Stop Talking About It](https://www.yahoo.com/news/jasmine-crockett-insult-donald-trump-222508333.html)
 <!-- feed end -->
