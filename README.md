@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [The Latest: Trump hosting Philippines leader to talk tariffs and China](https://www.yahoo.com/news/latest-trump-hosting-philippines-leader-123240414.html)
-- Jul 22 - [Explainer-Why China's neighbours are worried about its new mega-dam project](https://www.yahoo.com/news/explainer-why-chinas-neighbours-worried-100639444.html)
-- Jul 22 - [Mortgage and refinance interest rates today, July 22, 2025: Mortgage rates trend downward](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-july-22-2025-100007782.html)
-- Jul 22 - [Putin stalls. Trump changes his mind. Ukraine targets Moscow. Latest on the war.](https://www.yahoo.com/news/putin-stalls-trump-changes-mind-070131984.html)
-- Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
+- Jul 22 - [UN chief urges tech sector to power data centers with renewables](https://tech.yahoo.com/ai/articles/un-chief-urges-tech-sector-130354321.html)
+- Jul 22 - [Russian lawmakers pass a bill punishing online searches for information deemed to be 'extremist'](https://www.yahoo.com/news/russian-lawmakers-pass-bill-punishing-130340914.html)
+- Jul 22 - [Ibiza Rocks cancels all events after two British men die at resort in a fortnight](https://www.yahoo.com/news/ibiza-rocks-cancels-events-two-113018354.html)
+- Jul 22 - [NFL Star Odell Beckham Jr., Who Converted His Salary To Bitcoin In 2021, Says, 'Safe To Say We Still Our Happy With Our Decision'—Here's What It Is Worth Now](https://finance.yahoo.com/news/nfl-star-odell-beckham-jr-123107885.html)
+- Jul 22 - [Husband who stabbed wife to death as she pushed their baby in pram jailed for 28 years](https://www.yahoo.com/news/husband-stabbed-wife-death-she-110838169.html)
 <!-- feed end -->
