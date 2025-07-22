@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Japanese yen-led dollar pullback to offer mild support to rupee at open](https://finance.yahoo.com/news/japanese-yen-led-dollar-pullback-025748992.html)
+- Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
+- Jul 22 - [Smartwatch leads search-and-rescue crews to site of fatal plane crash in Montana](https://www.yahoo.com/news/smartwatch-leads-search-rescue-crews-025503728.html)
 - Jul 22 - [Hundreds were reported missing after deadly Texas floods. Most of them were found safe](https://www.yahoo.com/news/hundreds-were-reported-missing-deadly-001721496.html)
 - Jul 21 - [Earth is spinning faster, leading timekeepers to consider an unprecedented move](https://www.yahoo.com/news/earth-spinning-faster-making-days-221434679.html)
-- Jul 21 - [Mountain lion attacks child on popular trail in Olympic National Park](https://www.yahoo.com/news/mountain-lion-attacks-child-popular-224739136.html)
-- Jul 21 - [Here’s What Trump Told Howard Stern in 2006 When Asked About His Minimum Sexual Age Limit](https://www.yahoo.com/news/trump-told-howard-stern-2006-223928455.html)
+- Jul 21 - [Donald Trump Just Got A Brutal New Nickname Courtesy Of Jasmine Crockett, And The Internet Can't Stop Talking About It](https://www.yahoo.com/news/jasmine-crockett-insult-donald-trump-222508333.html)
 <!-- feed end -->
