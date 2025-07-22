@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Northland Lifts PT on Hut 8 Mining (HUT) to $26 From $20, Keeps an Overweight Rating](https://finance.yahoo.com/news/northland-lifts-pt-hut-8-151324083.html)
-- Jul 22 - [Karen Read grand juror to plead guilty to leaking details about federal investigation](https://www.yahoo.com/news/karen-read-grand-juror-plead-150344757.html)
+- Jul 22 - [Boeing kicks off production of 777-8 freighter, the Seattle Times reports](https://finance.yahoo.com/news/boeing-kicks-off-production-777-154251066.html)
 - Jul 22 - [Turkey says it will intervene against any attempt to divide Syria](https://www.yahoo.com/news/turkey-says-intervene-against-attempt-140939822.html)
-- Jul 22 - [As The Cookie Crumbles: Here's Why Fans Are Boycotting Crumbl Cookies](https://www.yahoo.com/news/cookie-crumbles-heres-why-fans-124500775.html)
+- Jul 22 - [Air India says flight's power generator catches fire at Delhi airport, grounds for checks](https://finance.yahoo.com/news/air-india-says-flight-suffered-130353441.html)
 - Jul 22 - [NFL Star Odell Beckham Jr., Who Converted His Salary To Bitcoin In 2021, Says, 'Safe To Say We Still Our Happy With Our Decision'—Here's What It Is Worth Now](https://finance.yahoo.com/news/nfl-star-odell-beckham-jr-123107885.html)
+- Jul 22 - [Researchers from top AI labs including Google, OpenAI, and Anthropic warn they may be losing the ability to understand advanced AI models](https://www.yahoo.com/news/researchers-top-ai-labs-including-120530432.html)
 <!-- feed end -->
