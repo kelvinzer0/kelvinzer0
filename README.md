@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [After failed traffic stop, Virginia trooper shoots at man who crashed, fled on foot and remains at large](https://www.yahoo.com/news/articles/failed-traffic-stop-virginia-trooper-212800098.html)
-- Jul 22 - [Judges oust Trump ally Alina Habba as New Jersey’s top prosecutor](https://www.yahoo.com/news/articles/judges-decline-keep-trump-ally-191022754.html)
+- Jul 22 - [Charges dropped against more than 120 defendants in Massachusetts because they can't get attorney](https://www.yahoo.com/news/articles/charges-dropped-against-more-120-215217858.html)
+- Jul 22 - [The secret recordings that could blow open Trump’s true relationship with Epstein](https://www.yahoo.com/news/articles/secret-recordings-could-blow-open-202835829.html)
 - Jul 22 - [In world first, CCTV captures supershear velocity earthquake](https://www.yahoo.com/news/world-first-cctv-captures-supershear-190420781.html)
-- Jul 22 - [AeroMéxico plane nearly lands on top of Delta Air Lines 737 taking off](https://www.yahoo.com/news/aerom-xico-plane-nearly-lands-184850442.html)
-- Jul 22 - [Billionaire owner of the Los Angeles Times says he will take the newspaper public in the coming year](https://www.yahoo.com/news/articles/billionaire-owner-los-angeles-times-183949290.html)
+- Jul 22 - [Hyundai Launches Bold IONIQ 9 Lease Offer for July](https://autos.yahoo.com/articles/hyundai-launches-bold-ioniq-9-180000444.html)
+- Jul 22 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/jeff-daniels-issues-pointed-seven-174556073.html)
 <!-- feed end -->
