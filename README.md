@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Japanese yen-led dollar pullback to offer mild support to rupee at open](https://finance.yahoo.com/news/japanese-yen-led-dollar-pullback-025748992.html)
 - Jul 22 - [Hundreds were reported missing after deadly Texas floods. Most of them were found safe](https://www.yahoo.com/news/hundreds-were-reported-missing-deadly-001721496.html)
-- Jul 21 - [Tucker Carlson Spits Out 2-Word Response To Trump's Claim That He Called The President To Apologize](https://www.yahoo.com/news/tucker-carlson-spits-2-word-234610591.html)
 - Jul 21 - [Earth is spinning faster, leading timekeepers to consider an unprecedented move](https://www.yahoo.com/news/earth-spinning-faster-making-days-221434679.html)
 - Jul 21 - [Mountain lion attacks child on popular trail in Olympic National Park](https://www.yahoo.com/news/mountain-lion-attacks-child-popular-224739136.html)
-- Jul 21 - [Near-collision between B-52 and SkyWest jet was caught on camera](https://www.yahoo.com/news/near-collision-between-b-52-212056261.html)
+- Jul 21 - [Here’s What Trump Told Howard Stern in 2006 When Asked About His Minimum Sexual Age Limit](https://www.yahoo.com/news/trump-told-howard-stern-2006-223928455.html)
 <!-- feed end -->
