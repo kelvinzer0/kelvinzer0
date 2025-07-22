@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Boeing kicks off production of 777-8 freighter, the Seattle Times reports](https://finance.yahoo.com/news/boeing-kicks-off-production-777-154251066.html)
-- Jul 22 - [Turkey says it will intervene against any attempt to divide Syria](https://www.yahoo.com/news/turkey-says-intervene-against-attempt-140939822.html)
-- Jul 22 - [Air India says flight's power generator catches fire at Delhi airport, grounds for checks](https://finance.yahoo.com/news/air-india-says-flight-suffered-130353441.html)
-- Jul 22 - [NFL Star Odell Beckham Jr., Who Converted His Salary To Bitcoin In 2021, Says, 'Safe To Say We Still Our Happy With Our Decision'—Here's What It Is Worth Now](https://finance.yahoo.com/news/nfl-star-odell-beckham-jr-123107885.html)
-- Jul 22 - [Researchers from top AI labs including Google, OpenAI, and Anthropic warn they may be losing the ability to understand advanced AI models](https://www.yahoo.com/news/researchers-top-ai-labs-including-120530432.html)
+- Jul 22 - [800,000 Paddy Power and Betfair users warned of email scam threat](https://www.yahoo.com/news/paddy-power-betfair-leak-email-scam-164647039.html)
+- Jul 22 - [Republican Jim Jordan deposed in federal suit tied to sex abuse by late Ohio State team doctor](https://www.yahoo.com/news/republican-jim-jordan-deposed-federal-151951063.html)
+- Jul 22 - [Trump Team Crashes Out Over His Remark on Minimum Sexual “Age Limit”](https://www.yahoo.com/news/trump-team-crashes-over-remark-150845233.html)
+- Jul 22 - [Air traffic controllers didn't warn a B-52 bomber crew about a nearby airliner, the Air Force says](https://www.yahoo.com/news/air-traffic-controllers-didnt-warn-150723305.html)
+- Jul 22 - [Lansing sues to break up homelessness encampment near city park](https://www.yahoo.com/news/lansing-sues-break-homelessness-encampment-145327602.html)
 <!-- feed end -->
