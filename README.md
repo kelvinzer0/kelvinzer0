@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Six-month-old dies from bacterial meningitis after being rescued from mold-ridden condemned house](https://www.yahoo.com/news/six-month-old-dies-bacterial-164747804.html)
-- Jul 22 - [Trump Goes Full Fascist: ‘Whether It’s Right or Wrong, It’s Time to Go After People’](https://www.yahoo.com/news/trump-goes-full-fascist-whether-170238715.html)
+- Jul 22 - [Greek police arrest Moldovan tycoon Plahotniuc on Interpol notice](https://www.yahoo.com/news/greek-police-arrest-moldovan-tycoon-185110663.html)
+- Jul 22 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/jeff-daniels-issues-pointed-seven-174556073.html)
 - Jul 22 - [Californians turn on In-N-Out’s billionaire chief after she revealed plans to move company’s HQ out of state](https://www.yahoo.com/news/californians-turn-n-billionaire-chief-163101735.html)
-- Jul 22 - [Republican Jim Jordan deposed in federal suit tied to sex abuse by late Ohio State team doctor](https://www.yahoo.com/news/republican-jim-jordan-deposed-federal-151951063.html)
-- Jul 22 - [Jerome Powell should resign, top economist Mohamed El-Erian says, citing a scandal Trump hasn’t even mentioned](https://finance.yahoo.com/news/jerome-powell-resign-top-economist-142803344.html)
+- Jul 22 - [Florida's attorney general targets a restaurant over an LGBTQ Pride event](https://www.yahoo.com/news/floridas-attorney-general-targets-restaurant-162607255.html)
+- Jul 22 - [Are These Stocks the Next FANG? Jim Cramer Thinks So](https://finance.yahoo.com/news/stocks-next-fang-jim-cramer-152619445.html)
 <!-- feed end -->
