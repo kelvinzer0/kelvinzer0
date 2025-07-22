@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 21 - [Tel Aviv installation commemorates fallen Israeli soldiers](https://www.yahoo.com/news/tel-aviv-installation-commemorates-fallen-224501323.html)
-- Jul 21 - [RFK Jr orders changes for organ donation network as report finds dozens were not dead when harvested](https://www.yahoo.com/news/rfk-jr-orders-changes-organ-204941188.html)
-- Jul 21 - [$1 Billion Bitcoin Transfer Triggers Massive Liquidations — This Is Where It Was Offloaded](https://finance.yahoo.com/news/1-billion-bitcoin-transfer-triggers-203157935.html)
-- Jul 21 - [Billionaire Charlie Munger Said Only Married Couples Need To Buy Homes — 'Single People, I Don't Care If They Ever Get A House'](https://finance.yahoo.com/news/billionaire-charlie-munger-said-only-203156049.html)
-- Jul 21 - [Malcolm-Jamal Warner drowned while swimming off coast of Costa Rica, authorities say. Here are 9 swim safety tips that could save your life.](https://www.yahoo.com/lifestyle/article/malcolm-jamal-warner-drowned-while-swimming-off-coast-of-costa-rica-authorities-say-here-are-9-swim-safety-tips-that-could-save-your-life-195918971.html)
+- Jul 22 - [Hundreds were reported missing after deadly Texas floods. Most of them were found safe](https://www.yahoo.com/news/hundreds-were-reported-missing-deadly-001721496.html)
+- Jul 21 - [Tucker Carlson Spits Out 2-Word Response To Trump's Claim That He Called The President To Apologize](https://www.yahoo.com/news/tucker-carlson-spits-2-word-234610591.html)
+- Jul 21 - [Earth is spinning faster, leading timekeepers to consider an unprecedented move](https://www.yahoo.com/news/earth-spinning-faster-making-days-221434679.html)
+- Jul 21 - [Mountain lion attacks child on popular trail in Olympic National Park](https://www.yahoo.com/news/mountain-lion-attacks-child-popular-224739136.html)
+- Jul 21 - [Near-collision between B-52 and SkyWest jet was caught on camera](https://www.yahoo.com/news/near-collision-between-b-52-212056261.html)
 <!-- feed end -->
