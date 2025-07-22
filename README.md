@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Greek police arrest Moldovan tycoon Plahotniuc on Interpol notice](https://www.yahoo.com/news/greek-police-arrest-moldovan-tycoon-185110663.html)
-- Jul 22 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/jeff-daniels-issues-pointed-seven-174556073.html)
-- Jul 22 - [Californians turn on In-N-Out’s billionaire chief after she revealed plans to move company’s HQ out of state](https://www.yahoo.com/news/californians-turn-n-billionaire-chief-163101735.html)
-- Jul 22 - [Florida's attorney general targets a restaurant over an LGBTQ Pride event](https://www.yahoo.com/news/floridas-attorney-general-targets-restaurant-162607255.html)
-- Jul 22 - [Are These Stocks the Next FANG? Jim Cramer Thinks So](https://finance.yahoo.com/news/stocks-next-fang-jim-cramer-152619445.html)
+- Jul 22 - [Lawmakers vote to name Kennedy Center opera house after Melania Trump](https://www.yahoo.com/news/lawmakers-vote-name-kennedy-center-192628181.html)
+- Jul 22 - [In world first, CCTV captures supershear velocity earthquake](https://www.yahoo.com/news/world-first-cctv-captures-supershear-190420781.html)
+- Jul 22 - [Billionaire owner of the Los Angeles Times says he will take the newspaper public in the coming year](https://www.yahoo.com/news/billionaire-owner-los-angeles-times-183949290.html)
+- Jul 22 - [Imo’s Pizza’s St. Louis headquarters and production facility now for sale](https://www.yahoo.com/news/articles/imo-pizza-st-louis-headquarters-165525713.html)
+- Jul 22 - [Gen Z men with college degrees now have the same unemployment rate as non-grads—a sign that the higher education payoff is dead](https://www.yahoo.com/news/gen-z-men-college-degrees-163007757.html)
 <!-- feed end -->
