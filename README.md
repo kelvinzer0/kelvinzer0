@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [South Korea suspends drone chief accused of sending drones to North Korea illegally ahead of martial law](https://www.yahoo.com/news/south-korea-suspends-drone-chief-102813563.html)
-- Jul 22 - [In the Bronx, the nation’s poorest Congressional district, federal funding cuts create perfect storm](https://www.yahoo.com/news/bronx-nation-poorest-congressional-district-101336427.html)
-- Jul 22 - [FTSE 100 LIVE: London stocks tread water as UK borrowing jumps above £20bn](https://uk.finance.yahoo.com/news/ftse-100-live-london-stocks-uk-borrowing-074620543.html)
+- Jul 22 - [The Latest: Trump hosting Philippines leader to talk tariffs and China](https://www.yahoo.com/news/latest-trump-hosting-philippines-leader-123240414.html)
+- Jul 22 - [Explainer-Why China's neighbours are worried about its new mega-dam project](https://www.yahoo.com/news/explainer-why-chinas-neighbours-worried-100639444.html)
+- Jul 22 - [Mortgage and refinance interest rates today, July 22, 2025: Mortgage rates trend downward](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-july-22-2025-100007782.html)
+- Jul 22 - [Putin stalls. Trump changes his mind. Ukraine targets Moscow. Latest on the war.](https://www.yahoo.com/news/putin-stalls-trump-changes-mind-070131984.html)
 - Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
-- Jul 22 - [Olentangy coach resigns amid investigation into inappropriate text messages](https://www.yahoo.com/news/olentangy-coach-resigns-amid-investigation-031000796.html)
 <!-- feed end -->
