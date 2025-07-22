@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Why markets are tuning out new US–China trade headlines](https://finance.yahoo.com/video/why-markets-tuning-us-china-135644212.html)
+- Jul 22 - [Northland Lifts PT on Hut 8 Mining (HUT) to $26 From $20, Keeps an Overweight Rating](https://finance.yahoo.com/news/northland-lifts-pt-hut-8-151324083.html)
+- Jul 22 - [Karen Read grand juror to plead guilty to leaking details about federal investigation](https://www.yahoo.com/news/karen-read-grand-juror-plead-150344757.html)
+- Jul 22 - [Turkey says it will intervene against any attempt to divide Syria](https://www.yahoo.com/news/turkey-says-intervene-against-attempt-140939822.html)
+- Jul 22 - [As The Cookie Crumbles: Here's Why Fans Are Boycotting Crumbl Cookies](https://www.yahoo.com/news/cookie-crumbles-heres-why-fans-124500775.html)
 - Jul 22 - [NFL Star Odell Beckham Jr., Who Converted His Salary To Bitcoin In 2021, Says, 'Safe To Say We Still Our Happy With Our Decision'—Here's What It Is Worth Now](https://finance.yahoo.com/news/nfl-star-odell-beckham-jr-123107885.html)
-- Jul 22 - [Archaeologists Followed a 500-Year-Old Clue—and Found a Lost Town Hiding in Plain Sight](https://www.yahoo.com/news/archaeologists-followed-500-old-clue-120000331.html)
-- Jul 22 - [Alarming report warns that huge number of once-valuable homes may soon be 'worthless': 'State of crisis'](https://www.yahoo.com/news/alarming-report-warns-huge-number-103024186.html)
-- Jul 22 - [Homeowner stunned after receiving first 'surprise' electric bill since installing solar panels: 'Is this normal?'](https://shopping.yahoo.com/home-garden/home-improvement/articles/homeowner-stunned-receiving-first-surprise-103008455.html)
 <!-- feed end -->
