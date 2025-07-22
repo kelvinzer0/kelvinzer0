@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Lawmakers vote to name Kennedy Center opera house after Melania Trump](https://www.yahoo.com/news/lawmakers-vote-name-kennedy-center-192628181.html)
+- Jul 22 - [New Russian Drone Made Completely Of Chinese Components: Ukrainian Intelligence](https://www.yahoo.com/news/articles/russian-drone-made-completely-chinese-192238099.html)
 - Jul 22 - [In world first, CCTV captures supershear velocity earthquake](https://www.yahoo.com/news/world-first-cctv-captures-supershear-190420781.html)
-- Jul 22 - [Billionaire owner of the Los Angeles Times says he will take the newspaper public in the coming year](https://www.yahoo.com/news/billionaire-owner-los-angeles-times-183949290.html)
-- Jul 22 - [Imo’s Pizza’s St. Louis headquarters and production facility now for sale](https://www.yahoo.com/news/articles/imo-pizza-st-louis-headquarters-165525713.html)
-- Jul 22 - [Gen Z men with college degrees now have the same unemployment rate as non-grads—a sign that the higher education payoff is dead](https://www.yahoo.com/news/gen-z-men-college-degrees-163007757.html)
+- Jul 22 - [Why Rocket Lab (RKLB) Shares Are Trading Lower Today](https://finance.yahoo.com/news/why-rocket-lab-rklb-shares-180551483.html)
+- Jul 22 - [Trump Goes Full Fascist: ‘Whether It’s Right or Wrong, It’s Time to Go After People’](https://www.yahoo.com/news/articles/trump-goes-full-fascist-whether-170238715.html)
+- Jul 22 - [Are These Stocks the Next FANG? Jim Cramer Thinks So](https://finance.yahoo.com/news/stocks-next-fang-jim-cramer-152619445.html)
 <!-- feed end -->
