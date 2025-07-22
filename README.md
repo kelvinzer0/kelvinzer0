@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [New Russian Drone Made Completely Of Chinese Components: Ukrainian Intelligence](https://www.yahoo.com/news/articles/russian-drone-made-completely-chinese-192238099.html)
+- Jul 22 - [After failed traffic stop, Virginia trooper shoots at man who crashed, fled on foot and remains at large](https://www.yahoo.com/news/articles/failed-traffic-stop-virginia-trooper-212800098.html)
+- Jul 22 - [Judges oust Trump ally Alina Habba as New Jersey’s top prosecutor](https://www.yahoo.com/news/articles/judges-decline-keep-trump-ally-191022754.html)
 - Jul 22 - [In world first, CCTV captures supershear velocity earthquake](https://www.yahoo.com/news/world-first-cctv-captures-supershear-190420781.html)
-- Jul 22 - [Why Rocket Lab (RKLB) Shares Are Trading Lower Today](https://finance.yahoo.com/news/why-rocket-lab-rklb-shares-180551483.html)
-- Jul 22 - [Trump Goes Full Fascist: ‘Whether It’s Right or Wrong, It’s Time to Go After People’](https://www.yahoo.com/news/articles/trump-goes-full-fascist-whether-170238715.html)
-- Jul 22 - [Are These Stocks the Next FANG? Jim Cramer Thinks So](https://finance.yahoo.com/news/stocks-next-fang-jim-cramer-152619445.html)
+- Jul 22 - [AeroMéxico plane nearly lands on top of Delta Air Lines 737 taking off](https://www.yahoo.com/news/aerom-xico-plane-nearly-lands-184850442.html)
+- Jul 22 - [Billionaire owner of the Los Angeles Times says he will take the newspaper public in the coming year](https://www.yahoo.com/news/articles/billionaire-owner-los-angeles-times-183949290.html)
 <!-- feed end -->
