@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [800,000 Paddy Power and Betfair users warned of email scam threat](https://www.yahoo.com/news/paddy-power-betfair-leak-email-scam-164647039.html)
+- Jul 22 - [Six-month-old dies from bacterial meningitis after being rescued from mold-ridden condemned house](https://www.yahoo.com/news/six-month-old-dies-bacterial-164747804.html)
+- Jul 22 - [Trump Goes Full Fascist: ‘Whether It’s Right or Wrong, It’s Time to Go After People’](https://www.yahoo.com/news/trump-goes-full-fascist-whether-170238715.html)
+- Jul 22 - [Californians turn on In-N-Out’s billionaire chief after she revealed plans to move company’s HQ out of state](https://www.yahoo.com/news/californians-turn-n-billionaire-chief-163101735.html)
 - Jul 22 - [Republican Jim Jordan deposed in federal suit tied to sex abuse by late Ohio State team doctor](https://www.yahoo.com/news/republican-jim-jordan-deposed-federal-151951063.html)
-- Jul 22 - [Trump Team Crashes Out Over His Remark on Minimum Sexual “Age Limit”](https://www.yahoo.com/news/trump-team-crashes-over-remark-150845233.html)
-- Jul 22 - [Air traffic controllers didn't warn a B-52 bomber crew about a nearby airliner, the Air Force says](https://www.yahoo.com/news/air-traffic-controllers-didnt-warn-150723305.html)
-- Jul 22 - [Lansing sues to break up homelessness encampment near city park](https://www.yahoo.com/news/lansing-sues-break-homelessness-encampment-145327602.html)
+- Jul 22 - [Jerome Powell should resign, top economist Mohamed El-Erian says, citing a scandal Trump hasn’t even mentioned](https://finance.yahoo.com/news/jerome-powell-resign-top-economist-142803344.html)
 <!-- feed end -->
