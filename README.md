@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [More than 100 people object to yellow lines plan](https://www.yahoo.com/news/more-100-people-object-yellow-093228059.html)
-- Jul 22 - [WHO says Israeli forces attacked its Gaza facilities and detained staff](https://www.yahoo.com/news/says-israeli-forces-attacked-gaza-060025740.html)
-- Jul 22 - [3 Genius Quantum Computing Stocks to Buy Now](https://finance.yahoo.com/news/3-genius-quantum-computing-stocks-091500631.html)
-- Jul 22 - [McConnell, keep the federal government out of KY hemp. We will protect our kids. | Opinion](https://www.yahoo.com/news/mcconnell-keep-federal-government-ky-090322322.html)
+- Jul 22 - [South Korea suspends drone chief accused of sending drones to North Korea illegally ahead of martial law](https://www.yahoo.com/news/south-korea-suspends-drone-chief-102813563.html)
+- Jul 22 - [In the Bronx, the nation’s poorest Congressional district, federal funding cuts create perfect storm](https://www.yahoo.com/news/bronx-nation-poorest-congressional-district-101336427.html)
 - Jul 22 - [FTSE 100 LIVE: London stocks tread water as UK borrowing jumps above £20bn](https://uk.finance.yahoo.com/news/ftse-100-live-london-stocks-uk-borrowing-074620543.html)
+- Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
+- Jul 22 - [Olentangy coach resigns amid investigation into inappropriate text messages](https://www.yahoo.com/news/olentangy-coach-resigns-amid-investigation-031000796.html)
 <!-- feed end -->
