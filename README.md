@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [UN chief urges tech sector to power data centers with renewables](https://tech.yahoo.com/ai/articles/un-chief-urges-tech-sector-130354321.html)
-- Jul 22 - [Russian lawmakers pass a bill punishing online searches for information deemed to be 'extremist'](https://www.yahoo.com/news/russian-lawmakers-pass-bill-punishing-130340914.html)
-- Jul 22 - [Ibiza Rocks cancels all events after two British men die at resort in a fortnight](https://www.yahoo.com/news/ibiza-rocks-cancels-events-two-113018354.html)
+- Jul 22 - [Why markets are tuning out new US–China trade headlines](https://finance.yahoo.com/video/why-markets-tuning-us-china-135644212.html)
 - Jul 22 - [NFL Star Odell Beckham Jr., Who Converted His Salary To Bitcoin In 2021, Says, 'Safe To Say We Still Our Happy With Our Decision'—Here's What It Is Worth Now](https://finance.yahoo.com/news/nfl-star-odell-beckham-jr-123107885.html)
-- Jul 22 - [Husband who stabbed wife to death as she pushed their baby in pram jailed for 28 years](https://www.yahoo.com/news/husband-stabbed-wife-death-she-110838169.html)
+- Jul 22 - [Archaeologists Followed a 500-Year-Old Clue—and Found a Lost Town Hiding in Plain Sight](https://www.yahoo.com/news/archaeologists-followed-500-old-clue-120000331.html)
+- Jul 22 - [Alarming report warns that huge number of once-valuable homes may soon be 'worthless': 'State of crisis'](https://www.yahoo.com/news/alarming-report-warns-huge-number-103024186.html)
+- Jul 22 - [Homeowner stunned after receiving first 'surprise' electric bill since installing solar panels: 'Is this normal?'](https://shopping.yahoo.com/home-garden/home-improvement/articles/homeowner-stunned-receiving-first-surprise-103008455.html)
 <!-- feed end -->
