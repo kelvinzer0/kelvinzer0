@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Flash floods kill 3 tourists and leave 15 missing in northern Pakistan](https://www.yahoo.com/news/flash-floods-kill-3-tourists-065351807.html)
 - Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
-- Jul 22 - [Olentangy coach resigns amid investigation into inappropriate text messages](https://www.yahoo.com/news/olentangy-coach-resigns-amid-investigation-031000796.html)
 - Jul 22 - [RFK Jr.'s choice of attire while hiking in Arizona sparks online chatter](https://www.yahoo.com/news/rfk-jr-choice-attire-while-021443643.html)
 - Jul 22 - [Hundreds were reported missing after deadly Texas floods. Most of them were found safe](https://www.yahoo.com/news/hundreds-were-reported-missing-deadly-001721496.html)
+- Jul 21 - [Earth is spinning faster, leading timekeepers to consider an unprecedented move](https://www.yahoo.com/news/earth-spinning-faster-making-days-221434679.html)
+- Jul 21 - [Donald Trump Just Got A Brutal New Nickname Courtesy Of Jasmine Crockett, And The Internet Can't Stop Talking About It](https://www.yahoo.com/news/jasmine-crockett-insult-donald-trump-222508333.html)
 <!-- feed end -->
