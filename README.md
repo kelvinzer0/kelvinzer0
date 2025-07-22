@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [More than 100 people object to yellow lines plan](https://www.yahoo.com/news/more-100-people-object-yellow-093228059.html)
+- Jul 22 - [WHO says Israeli forces attacked its Gaza facilities and detained staff](https://www.yahoo.com/news/says-israeli-forces-attacked-gaza-060025740.html)
+- Jul 22 - [3 Genius Quantum Computing Stocks to Buy Now](https://finance.yahoo.com/news/3-genius-quantum-computing-stocks-091500631.html)
+- Jul 22 - [McConnell, keep the federal government out of KY hemp. We will protect our kids. | Opinion](https://www.yahoo.com/news/mcconnell-keep-federal-government-ky-090322322.html)
 - Jul 22 - [FTSE 100 LIVE: London stocks tread water as UK borrowing jumps above £20bn](https://uk.finance.yahoo.com/news/ftse-100-live-london-stocks-uk-borrowing-074620543.html)
-- Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
-- Jul 22 - [RFK Jr.'s choice of attire while hiking in Arizona sparks online chatter](https://www.yahoo.com/news/rfk-jr-choice-attire-while-021443643.html)
-- Jul 22 - [Malcolm-Jamal Warner's Drowning Accident Includes Second Victim in 'Critical Condition'](https://www.yahoo.com/entertainment/articles/malcolm-jamal-warners-drowning-accident-013806157.html)
-- Jul 22 - [Hundreds were reported missing after deadly Texas floods. Most of them were found safe](https://www.yahoo.com/news/hundreds-were-reported-missing-deadly-001721496.html)
 <!-- feed end -->
