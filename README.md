@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Flash floods kill 3 tourists and leave 15 missing in northern Pakistan](https://www.yahoo.com/news/flash-floods-kill-3-tourists-065351807.html)
 - Jul 22 - [San Francisco to ban homeless people from living in RVs with new parking limit](https://www.yahoo.com/news/san-francisco-ban-homeless-people-040452704.html)
-- Jul 22 - [San Diego standoff ends with woman’s arrest](https://www.yahoo.com/news/san-diego-standoff-ends-woman-010026562.html)
+- Jul 22 - [Olentangy coach resigns amid investigation into inappropriate text messages](https://www.yahoo.com/news/olentangy-coach-resigns-amid-investigation-031000796.html)
+- Jul 22 - [RFK Jr.'s choice of attire while hiking in Arizona sparks online chatter](https://www.yahoo.com/news/rfk-jr-choice-attire-while-021443643.html)
 - Jul 22 - [Hundreds were reported missing after deadly Texas floods. Most of them were found safe](https://www.yahoo.com/news/hundreds-were-reported-missing-deadly-001721496.html)
-- Jul 21 - [Tucker Carlson Spits Out 2-Word Response To Trump's Claim That He Called The President To Apologize](https://www.yahoo.com/news/tucker-carlson-spits-2-word-234610591.html)
-- Jul 21 - [Earth is spinning faster, leading timekeepers to consider an unprecedented move](https://www.yahoo.com/news/earth-spinning-faster-making-days-221434679.html)
 <!-- feed end -->
