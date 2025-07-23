@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Best cashback card deals of the week, 23 July](https://uk.finance.yahoo.com/news/cashback-credit-card-deals-060311247.html)
+- Jul 23 - [Taliban say efforts to release a British couple from Afghan prison not yet complete](https://www.yahoo.com/news/articles/taliban-efforts-release-british-couple-091536584.html)
 - Jul 23 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/articles/jeff-daniels-issues-pointed-seven-174556073.html)
+- Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
 - Jul 23 - [Exclusive: Newly discovered photos and video shed fresh light on Trump’s ties to Jeffrey Epstein](https://www.yahoo.com/news/articles/exclusive-newly-discovered-photos-video-224541669.html)
-- Jul 22 - [Woman warns others to stay vigilant in viral video following incident on Niagara Falls bike path](https://www.yahoo.com/news/articles/woman-warns-others-stay-vigilant-221813470.html)
-- Jul 22 - [NTSB: Heavy plane, drag from antlers contributed to crash that killed ex-Rep Mary Peltola's husband](https://www.yahoo.com/news/articles/ntsb-heavy-plane-drag-antlers-211723524.html)
+- Jul 22 - [GOP Senator, 73, Freezes During Fox Business Interview](https://www.yahoo.com/news/articles/gop-senator-73-freezes-during-230823414.html)
 <!-- feed end -->
