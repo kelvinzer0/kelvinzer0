@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Boater shares video in attempt to raise awareness of growing threat to oceans: 'Why are those not banned?'](https://www.yahoo.com/news/articles/boater-shares-video-attempt-raise-104509949.html)
-- Jul 23 - [Second tanker to skip fuel loading at sanctions-hit Nayara, sources say](https://finance.yahoo.com/news/second-tanker-skip-fuel-lifting-054705543.html)
-- Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
-- Jul 23 - [Chicago Homeowner Says Squatters Took Over His Property And Demanded $8,000 So He Moved in Too — 'I Knew They Were Not Going to Like That'](https://finance.yahoo.com/news/chicago-homeowner-says-squatters-took-000044282.html)
-- Jul 22 - [Boeing sends contract offer to union members](https://www.yahoo.com/news/articles/boeing-sends-contract-offer-union-225311877.html)
+- Jul 23 - [Iran says it warned US destroyer to move away from waters monitored by Tehran](https://www.yahoo.com/news/articles/iran-says-warned-us-destroyer-142357289.html)
+- Jul 23 - [Market Basket battle: Top executives to address firings at press conference](https://www.yahoo.com/news/articles/market-basket-top-executives-address-120249847.html)
+- Jul 23 - [Scientists in Barbados overturn hundreds of rocks to rediscover world's smallest-known snake](https://www.yahoo.com/news/articles/scientists-barbados-overturn-hundreds-rocks-140031165.html)
+- Jul 23 - [Fully Chinese-made drone found in Ukraine for first time](https://www.yahoo.com/news/articles/fully-chinese-made-drone-found-135425827.html)
+- Jul 23 - [Fact Check: Old pics of Trump with his daughter Ivanka have resurfaced. They're real](https://www.yahoo.com/news/articles/fact-check-old-pics-trump-130000551.html)
 <!-- feed end -->
