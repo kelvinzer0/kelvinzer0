@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Scientists stunned by 'remarkable' phenomenon found in trees threatened by deadly disease: 'Our new findings give us new hope'](https://www.yahoo.com/news/articles/scientists-stunned-remarkable-phenomenon-found-104534142.html)
 - Jul 23 - [Boater shares video in attempt to raise awareness of growing threat to oceans: 'Why are those not banned?'](https://www.yahoo.com/news/articles/boater-shares-video-attempt-raise-104509949.html)
-- Jul 23 - [Mortgage and refinance interest rates today, July 23, 2025: Home loan rates see slight shifts](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-july-23-2025-100044549.html)
 - Jul 23 - [Second tanker to skip fuel loading at sanctions-hit Nayara, sources say](https://finance.yahoo.com/news/second-tanker-skip-fuel-lifting-054705543.html)
 - Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
+- Jul 23 - [Chicago Homeowner Says Squatters Took Over His Property And Demanded $8,000 So He Moved in Too — 'I Knew They Were Not Going to Like That'](https://finance.yahoo.com/news/chicago-homeowner-says-squatters-took-000044282.html)
+- Jul 22 - [Boeing sends contract offer to union members](https://www.yahoo.com/news/articles/boeing-sends-contract-offer-union-225311877.html)
 <!-- feed end -->
