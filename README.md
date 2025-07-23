@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [Man shoots, kills uncle after argument, prosecutors say](https://www.yahoo.com/news/articles/man-shoots-kills-uncle-argument-195926910.html)
 - Jul 23 - [In-N-Out CEO Lynsi Snyder responds to backlash over California comments, move to Tennessee. 'We never forget our roots'](https://finance.yahoo.com/news/n-ceo-lynsi-snyder-responds-192059245.html)
-- Jul 23 - [Apple introduces AppleCare One subscription service to protect devices](https://tech.yahoo.com/phones/articles/apple-introduces-applecare-one-subscription-182952707.html)
 - Jul 23 - [Trump ally Lindell wins appeal in lawsuit over $5 million 2020 election contest](https://www.yahoo.com/news/articles/trump-ally-lindell-wins-appeal-180146855.html)
-- Jul 23 - [Scientists Found a Ghost Code Hidden in the Human Genome](https://www.yahoo.com/news/articles/scientists-found-ghost-code-hidden-180000913.html)
-- Jul 23 - [The US Army fired its new missile system that rattles China in a Western Pacific first. It found its target and sank it.](https://www.yahoo.com/news/articles/us-army-fired-missile-system-171511091.html)
+- Jul 23 - [Trump's 'Deal' With Japan Is Another Loser for Americans](https://finance.yahoo.com/news/trumps-deal-japan-another-loser-171501550.html)
+- Jul 23 - [Guess Who Was the Only President Less Popular Than Trump Right Now?](https://www.yahoo.com/news/articles/guess-only-president-less-popular-165331773.html)
 <!-- feed end -->
