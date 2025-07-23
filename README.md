@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Home Depot's Latest Product Recall Comes With A Fatal Warning](https://www.yahoo.com/lifestyle/articles/home-depots-latest-product-recall-102522409.html)
-- Jul 23 - [4 North Korean agents infiltrated Atlanta man’s business as remote workers, gaining his trust — then stole $1M](https://www.yahoo.com/news/articles/4-north-korean-agents-infiltrated-101500749.html)
-- Jul 23 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/articles/jeff-daniels-issues-pointed-seven-174556073.html)
-- Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
-- Jul 22 - [GOP Senator, 73, Freezes During Fox Business Interview](https://www.yahoo.com/news/articles/gop-senator-73-freezes-during-230823414.html)
+- Jul 23 - [Why ethereum is the 'largest beneficiary' of the GENIUS Act](https://finance.yahoo.com/video/why-ethereum-largest-beneficiary-genius-113037257.html)
+- Jul 23 - [Pensacola area restaurant inspections: One restaurant temporarily closed, four receive high violations](https://www.yahoo.com/news/articles/pensacola-area-restaurant-inspections-one-090425418.html)
+- Jul 23 - [Three men reported missing in the Mississippi River](https://www.yahoo.com/news/articles/three-men-reported-missing-mississippi-055234944.html)
+- Jul 23 - [Second tanker to skip fuel loading at sanctions-hit Nayara, sources say](https://finance.yahoo.com/news/second-tanker-skip-fuel-lifting-054705543.html)
+- Jul 23 - [Doctor who supplied Matthew Perry ketamine and called him a ‘moron’ is set to enter guilty plea](https://www.yahoo.com/news/articles/doctor-supplied-matthew-perry-ketamine-044628251.html)
 <!-- feed end -->
