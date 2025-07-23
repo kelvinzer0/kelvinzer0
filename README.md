@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [EU, China plan joint statement on climate change, sources say](https://www.yahoo.com/news/articles/eu-china-plan-joint-statement-185248483.html)
+- Jul 23 - [Trump ally Lindell wins appeal in lawsuit over $5 million 2020 election contest](https://www.yahoo.com/news/articles/trump-ally-lindell-wins-appeal-180146855.html)
 - Jul 23 - [West Point emails reveal how the prestigious military academy messed up Pete Hegseth's admissions status](https://www.yahoo.com/news/articles/west-point-emails-reveal-prestigious-171546855.html)
 - Jul 23 - [The US Army fired its new missile system that rattles China in a Western Pacific first. It found its target and sank it.](https://www.yahoo.com/news/articles/us-army-fired-missile-system-171511091.html)
-- Jul 23 - [Guess Who Was the Only President Less Popular Than Trump Right Now?](https://www.yahoo.com/news/articles/guess-only-president-less-popular-165331773.html)
-- Jul 23 - [Emmanuel and Brigitte Macron sue far-right podcaster Candace Owens over false claims French president’s wife is a man](https://www.yahoo.com/news/articles/emmanuel-brigitte-macron-sue-far-152826312.html)
-- Jul 23 - [White House issues intimidating statement about “The View” being 'pulled off the air' over 'irrelevant loser' Joy Behar (exclusive)](https://www.yahoo.com/entertainment/articles/white-house-issues-intimidating-statement-163412045.html)
+- Jul 23 - [Trump's 'Deal' With Japan Is Another Loser for Americans](https://finance.yahoo.com/news/trumps-deal-japan-another-loser-171501550.html)
 <!-- feed end -->
