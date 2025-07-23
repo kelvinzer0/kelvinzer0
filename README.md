@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Taliban say efforts to release a British couple from Afghan prison not yet complete](https://www.yahoo.com/news/articles/taliban-efforts-release-british-couple-091536584.html)
+- Jul 23 - [Iranian officials claim Israel behind series of mysterious fires, explosions](https://www.yahoo.com/news/articles/iranian-officials-claim-israel-behind-091835571.html)
 - Jul 23 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/articles/jeff-daniels-issues-pointed-seven-174556073.html)
+- Jul 23 - [Authorities release more information on fiery Poway crash that killed five](https://www.yahoo.com/news/articles/authorities-release-more-information-fiery-014820822.html)
 - Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
-- Jul 23 - [Exclusive: Newly discovered photos and video shed fresh light on Trump’s ties to Jeffrey Epstein](https://www.yahoo.com/news/articles/exclusive-newly-discovered-photos-video-224541669.html)
-- Jul 22 - [GOP Senator, 73, Freezes During Fox Business Interview](https://www.yahoo.com/news/articles/gop-senator-73-freezes-during-230823414.html)
+- Jul 22 - [Dozens of peacocks and peahens go missing from Northern California hotel](https://www.yahoo.com/news/articles/dozens-peacocks-peahens-missing-northern-230520802.html)
 <!-- feed end -->
