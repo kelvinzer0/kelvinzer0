@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 23 - [Asian Penny Stocks With Market Caps Under US$2B To Consider](https://finance.yahoo.com/news/asian-penny-stocks-market-caps-050504770.html)
 - Jul 23 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/articles/jeff-daniels-issues-pointed-seven-174556073.html)
-- Jul 23 - [Authorities release more information on fiery Poway crash that killed five](https://www.yahoo.com/news/articles/authorities-release-more-information-fiery-014820822.html)
+- Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
+- Jul 23 - [Exclusive: Newly discovered photos and video shed fresh light on Trump’s ties to Jeffrey Epstein](https://www.yahoo.com/news/articles/exclusive-newly-discovered-photos-video-224541669.html)
 - Jul 22 - [GOP Senator, 73, Freezes During Fox Business Interview](https://www.yahoo.com/news/articles/gop-senator-73-freezes-during-230823414.html)
-- Jul 22 - [Charges dropped against more than 120 defendants in Massachusetts because they can't get attorney](https://www.yahoo.com/news/articles/charges-dropped-against-more-120-215217858.html)
-- Jul 22 - [NTSB: Heavy plane, drag from antlers contributed to crash that killed ex-Rep Mary Peltola's husband](https://www.yahoo.com/news/articles/ntsb-heavy-plane-drag-antlers-211723524.html)
 <!-- feed end -->
