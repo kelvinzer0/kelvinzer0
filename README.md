@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 22 - [Exclusive: Newly discovered photos and video shed fresh light on Trump’s ties to Jeffrey Epstein](https://www.yahoo.com/news/articles/exclusive-newly-discovered-photos-video-224541669.html)
 - Jul 22 - [Charges dropped against more than 120 defendants in Massachusetts because they can't get attorney](https://www.yahoo.com/news/articles/charges-dropped-against-more-120-215217858.html)
-- Jul 22 - [The secret recordings that could blow open Trump’s true relationship with Epstein](https://www.yahoo.com/news/articles/secret-recordings-could-blow-open-202835829.html)
+- Jul 22 - [Largest Great White Shark on Record Swimming Off Popular Tourist Destination](https://www.yahoo.com/news/articles/largest-great-white-shark-record-211234751.html)
+- Jul 22 - [See it: Charred remains of historic Grand Canyon Lodge after wildfire rips through North Rim](https://www.yahoo.com/news/articles/see-charred-remains-historic-grand-200456060.html)
 - Jul 22 - [In world first, CCTV captures supershear velocity earthquake](https://www.yahoo.com/news/world-first-cctv-captures-supershear-190420781.html)
-- Jul 22 - [Hyundai Launches Bold IONIQ 9 Lease Offer for July](https://autos.yahoo.com/articles/hyundai-launches-bold-ioniq-9-180000444.html)
-- Jul 22 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/jeff-daniels-issues-pointed-seven-174556073.html)
 <!-- feed end -->
