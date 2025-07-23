@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [New Orleans fighting to save 'Trash King' who vanquished the French Quarter's foul stench](https://www.yahoo.com/news/videos/orleans-fighting-save-trash-king-204314500.html)
-- Jul 23 - [Dave Ramsey Says He Tips Well, But Draws The Line At The iPad Spin. He Calls It A Guilt Trip That's 'Nickel-And-Diming You To Death'](https://finance.yahoo.com/news/dave-ramsey-says-tips-well-203058730.html)
-- Jul 23 - [Supreme Court allows Trump to remove 3 Democrats on the Consumer Product Safety Commission](https://www.yahoo.com/news/articles/supreme-court-allows-trump-remove-202811783.html)
-- Jul 23 - [Trump Just Lost One of His Most Famous Followers: the QAnon Shaman](https://www.yahoo.com/news/articles/trump-just-lost-one-most-192027826.html)
-- Jul 23 - [Elon Musk's Tesla Reveals Jaw-Dropping Stat on Autopilot Technology](https://tech.yahoo.com/transportation/articles/elon-musks-tesla-reveals-jaw-190121642.html)
+- Jul 23 - [Israel Police question IDF officer, soldiers over suspected sabotage of drones](https://www.yahoo.com/news/articles/israel-police-idf-officer-soldiers-221414321.html)
+- Jul 23 - [CNN’s Kaitlan Collins Gets Into Heated Press Room Debate With Tulsi Gabbard: ‘The President Has Publicly Undermined Her’](https://www.yahoo.com/news/articles/cnn-kaitlan-collins-gets-heated-220925545.html)
+- Jul 23 - [HR Exec Who Was Seen Wrapped in CEO's Arms in Viral Coldplay Video Remains in Role as Company Moves Forward](https://www.yahoo.com/entertainment/articles/hr-exec-seen-wrapped-ceos-215615916.html)
+- Jul 23 - [Cardiologists Are Begging People To Stop Doing This One Thing ASAP To Help Prevent Blood Clots](https://www.yahoo.com/news/articles/cardiologists-begging-people-stop-doing-212500568.html)
+- Jul 23 - [Navy Top Enlisted Sailor Announces Early Retirement](https://www.yahoo.com/news/articles/navy-top-enlisted-sailor-announces-212433470.html)
 <!-- feed end -->
