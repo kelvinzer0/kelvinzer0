@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Man shoots, kills uncle after argument, prosecutors say](https://www.yahoo.com/news/articles/man-shoots-kills-uncle-argument-195926910.html)
-- Jul 23 - [In-N-Out CEO Lynsi Snyder responds to backlash over California comments, move to Tennessee. 'We never forget our roots'](https://finance.yahoo.com/news/n-ceo-lynsi-snyder-responds-192059245.html)
-- Jul 23 - [Trump ally Lindell wins appeal in lawsuit over $5 million 2020 election contest](https://www.yahoo.com/news/articles/trump-ally-lindell-wins-appeal-180146855.html)
-- Jul 23 - [Trump's 'Deal' With Japan Is Another Loser for Americans](https://finance.yahoo.com/news/trumps-deal-japan-another-loser-171501550.html)
-- Jul 23 - [Guess Who Was the Only President Less Popular Than Trump Right Now?](https://www.yahoo.com/news/articles/guess-only-president-less-popular-165331773.html)
+- Jul 23 - [New Orleans fighting to save 'Trash King' who vanquished the French Quarter's foul stench](https://www.yahoo.com/news/videos/orleans-fighting-save-trash-king-204314500.html)
+- Jul 23 - [Dave Ramsey Says He Tips Well, But Draws The Line At The iPad Spin. He Calls It A Guilt Trip That's 'Nickel-And-Diming You To Death'](https://finance.yahoo.com/news/dave-ramsey-says-tips-well-203058730.html)
+- Jul 23 - [Supreme Court allows Trump to remove 3 Democrats on the Consumer Product Safety Commission](https://www.yahoo.com/news/articles/supreme-court-allows-trump-remove-202811783.html)
+- Jul 23 - [Trump Just Lost One of His Most Famous Followers: the QAnon Shaman](https://www.yahoo.com/news/articles/trump-just-lost-one-most-192027826.html)
+- Jul 23 - [Elon Musk's Tesla Reveals Jaw-Dropping Stat on Autopilot Technology](https://tech.yahoo.com/transportation/articles/elon-musks-tesla-reveals-jaw-190121642.html)
 <!-- feed end -->
