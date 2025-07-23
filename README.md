@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Why ethereum is the 'largest beneficiary' of the GENIUS Act](https://finance.yahoo.com/video/why-ethereum-largest-beneficiary-genius-113037257.html)
-- Jul 23 - [Pensacola area restaurant inspections: One restaurant temporarily closed, four receive high violations](https://www.yahoo.com/news/articles/pensacola-area-restaurant-inspections-one-090425418.html)
-- Jul 23 - [Three men reported missing in the Mississippi River](https://www.yahoo.com/news/articles/three-men-reported-missing-mississippi-055234944.html)
+- Jul 23 - [Scientists stunned by 'remarkable' phenomenon found in trees threatened by deadly disease: 'Our new findings give us new hope'](https://www.yahoo.com/news/articles/scientists-stunned-remarkable-phenomenon-found-104534142.html)
+- Jul 23 - [Boater shares video in attempt to raise awareness of growing threat to oceans: 'Why are those not banned?'](https://www.yahoo.com/news/articles/boater-shares-video-attempt-raise-104509949.html)
+- Jul 23 - [Mortgage and refinance interest rates today, July 23, 2025: Home loan rates see slight shifts](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-july-23-2025-100044549.html)
 - Jul 23 - [Second tanker to skip fuel loading at sanctions-hit Nayara, sources say](https://finance.yahoo.com/news/second-tanker-skip-fuel-lifting-054705543.html)
-- Jul 23 - [Doctor who supplied Matthew Perry ketamine and called him a ‘moron’ is set to enter guilty plea](https://www.yahoo.com/news/articles/doctor-supplied-matthew-perry-ketamine-044628251.html)
+- Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
 <!-- feed end -->
