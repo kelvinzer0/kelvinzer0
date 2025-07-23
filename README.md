@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Asian Penny Stocks With Market Caps Under US$2B To Consider](https://finance.yahoo.com/news/asian-penny-stocks-market-caps-050504770.html)
+- Jul 23 - [Bermuda shorts, beachwear and a local ban divide Algerian town](https://www.yahoo.com/news/articles/bermuda-shorts-beachwear-local-ban-070158164.html)
 - Jul 23 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/articles/jeff-daniels-issues-pointed-seven-174556073.html)
 - Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
 - Jul 23 - [Exclusive: Newly discovered photos and video shed fresh light on Trump’s ties to Jeffrey Epstein](https://www.yahoo.com/news/articles/exclusive-newly-discovered-photos-video-224541669.html)
-- Jul 22 - [GOP Senator, 73, Freezes During Fox Business Interview](https://www.yahoo.com/news/articles/gop-senator-73-freezes-during-230823414.html)
+- Jul 22 - [Sen. John Kennedy of Louisiana had a frightening freeze-up on Tuesday afternoon.](https://www.yahoo.com/news/videos/louisiana-senator-john-kennedy-had-230823716.html)
 <!-- feed end -->
