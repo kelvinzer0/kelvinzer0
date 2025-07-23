@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Iran says it warned US destroyer to move away from waters monitored by Tehran](https://www.yahoo.com/news/articles/iran-says-warned-us-destroyer-142357289.html)
-- Jul 23 - [Market Basket battle: Top executives to address firings at press conference](https://www.yahoo.com/news/articles/market-basket-top-executives-address-120249847.html)
-- Jul 23 - [Scientists in Barbados overturn hundreds of rocks to rediscover world's smallest-known snake](https://www.yahoo.com/news/articles/scientists-barbados-overturn-hundreds-rocks-140031165.html)
-- Jul 23 - [Fully Chinese-made drone found in Ukraine for first time](https://www.yahoo.com/news/articles/fully-chinese-made-drone-found-135425827.html)
-- Jul 23 - [Fact Check: Old pics of Trump with his daughter Ivanka have resurfaced. They're real](https://www.yahoo.com/news/articles/fact-check-old-pics-trump-130000551.html)
+- Jul 23 - [Emmanuel and Brigitte Macron sue far-right podcaster Candace Owens over false claims French president’s wife is a man](https://www.yahoo.com/news/articles/emmanuel-brigitte-macron-sue-far-152826312.html)
+- Jul 23 - [A former security guard at the US Embassy in Norway is accused of spying for Russia and Iran](https://www.yahoo.com/news/articles/former-security-guard-us-embassy-160643600.html)
+- Jul 23 - [Hurricane Center says tropical system will drench Florida Panhandle. What to know](https://www.yahoo.com/news/articles/hurricane-center-says-tropical-system-154912964.html)
+- Jul 23 - [The White House Rose Garden Lawn Is Officially Gone: See the Latest Pics of Donald and Melania's Concrete Redesign](https://www.yahoo.com/news/articles/white-house-rose-garden-lawn-154908855.html)
+- Jul 23 - [Burkburnett man sent to prison for murder conviction](https://www.yahoo.com/news/articles/burkburnett-man-sent-prison-murder-153234536.html)
 <!-- feed end -->
