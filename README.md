@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 23 - [Iranian officials claim Israel behind series of mysterious fires, explosions](https://www.yahoo.com/news/articles/iranian-officials-claim-israel-behind-091835571.html)
+- Jul 23 - [Home Depot's Latest Product Recall Comes With A Fatal Warning](https://www.yahoo.com/lifestyle/articles/home-depots-latest-product-recall-102522409.html)
+- Jul 23 - [4 North Korean agents infiltrated Atlanta man’s business as remote workers, gaining his trust — then stole $1M](https://www.yahoo.com/news/articles/4-north-korean-agents-infiltrated-101500749.html)
 - Jul 23 - [Jeff Daniels issues pointed seven-word message for Trump voters](https://www.yahoo.com/news/articles/jeff-daniels-issues-pointed-seven-174556073.html)
-- Jul 23 - [Authorities release more information on fiery Poway crash that killed five](https://www.yahoo.com/news/articles/authorities-release-more-information-fiery-014820822.html)
 - Jul 23 - [Detroit Three automakers raise concerns about Japan trade deal](https://finance.yahoo.com/news/detroit-three-automakers-raise-concerns-013741104.html)
-- Jul 22 - [Dozens of peacocks and peahens go missing from Northern California hotel](https://www.yahoo.com/news/articles/dozens-peacocks-peahens-missing-northern-230520802.html)
+- Jul 22 - [GOP Senator, 73, Freezes During Fox Business Interview](https://www.yahoo.com/news/articles/gop-senator-73-freezes-during-230823414.html)
 <!-- feed end -->
