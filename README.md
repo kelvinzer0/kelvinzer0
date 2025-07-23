@@ -60,8 +60,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 23 - [Emmanuel and Brigitte Macron sue far-right podcaster Candace Owens over false claims French president’s wife is a man](https://www.yahoo.com/news/articles/emmanuel-brigitte-macron-sue-far-152826312.html)
-- Jul 23 - [A former security guard at the US Embassy in Norway is accused of spying for Russia and Iran](https://www.yahoo.com/news/articles/former-security-guard-us-embassy-160643600.html)
 - Jul 23 - [Hurricane Center says tropical system will drench Florida Panhandle. What to know](https://www.yahoo.com/news/articles/hurricane-center-says-tropical-system-154912964.html)
 - Jul 23 - [The White House Rose Garden Lawn Is Officially Gone: See the Latest Pics of Donald and Melania's Concrete Redesign](https://www.yahoo.com/news/articles/white-house-rose-garden-lawn-154908855.html)
-- Jul 23 - [Burkburnett man sent to prison for murder conviction](https://www.yahoo.com/news/articles/burkburnett-man-sent-prison-murder-153234536.html)
+- Jul 23 - [NASCAR will hold first street race on active military base at Naval Base Coronado in 2026](https://sports.yahoo.com/article/nascar-hold-first-street-race-150831360.html)
+- Jul 23 - [Satellite images show Russia building up its secret nuclear bases](https://www.yahoo.com/news/videos/satellite-images-show-russia-building-210159090.html)
 <!-- feed end -->
