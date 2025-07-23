@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 22 - [Exclusive: Newly discovered photos and video shed fresh light on Trump’s ties to Jeffrey Epstein](https://www.yahoo.com/news/articles/exclusive-newly-discovered-photos-video-224541669.html)
+- Jul 23 - [Exclusive: Newly discovered photos and video shed fresh light on Trump’s ties to Jeffrey Epstein](https://www.yahoo.com/news/articles/exclusive-newly-discovered-photos-video-224541669.html)
+- Jul 22 - [GOP Senator, 73, Freezes During Fox Business Interview](https://www.yahoo.com/news/articles/gop-senator-73-freezes-during-230823414.html)
+- Jul 22 - [Dozens of peacocks and peahens go missing from Northern California hotel](https://www.yahoo.com/news/articles/dozens-peacocks-peahens-missing-northern-230520802.html)
 - Jul 22 - [Charges dropped against more than 120 defendants in Massachusetts because they can't get attorney](https://www.yahoo.com/news/articles/charges-dropped-against-more-120-215217858.html)
-- Jul 22 - [Largest Great White Shark on Record Swimming Off Popular Tourist Destination](https://www.yahoo.com/news/articles/largest-great-white-shark-record-211234751.html)
-- Jul 22 - [See it: Charred remains of historic Grand Canyon Lodge after wildfire rips through North Rim](https://www.yahoo.com/news/articles/see-charred-remains-historic-grand-200456060.html)
-- Jul 22 - [In world first, CCTV captures supershear velocity earthquake](https://www.yahoo.com/news/world-first-cctv-captures-supershear-190420781.html)
+- Jul 22 - [Small jet headed to Wisconsin crashed in western Minnesota, killing one, reports say](https://www.yahoo.com/news/articles/small-jet-headed-wisconsin-crashed-202916736.html)
 <!-- feed end -->
