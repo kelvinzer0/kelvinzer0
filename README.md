@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Palestinians are ‘walking corpses’ says UN as Starmer calls starvation ‘unspeakable and indefensible’](https://www.yahoo.com/news/articles/starving-palestinians-trade-gold-flour-070503505.html)
+- Jul 24 - [Australia Offers Lifeline Visa To Island Facing Rising Seas](https://www.yahoo.com/news/videos/australia-offers-lifeline-visa-island-183010583.html)
+- Jul 24 - [Exclusive: Pam Bondi says she doesn’t want new jet after The Independent exposes FBI plan for new airplane to shuttle her around](https://www.yahoo.com/news/articles/exclusive-pam-bondi-says-she-182558594.html)
 - Jul 24 - [Walmart bets on AI 'super agents' to boost e-commerce growth](https://finance.yahoo.com/video/walmart-bets-ai-super-agents-174314596.html)
-- Jul 24 - [Bank of America (BAC) Announces US$40 Billion Buyback and Increases Dividend](https://finance.yahoo.com/news/bank-america-bac-announces-us-171534290.html)
-- Jul 24 - [Working longer won't save your retirement, expert warns](https://finance.yahoo.com/news/working-longer-wont-save-your-retirement-expert-warns-160048953.html)
-- Jul 24 - [Whites-only community plotting expansion to another state as its efforts to build a ‘white nation’ continue](https://www.yahoo.com/news/articles/whites-only-community-plotting-expansion-134640906.html)
+- Jul 24 - [White House lashes out at “South Park” over spoof of Donald Trump in bed seducing Satan: 'Desperate attempt'](https://www.yahoo.com/entertainment/articles/white-house-lashes-south-park-160631681.html)
+- Jul 24 - [Rapper GloRilla arrested after drugs found in her metro Atlanta home during burglary](https://www.yahoo.com/news/articles/rapper-glorilla-arrested-drugs-found-142521859.html)
 <!-- feed end -->
