@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Australia Offers Lifeline Visa To Island Facing Rising Seas](https://www.yahoo.com/news/videos/australia-offers-lifeline-visa-island-183010583.html)
-- Jul 24 - [Exclusive: Pam Bondi says she doesn’t want new jet after The Independent exposes FBI plan for new airplane to shuttle her around](https://www.yahoo.com/news/articles/exclusive-pam-bondi-says-she-182558594.html)
-- Jul 24 - [Walmart bets on AI 'super agents' to boost e-commerce growth](https://finance.yahoo.com/video/walmart-bets-ai-super-agents-174314596.html)
+- Jul 24 - [French President Macron says France will recognize Palestine as a state](https://www.yahoo.com/news/articles/french-president-macron-says-france-192602531.html)
+- Jul 24 - [A bull moose is blocking a New York mountain trail. Wildlife researchers don't know why](https://www.yahoo.com/news/articles/bull-moose-blocking-york-mountain-185818311.html)
 - Jul 24 - [White House lashes out at “South Park” over spoof of Donald Trump in bed seducing Satan: 'Desperate attempt'](https://www.yahoo.com/entertainment/articles/white-house-lashes-south-park-160631681.html)
-- Jul 24 - [Rapper GloRilla arrested after drugs found in her metro Atlanta home during burglary](https://www.yahoo.com/news/articles/rapper-glorilla-arrested-drugs-found-142521859.html)
+- Jul 24 - [Working longer won't save your retirement, expert warns](https://finance.yahoo.com/news/working-longer-wont-save-your-retirement-expert-warns-160048953.html)
+- Jul 24 - [Intel beats shareholder lawsuit over $32 billion stock plunge](https://finance.yahoo.com/news/intel-beats-shareholder-lawsuit-over-142503053.html)
 <!-- feed end -->
