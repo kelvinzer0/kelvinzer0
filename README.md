@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [A missing grad student is found dead in a river. Here's what we know.](https://www.yahoo.com/news/articles/missing-grad-student-found-dead-162502450.html)
-- Jul 24 - [White House lashes out at “South Park” over spoof of small-penis Donald Trump seducing Satan: 'Desperate attempt'](https://www.yahoo.com/entertainment/articles/white-house-lashes-south-park-160631681.html)
-- Jul 24 - [Intel beats shareholder lawsuit over $32 billion stock plunge](https://finance.yahoo.com/news/intel-beats-shareholder-lawsuit-over-142503053.html)
-- Jul 24 - [This ‘Strong Buy’ Stock Has Tripled in the Last Year](https://finance.yahoo.com/news/strong-buy-stock-tripled-last-141502224.html)
+- Jul 24 - [Palestinians are ‘walking corpses’ says UN as Starmer calls starvation ‘unspeakable and indefensible’](https://www.yahoo.com/news/articles/starving-palestinians-trade-gold-flour-070503505.html)
+- Jul 24 - [Walmart bets on AI 'super agents' to boost e-commerce growth](https://finance.yahoo.com/video/walmart-bets-ai-super-agents-174314596.html)
+- Jul 24 - [Bank of America (BAC) Announces US$40 Billion Buyback and Increases Dividend](https://finance.yahoo.com/news/bank-america-bac-announces-us-171534290.html)
+- Jul 24 - [Working longer won't save your retirement, expert warns](https://finance.yahoo.com/news/working-longer-wont-save-your-retirement-expert-warns-160048953.html)
 - Jul 24 - [Whites-only community plotting expansion to another state as its efforts to build a ‘white nation’ continue](https://www.yahoo.com/news/articles/whites-only-community-plotting-expansion-134640906.html)
 <!-- feed end -->
