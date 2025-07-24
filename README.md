@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Analysis-Medical groups and US states work to circumvent Kennedy's vaccine decisions](https://www.yahoo.com/news/articles/analysis-medical-groups-us-states-100350813.html)
+- Jul 24 - [Markets bet Beijing is getting serious about China's overcapacity](https://finance.yahoo.com/news/markets-bet-beijing-getting-serious-085241556.html)
 - Jul 24 - [Police documents released after Bryan Kohberger's sentencing detail strange happenings weeks before](https://www.yahoo.com/news/articles/police-documents-released-bryan-kohbergers-033912949.html)
-- Jul 24 - [Seattle Mariners fans fed up with megaphone preachers](https://www.yahoo.com/news/articles/seattle-mariners-fans-fed-megaphone-015943234.html)
 - Jul 24 - [Apple Is Going To Surprise Wall Street, Says Tom Lee, As iPhone Maker 'Could Be Quietly Ready To Pounce On AI'](https://finance.yahoo.com/news/apple-going-surprise-wall-street-003026452.html)
-- Jul 23 - [Tesla says it started building initial versions of an affordable car, posts a steep sales decline](https://finance.yahoo.com/news/tesla-says-started-building-initial-233627925.html)
-- Jul 23 - [HR Exec Who Was Seen Wrapped in CEO's Arms in Viral Coldplay Video Remains in Role as Company Moves Forward](https://www.yahoo.com/entertainment/articles/hr-exec-seen-wrapped-ceos-215615916.html)
+- Jul 23 - [Cardiologists Are Begging People To Stop Doing This One Thing ASAP To Help Prevent Blood Clots](https://www.yahoo.com/news/articles/cardiologists-begging-people-stop-doing-212500568.html)
 <!-- feed end -->
