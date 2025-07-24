@@ -59,7 +59,7 @@ https://kelvinzer0.github.io
 <!-- feed start -->
 - Jul 24 - ['Say It, Scott': CNN Panel Turns Testy After Scott Jennings Resorts To Name-Calling](https://www.yahoo.com/news/articles/scott-cnn-panel-turns-testy-211623571.html)
 - Jul 24 - [Intel Q2 beat: Company's turnaround still a 'longer-term story'](https://finance.yahoo.com/video/intel-q2-beat-companys-turnaround-211236407.html)
+- Jul 24 - [This is one of the worst political scandals of our era: Marc Thiessen](https://www.yahoo.com/news/videos/one-worst-political-scandals-era-204744688.html)
 - Jul 24 - [President Donald Trump issues executive order for college sports](https://sports.yahoo.com/college-football/breaking-news/article/president-donald-trump-issues-executive-order-for-college-sports-204418513.html)
-- Jul 24 - [Court rules MyPillow CEO Mike Lindell does not have to pay out $5 million over ‘Prove Mike Wrong’ stunt](https://www.yahoo.com/news/articles/court-rules-mypillow-ceo-mike-204312796.html)
 - Jul 24 - [Judge orders Wisconsin school shooter's father to stand trial on charges he allowed access to guns](https://www.yahoo.com/news/articles/judge-orders-wisconsin-school-shooters-204209958.html)
 <!-- feed end -->
