@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Police documents released after Bryan Kohberger's sentencing detail strange happenings weeks before](https://www.yahoo.com/news/articles/police-documents-released-bryan-kohbergers-033912949.html)
-- Jul 24 - [Disney mom faces child abuse charge after she allegedly grabbed a teen in a fight as crowd gathered to watch Magic Kingdom parade](https://www.yahoo.com/news/articles/disney-mom-faces-child-abuse-023026597.html)
-- Jul 23 - [Tesla says it started building initial versions of an affordable car, posts a steep sales decline](https://finance.yahoo.com/news/tesla-says-started-building-initial-233627925.html)
+- Jul 24 - [China plans network to sell surplus computing power in crackdown on data centre glut](https://tech.yahoo.com/computing/articles/china-plans-network-sell-surplus-061531463.html)
+- Jul 24 - [Uruguay confronts a powerful new threat to its palm trees: A tiny red bug](https://www.yahoo.com/news/articles/uruguay-confronts-powerful-threat-palm-052351783.html)
+- Jul 24 - [New Las Vegas-area grocery store location popular among Hispanics amid federal crackdowns](https://www.yahoo.com/news/articles/las-vegas-area-grocery-store-010313001.html)
 - Jul 23 - [HR Exec Who Was Seen Wrapped in CEO's Arms in Viral Coldplay Video Remains in Role as Company Moves Forward](https://www.yahoo.com/entertainment/articles/hr-exec-seen-wrapped-ceos-215615916.html)
 - Jul 23 - [Cardiologists Are Begging People To Stop Doing This One Thing ASAP To Help Prevent Blood Clots](https://www.yahoo.com/news/articles/cardiologists-begging-people-stop-doing-212500568.html)
 <!-- feed end -->
