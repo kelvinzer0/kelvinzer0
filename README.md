@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Working longer won't save your retirement, expert warns](https://finance.yahoo.com/news/working-longer-wont-save-your-retirement-expert-warns-160048953.html)
-- Jul 24 - [Dad guilty of murdering premature baby in hospital](https://www.yahoo.com/news/articles/dad-guilty-murdering-premature-baby-142705386.html)
-- Jul 24 - [EU-China ties at 'inflection point', von der Leyen says](https://www.yahoo.com/news/videos/eu-china-ties-inflection-point-151512350.html)
-- Jul 24 - [Turkey unveils domestically built hypersonic missile](https://www.yahoo.com/news/videos/turkey-unveils-domestically-built-hypersonic-150625055.html)
-- Jul 24 - [Closures, security checkpoints announced near JD Vance's home](https://www.yahoo.com/news/articles/closures-security-checkpoints-announced-near-144028422.html)
+- Jul 24 - [A missing grad student is found dead in a river. Here's what we know.](https://www.yahoo.com/news/articles/missing-grad-student-found-dead-162502450.html)
+- Jul 24 - [White House lashes out at “South Park” over spoof of small-penis Donald Trump seducing Satan: 'Desperate attempt'](https://www.yahoo.com/entertainment/articles/white-house-lashes-south-park-160631681.html)
+- Jul 24 - [Intel beats shareholder lawsuit over $32 billion stock plunge](https://finance.yahoo.com/news/intel-beats-shareholder-lawsuit-over-142503053.html)
+- Jul 24 - [This ‘Strong Buy’ Stock Has Tripled in the Last Year](https://finance.yahoo.com/news/strong-buy-stock-tripled-last-141502224.html)
+- Jul 24 - [Whites-only community plotting expansion to another state as its efforts to build a ‘white nation’ continue](https://www.yahoo.com/news/articles/whites-only-community-plotting-expansion-134640906.html)
 <!-- feed end -->
