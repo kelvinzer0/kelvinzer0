@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Video showing migrant worker moved by forklift prompts action from South Korea's president](https://www.yahoo.com/news/articles/video-showing-migrant-worker-moved-120123200.html)
-- Jul 24 - [The Smartest Cryptocurrency to Buy With $1,000 Right Now](https://finance.yahoo.com/news/smartest-cryptocurrency-buy-1-000-115300165.html)
-- Jul 24 - [Researchers discover surprising factor that can make cities healthier: 'Could reduce the number of annual premature deaths'](https://www.yahoo.com/news/articles/researchers-discover-surprising-factor-cities-111530492.html)
-- Jul 24 - [Minnesota homeowners say HOA forced expensive, unnecessary repairs on them — now they’re suing to get answers](https://www.yahoo.com/news/articles/minnesota-homeowners-hoa-forced-expensive-111500269.html)
-- Jul 24 - [Mortgage and refinance interest rates today, July 24, 2025: Rates continue their downward trend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-thursday-july-24-2025-100045240.html)
+- Jul 24 - [Philadelphia man took an offer from T-Mobile that seemed ‘too good to be true’ — and his next bill proved his gut right](https://www.yahoo.com/lifestyle/articles/philadelphia-man-took-offer-t-123000514.html)
+- Jul 24 - [Russia's Putin joins mourners to pay respects to ex-classmate and top judge](https://www.yahoo.com/news/articles/russias-putin-joins-mourners-pay-114644311.html)
+- Jul 24 - [Markets bet Beijing is getting serious about China's overcapacity](https://finance.yahoo.com/news/markets-bet-beijing-getting-serious-085241556.html)
+- Jul 24 - [United Airlines Changes Its Mind, Goes Back to Unpopular Policy](https://www.yahoo.com/news/articles/united-airlines-changes-mind-goes-084707704.html)
+- Jul 24 - [The silent collision between Ozempic and eating disorders](https://www.yahoo.com/news/articles/talk-dark-side-ozempic-boom-082402096.html)
 <!-- feed end -->
