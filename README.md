@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Analysis-Medical groups and US states work to circumvent Kennedy's vaccine decisions](https://www.yahoo.com/news/articles/analysis-medical-groups-us-states-100350813.html)
+- Jul 24 - [Stock-Split Watch: Is C3.ai Next?](https://finance.yahoo.com/news/stock-split-watch-c3-ai-103000346.html)
+- Jul 24 - [2 Stocks Down 81% and 88% to Buy Right Now and Hold for the Next Decade](https://finance.yahoo.com/news/2-stocks-down-81-88-103000571.html)
+- Jul 24 - [Candace Owens Responds to Macron Lawsuit](https://www.yahoo.com/news/articles/candace-owens-responds-macron-lawsuit-090548278.html)
 - Jul 24 - [Markets bet Beijing is getting serious about China's overcapacity](https://finance.yahoo.com/news/markets-bet-beijing-getting-serious-085241556.html)
-- Jul 24 - [Police documents released after Bryan Kohberger's sentencing detail strange happenings weeks before](https://www.yahoo.com/news/articles/police-documents-released-bryan-kohbergers-033912949.html)
-- Jul 24 - [Apple Is Going To Surprise Wall Street, Says Tom Lee, As iPhone Maker 'Could Be Quietly Ready To Pounce On AI'](https://finance.yahoo.com/news/apple-going-surprise-wall-street-003026452.html)
-- Jul 23 - [Cardiologists Are Begging People To Stop Doing This One Thing ASAP To Help Prevent Blood Clots](https://www.yahoo.com/news/articles/cardiologists-begging-people-stop-doing-212500568.html)
+- Jul 24 - [Warren Buffett Says His $31,500 House Brings Him More Joy Than 10 Mansions — And He'd Rather Eat A McDonald's Burger Than A $100 Meal](https://finance.yahoo.com/news/warren-buffett-says-31-500-080239397.html)
 <!-- feed end -->
