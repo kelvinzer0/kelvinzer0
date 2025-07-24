@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [Thai residents run for cover as Cambodia border erupts in gunfire](https://www.yahoo.com/news/videos/thai-residents-run-cover-cambodia-081700985.html)
+- Jul 24 - [China and America are now locked in a race for the next superweapon](https://www.yahoo.com/news/articles/china-america-now-locked-race-060000540.html)
+- Jul 24 - [Police documents released after Bryan Kohberger's sentencing detail strange happenings weeks before](https://www.yahoo.com/news/articles/police-documents-released-bryan-kohbergers-033912949.html)
 - Jul 24 - [Disney mom faces child abuse charge after she allegedly grabbed a teen in a fight as crowd gathered to watch Magic Kingdom parade](https://www.yahoo.com/news/articles/disney-mom-faces-child-abuse-023026597.html)
 - Jul 23 - [CNN’s Kaitlan Collins Gets Into Heated Press Room Debate With Tulsi Gabbard: ‘The President Has Publicly Undermined Her’](https://www.yahoo.com/news/articles/cnn-kaitlan-collins-gets-heated-220925545.html)
-- Jul 23 - [HR Exec Who Was Seen Wrapped in CEO's Arms in Viral Coldplay Video Remains in Role as Company Moves Forward](https://www.yahoo.com/entertainment/articles/hr-exec-seen-wrapped-ceos-215615916.html)
-- Jul 23 - [Cardiologists Are Begging People To Stop Doing This One Thing ASAP To Help Prevent Blood Clots](https://www.yahoo.com/news/articles/cardiologists-begging-people-stop-doing-212500568.html)
-- Jul 23 - [Flash Mob of Raiders Attempt to Rob Jewelry Store](https://www.yahoo.com/news/videos/flash-mob-raiders-attempt-rob-210716636.html)
 <!-- feed end -->
