@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Philadelphia man took an offer from T-Mobile that seemed ‘too good to be true’ — and his next bill proved his gut right](https://www.yahoo.com/lifestyle/articles/philadelphia-man-took-offer-t-123000514.html)
-- Jul 24 - [Russia's Putin joins mourners to pay respects to ex-classmate and top judge](https://www.yahoo.com/news/articles/russias-putin-joins-mourners-pay-114644311.html)
-- Jul 24 - [Markets bet Beijing is getting serious about China's overcapacity](https://finance.yahoo.com/news/markets-bet-beijing-getting-serious-085241556.html)
-- Jul 24 - [United Airlines Changes Its Mind, Goes Back to Unpopular Policy](https://www.yahoo.com/news/articles/united-airlines-changes-mind-goes-084707704.html)
-- Jul 24 - [The silent collision between Ozempic and eating disorders](https://www.yahoo.com/news/articles/talk-dark-side-ozempic-boom-082402096.html)
+- Jul 24 - [Iran says it's ready for nuclear talks with the US but only if Washington rebuilds trust](https://www.yahoo.com/news/articles/iran-says-ready-nuclear-talks-140417714.html)
+- Jul 24 - [Whites-only community plotting expansion to another state as its efforts to build a ‘white nation’ continue](https://www.yahoo.com/news/articles/whites-only-community-plotting-expansion-134640906.html)
+- Jul 24 - [Video showing migrant worker moved by forklift prompts action from South Korea's president](https://www.yahoo.com/news/articles/video-showing-migrant-worker-moved-120123200.html)
+- Jul 24 - [Archaeologists Opened a 2,600-Year-Old Tomb—and Found 4 People Who Time Forgot](https://www.yahoo.com/news/articles/archaeologists-opened-2-600-old-120000211.html)
+- Jul 24 - [Candace Owens Responds to Macron Lawsuit](https://www.yahoo.com/news/articles/candace-owens-responds-macron-lawsuit-090548278.html)
 <!-- feed end -->
