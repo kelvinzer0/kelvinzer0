@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [IBM Stock Slips on Slowing Software Sales Growth, But Analysts Stay Bullish](https://finance.yahoo.com/news/ibm-stock-slips-slowing-software-142551643.html)
-- Jul 24 - [Whites-only community plotting expansion to another state as its efforts to build a ‘white nation’ continue](https://www.yahoo.com/news/articles/whites-only-community-plotting-expansion-134640906.html)
-- Jul 24 - [Philadelphia man took an offer from T-Mobile that seemed ‘too good to be true’ — and his next bill proved his gut right](https://www.yahoo.com/lifestyle/articles/philadelphia-man-took-offer-t-123000514.html)
-- Jul 24 - [Archaeologists Opened a 2,600-Year-Old Tomb—and Found 4 People Who Time Forgot](https://www.yahoo.com/news/articles/archaeologists-opened-2-600-old-120000211.html)
-- Jul 24 - [Russia's Putin joins mourners to pay respects to ex-classmate and top judge](https://www.yahoo.com/news/articles/russias-putin-joins-mourners-pay-114644311.html)
+- Jul 24 - [Working longer won't save your retirement, expert warns](https://finance.yahoo.com/news/working-longer-wont-save-your-retirement-expert-warns-160048953.html)
+- Jul 24 - [Dad guilty of murdering premature baby in hospital](https://www.yahoo.com/news/articles/dad-guilty-murdering-premature-baby-142705386.html)
+- Jul 24 - [EU-China ties at 'inflection point', von der Leyen says](https://www.yahoo.com/news/videos/eu-china-ties-inflection-point-151512350.html)
+- Jul 24 - [Turkey unveils domestically built hypersonic missile](https://www.yahoo.com/news/videos/turkey-unveils-domestically-built-hypersonic-150625055.html)
+- Jul 24 - [Closures, security checkpoints announced near JD Vance's home](https://www.yahoo.com/news/articles/closures-security-checkpoints-announced-near-144028422.html)
 <!-- feed end -->
