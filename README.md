@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [‘You just added a third building’: Powell fact checks Trump’s Fed renovation as awkward hard-hat visit turns tense](https://www.yahoo.com/news/articles/just-added-third-building-powell-205114644.html)
+- Jul 24 - ['Say It, Scott': CNN Panel Turns Testy After Scott Jennings Resorts To Name-Calling](https://www.yahoo.com/news/articles/scott-cnn-panel-turns-testy-211623571.html)
 - Jul 24 - [Intel Q2 beat: Company's turnaround still a 'longer-term story'](https://finance.yahoo.com/video/intel-q2-beat-companys-turnaround-211236407.html)
-- Jul 24 - [Intel to slash workforce by year-end as it forecasts steeper losses than expected](https://tech.yahoo.com/business/articles/intel-slash-workforce-end-forecasts-200223944.html)
-- Jul 24 - [French President Macron says France will recognize Palestine as a state](https://www.yahoo.com/news/articles/french-president-macron-says-france-192602531.html)
-- Jul 24 - [Disproving alleged transcript of McConnell and Kevin McCarthy discussing 'bringing back slavery'](https://www.yahoo.com/news/articles/disproving-alleged-transcript-mcconnell-kevin-191000657.html)
+- Jul 24 - [President Donald Trump issues executive order for college sports](https://sports.yahoo.com/college-football/breaking-news/article/president-donald-trump-issues-executive-order-for-college-sports-204418513.html)
+- Jul 24 - [Court rules MyPillow CEO Mike Lindell does not have to pay out $5 million over ‘Prove Mike Wrong’ stunt](https://www.yahoo.com/news/articles/court-rules-mypillow-ceo-mike-204312796.html)
+- Jul 24 - [Judge orders Wisconsin school shooter's father to stand trial on charges he allowed access to guns](https://www.yahoo.com/news/articles/judge-orders-wisconsin-school-shooters-204209958.html)
 <!-- feed end -->
