@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 24 - [‘You just added a third building’: Powell fact checks Trump’s Fed renovation as awkward hard-hat visit turns tense](https://www.yahoo.com/news/articles/just-added-third-building-powell-205114644.html)
+- Jul 24 - [Intel Q2 beat: Company's turnaround still a 'longer-term story'](https://finance.yahoo.com/video/intel-q2-beat-companys-turnaround-211236407.html)
+- Jul 24 - [Intel to slash workforce by year-end as it forecasts steeper losses than expected](https://tech.yahoo.com/business/articles/intel-slash-workforce-end-forecasts-200223944.html)
 - Jul 24 - [French President Macron says France will recognize Palestine as a state](https://www.yahoo.com/news/articles/french-president-macron-says-france-192602531.html)
-- Jul 24 - [A bull moose is blocking a New York mountain trail. Wildlife researchers don't know why](https://www.yahoo.com/news/articles/bull-moose-blocking-york-mountain-185818311.html)
-- Jul 24 - [White House lashes out at “South Park” over spoof of Donald Trump in bed seducing Satan: 'Desperate attempt'](https://www.yahoo.com/entertainment/articles/white-house-lashes-south-park-160631681.html)
-- Jul 24 - [Working longer won't save your retirement, expert warns](https://finance.yahoo.com/news/working-longer-wont-save-your-retirement-expert-warns-160048953.html)
-- Jul 24 - [Intel beats shareholder lawsuit over $32 billion stock plunge](https://finance.yahoo.com/news/intel-beats-shareholder-lawsuit-over-142503053.html)
+- Jul 24 - [Disproving alleged transcript of McConnell and Kevin McCarthy discussing 'bringing back slavery'](https://www.yahoo.com/news/articles/disproving-alleged-transcript-mcconnell-kevin-191000657.html)
 <!-- feed end -->
