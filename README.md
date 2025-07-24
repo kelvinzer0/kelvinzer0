@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Thai residents run for cover as Cambodia border erupts in gunfire](https://www.yahoo.com/news/videos/thai-residents-run-cover-cambodia-081700985.html)
-- Jul 24 - [China and America are now locked in a race for the next superweapon](https://www.yahoo.com/news/articles/china-america-now-locked-race-060000540.html)
 - Jul 24 - [Police documents released after Bryan Kohberger's sentencing detail strange happenings weeks before](https://www.yahoo.com/news/articles/police-documents-released-bryan-kohbergers-033912949.html)
-- Jul 24 - [Disney mom faces child abuse charge after she allegedly grabbed a teen in a fight as crowd gathered to watch Magic Kingdom parade](https://www.yahoo.com/news/articles/disney-mom-faces-child-abuse-023026597.html)
-- Jul 23 - [CNN’s Kaitlan Collins Gets Into Heated Press Room Debate With Tulsi Gabbard: ‘The President Has Publicly Undermined Her’](https://www.yahoo.com/news/articles/cnn-kaitlan-collins-gets-heated-220925545.html)
+- Jul 24 - [Seattle Mariners fans fed up with megaphone preachers](https://www.yahoo.com/news/articles/seattle-mariners-fans-fed-megaphone-015943234.html)
+- Jul 24 - [Apple Is Going To Surprise Wall Street, Says Tom Lee, As iPhone Maker 'Could Be Quietly Ready To Pounce On AI'](https://finance.yahoo.com/news/apple-going-surprise-wall-street-003026452.html)
+- Jul 23 - [Tesla says it started building initial versions of an affordable car, posts a steep sales decline](https://finance.yahoo.com/news/tesla-says-started-building-initial-233627925.html)
+- Jul 23 - [HR Exec Who Was Seen Wrapped in CEO's Arms in Viral Coldplay Video Remains in Role as Company Moves Forward](https://www.yahoo.com/entertainment/articles/hr-exec-seen-wrapped-ceos-215615916.html)
 <!-- feed end -->
