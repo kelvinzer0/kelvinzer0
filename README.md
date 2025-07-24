@@ -59,9 +59,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - [Stock-Split Watch: Is C3.ai Next?](https://finance.yahoo.com/news/stock-split-watch-c3-ai-103000346.html)
-- Jul 24 - [2 Stocks Down 81% and 88% to Buy Right Now and Hold for the Next Decade](https://finance.yahoo.com/news/2-stocks-down-81-88-103000571.html)
-- Jul 24 - [Candace Owens Responds to Macron Lawsuit](https://www.yahoo.com/news/articles/candace-owens-responds-macron-lawsuit-090548278.html)
-- Jul 24 - [Markets bet Beijing is getting serious about China's overcapacity](https://finance.yahoo.com/news/markets-bet-beijing-getting-serious-085241556.html)
-- Jul 24 - [Warren Buffett Says His $31,500 House Brings Him More Joy Than 10 Mansions — And He'd Rather Eat A McDonald's Burger Than A $100 Meal](https://finance.yahoo.com/news/warren-buffett-says-31-500-080239397.html)
+- Jul 24 - [Video showing migrant worker moved by forklift prompts action from South Korea's president](https://www.yahoo.com/news/articles/video-showing-migrant-worker-moved-120123200.html)
+- Jul 24 - [The Smartest Cryptocurrency to Buy With $1,000 Right Now](https://finance.yahoo.com/news/smartest-cryptocurrency-buy-1-000-115300165.html)
+- Jul 24 - [Researchers discover surprising factor that can make cities healthier: 'Could reduce the number of annual premature deaths'](https://www.yahoo.com/news/articles/researchers-discover-surprising-factor-cities-111530492.html)
+- Jul 24 - [Minnesota homeowners say HOA forced expensive, unnecessary repairs on them — now they’re suing to get answers](https://www.yahoo.com/news/articles/minnesota-homeowners-hoa-forced-expensive-111500269.html)
+- Jul 24 - [Mortgage and refinance interest rates today, July 24, 2025: Rates continue their downward trend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-thursday-july-24-2025-100045240.html)
 <!-- feed end -->
