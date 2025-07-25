@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Israel says hundreds of truckloads of aid are waiting to enter Gaza. Why can't the UN bring them in?](https://www.yahoo.com/news/articles/israel-says-hundreds-truckloads-aid-184020085.html)
-- Jul 25 - [Ukraine anti-corruption chief says his agency faces 'dirty information campaign'](https://www.yahoo.com/news/articles/ukraine-anti-corruption-chief-says-183918558.html)
-- Jul 25 - [Fed's Next Move: BlackRock's Rogal, Wolfe Research's Roth](https://finance.yahoo.com/video/feds-next-move-blackrocks-rogal-182302948.html)
+- Jul 25 - [House ethics panel tells Rep. Alexandria Ocasio-Cortez to pay more for Met Gala attendance](https://www.yahoo.com/news/articles/house-ethics-panel-tells-rep-200903106.html)
+- Jul 25 - [Fed will stay course despite 'unusual' Trump-Powell meeting](https://finance.yahoo.com/video/fed-stay-course-despite-unusual-194228479.html)
+- Jul 25 - [Donald Trump Is Going To Scotland, And This Brutal Scottish Newspaper Cover "Welcoming" Him Is Going Viral](https://www.yahoo.com/news/articles/scottish-newspaper-cover-welcoming-donald-184538131.html)
+- Jul 25 - [Woman who lives on cruise ship reveals top ‘gross’ habit she sees from guests](https://www.yahoo.com/lifestyle/articles/woman-lives-cruise-ship-reveals-183807424.html)
 - Jul 25 - [A science journal pulled a controversial study about a bizarre life form against the authors' wishes](https://www.yahoo.com/news/articles/science-journal-pulled-controversial-study-180526603.html)
-- Jul 25 - [US, China confront each other on Ukraine at United Nations](https://www.yahoo.com/news/articles/us-china-confront-other-ukraine-180056236.html)
 <!-- feed end -->
