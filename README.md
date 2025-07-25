@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Aidoc Raises $150m to Continue Innovating Medical Diagnostics](https://finance.yahoo.com/video/aidoc-raises-150m-continue-innovating-114014364.html)
-- Jul 25 - [Driver goes 130mph across I-90 floating bridge, crashes into barrier](https://www.yahoo.com/news/articles/driver-goes-130mph-across-90-113524040.html)
-- Jul 25 - [The Democrat told Jesse Watters that the “world is talking about Epstein” whereas Fox was still dragging the Bidens.](https://www.yahoo.com/news/videos/democrat-told-jesse-watters-world-104739863.html)
-- Jul 25 - [Man sparks outrage with disturbing video of crisis unfolding in US waterway: 'Is anyone ever going to be held accountable?'](https://www.yahoo.com/news/articles/man-sparks-outrage-disturbing-video-103018066.html)
+- Jul 25 - [As INEOS looks to grow in the US, it must deal with Trump's tariffs and the 'Chicken Tax' on trucks](https://finance.yahoo.com/news/as-ineos-looks-to-grow-in-the-us-it-must-deal-with-trumps-tariffs-and-the-chicken-tax-on-trucks-131729992.html)
+- Jul 25 - [13 "Bad" Everyday Habits That Are Seriously Harming Your Health, Straight From Medical Professionals](https://health.yahoo.com/wellness/articles/13-bad-everyday-habits-seriously-123102996.html)
+- Jul 25 - [Experts issue warning after making horrifying discovery in cows' digestive systems: 'The situation is extremely dangerous'](https://www.yahoo.com/news/articles/experts-issue-warning-making-horrifying-111542206.html)
+- Jul 25 - [Men face steep penalties after being caught on camera committing upsetting act at popular beach — here's what happened](https://www.yahoo.com/news/articles/men-face-steep-penalties-being-104544095.html)
 - Jul 25 - [Debt-plagued Maldives to host Modi, continuing to rebuild ties with lender](https://www.yahoo.com/news/articles/debt-plagued-maldives-host-modi-080029435.html)
 <!-- feed end -->
