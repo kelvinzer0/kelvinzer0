@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Shipping industry's tariff-fueled decline won't be 'short-lived'](https://finance.yahoo.com/video/shipping-industrys-tariff-fueled-decline-213000372.html)
-- Jul 25 - [Palm Coast council sends letter asking DeSantis to suspend or remove Mayor Norris](https://www.yahoo.com/news/articles/palm-coast-council-sends-letter-210758762.html)
-- Jul 25 - [Joe Rogan Slams Kash Patel Over Epstein Files: ‘Everyone Knows It Doesn’t Make Any Sense’ | Video](https://www.yahoo.com/news/articles/joe-rogan-slams-kash-patel-210422458.html)
+- Jul 25 - [Greek port workers jailed pending trial on drug smuggling charges](https://www.yahoo.com/news/articles/greek-port-workers-jailed-pending-223536280.html)
+- Jul 25 - [IRC Sounds Alarm Over Crisis in Gaza](https://finance.yahoo.com/video/irc-sounds-alarm-over-crisis-221810993.html)
+- Jul 25 - [Failure to act on 999 call by authorities led to death of malnourished teenager and unwell mother](https://www.yahoo.com/news/articles/failure-act-999-call-authorities-174409009.html)
+- Jul 25 - [Guess Which Texas Republican Was Just Accused of Paying for Abortions?](https://www.yahoo.com/news/articles/guess-texas-republican-just-accused-212313047.html)
 - Jul 25 - [House ethics panel tells Rep. Alexandria Ocasio-Cortez to pay more for Met Gala attendance](https://www.yahoo.com/news/articles/house-ethics-panel-tells-rep-200903106.html)
-- Jul 25 - [Donald Trump Is Going To Scotland, And This Brutal Scottish Newspaper Cover "Welcoming" Him Is Going Viral](https://www.yahoo.com/news/articles/scottish-newspaper-cover-welcoming-donald-184538131.html)
 <!-- feed end -->
