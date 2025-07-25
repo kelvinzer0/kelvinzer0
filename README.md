@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Markets Becoming a Bit Immune to Trade, Ten Cap Says](https://finance.yahoo.com/video/markets-becoming-bit-immune-trade-033254386.html)
+- Jul 25 - [Tropical storm adds to Philippines' weather toll with 25 dead and 278,000 evacuated this week](https://www.yahoo.com/news/articles/tropical-storm-adds-philippines-weather-030528539.html)
 - Jul 24 - [Wrongfully imprisoned Maryland man who spent 32 years behind bars sues former authorities](https://www.yahoo.com/news/articles/wrongfully-imprisoned-maryland-man-spent-225035500.html)
 - Jul 24 - [Fact Check: Another old photo of Trump and daughter Ivanka makes the rounds again](https://www.yahoo.com/news/articles/fact-check-another-old-photo-220600126.html)
-- Jul 24 - [Appeals court says California law requiring background checks for ammunition is unconstitutional](https://www.yahoo.com/news/articles/appeals-court-says-california-law-210248922.html)
 - Jul 24 - [This is one of the worst political scandals of our era: Marc Thiessen](https://www.yahoo.com/news/videos/one-worst-political-scandals-era-204744688.html)
-- Jul 24 - [President Donald Trump issues executive order for college sports](https://sports.yahoo.com/college-football/breaking-news/article/president-donald-trump-issues-executive-order-for-college-sports-204418513.html)
 <!-- feed end -->
