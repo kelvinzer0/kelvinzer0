@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Anger at travellers taking over seaside town for fortnight - dumping nappies in sea](https://www.yahoo.com/news/videos/anger-travellers-taking-over-seaside-141556867.html)
-- Jul 25 - [NASA Is Watching a Huge Anomaly Growing in Earth's Magnetic Field](https://www.yahoo.com/news/articles/nasa-watching-huge-anomaly-growing-130010405.html)
+- Jul 25 - [I'm Completely Terrified That The Entire World Is Getting Dumber And Dumber And These 50 Incredibly Dumb Posts Are All The Proof I Need](https://www.yahoo.com/entertainment/articles/im-completely-terrified-entire-world-133228209.html)
 - Jul 25 - [13 "Bad" Everyday Habits That Are Seriously Harming Your Health, Straight From Medical Professionals](https://health.yahoo.com/wellness/articles/13-bad-everyday-habits-seriously-123102996.html)
-- Jul 25 - [Suze Orman Urges You To Cut This Expense That ‘Happens Over and Over Again’](https://finance.yahoo.com/news/suze-orman-cut-expense-happens-170032466.html)
 - Jul 25 - [Experts issue warning after making horrifying discovery in cows' digestive systems: 'The situation is extremely dangerous'](https://www.yahoo.com/news/articles/experts-issue-warning-making-horrifying-111542206.html)
+- Jul 25 - [NASA unveils incredibly precise new satellite tool that anyone can use: 'You can zoom in to your country, your state, your city block'](https://www.yahoo.com/news/articles/nasa-unveils-incredibly-precise-satellite-111513246.html)
+- Jul 25 - [Researchers make disturbing discovery after examining human reproductive fluid: 'This is not an isolated finding'](https://www.yahoo.com/news/articles/researchers-disturbing-discovery-examining-human-110020414.html)
 <!-- feed end -->
