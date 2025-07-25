@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Apple's Lack Of Clear AI Strategy A Warning Flag, Analyst Says](https://www.investors.com/news/technology/apple-stock-iphone-maker-needs-clear-ai-strategy/?src=A00220&yptr=yahoo)
 - Jul 25 - [House ethics panel tells Rep. Alexandria Ocasio-Cortez to pay more for Met Gala attendance](https://www.yahoo.com/news/articles/house-ethics-panel-tells-rep-200903106.html)
-- Jul 25 - [Fed will stay course despite 'unusual' Trump-Powell meeting](https://finance.yahoo.com/video/fed-stay-course-despite-unusual-194228479.html)
 - Jul 25 - [Donald Trump Is Going To Scotland, And This Brutal Scottish Newspaper Cover "Welcoming" Him Is Going Viral](https://www.yahoo.com/news/articles/scottish-newspaper-cover-welcoming-donald-184538131.html)
-- Jul 25 - [Woman who lives on cruise ship reveals top ‘gross’ habit she sees from guests](https://www.yahoo.com/lifestyle/articles/woman-lives-cruise-ship-reveals-183807424.html)
 - Jul 25 - [A science journal pulled a controversial study about a bizarre life form against the authors' wishes](https://www.yahoo.com/news/articles/science-journal-pulled-controversial-study-180526603.html)
+- Jul 25 - [US, China confront each other on Ukraine at United Nations](https://www.yahoo.com/news/articles/us-china-confront-other-ukraine-180056236.html)
 <!-- feed end -->
