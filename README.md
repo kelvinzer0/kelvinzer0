@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Crypto on Wall Street: How eth 'unlocks' crypto narrative](https://finance.yahoo.com/video/crypto-wall-street-eth-unlocks-170000897.html)
+- Jul 25 - [After accusing Obama of treason, Trump now says the former president 'owes me big'](https://www.yahoo.com/news/articles/accusing-obama-treason-trump-now-161322033.html)
+- Jul 25 - [Kaylee Goncalves Left ‘Disfigured’ by Bryan Kohberger After She ‘Ruined His Plans,’ Ex FBI Agent Suggests](https://www.yahoo.com/news/articles/kaylee-goncalves-left-disfigured-bryan-153928910.html)
 - Jul 25 - [How Rich Are You? This Is The Net Worth It Takes To Join The Top 2% Of Households](https://finance.yahoo.com/news/rich-net-worth-takes-join-144605754.html)
-- Jul 25 - [PepsiCo to shut manufacturing operations at US drinks plant](https://finance.yahoo.com/news/pepsico-shut-manufacturing-operations-us-134857816.html)
-- Jul 25 - [Israel gives tour of UN aid left ‘rotting’ in Gaza](https://www.yahoo.com/news/articles/israel-gives-tour-un-aid-132038036.html)
 - Jul 25 - [13 "Bad" Everyday Habits That Are Seriously Harming Your Health, Straight From Medical Professionals](https://health.yahoo.com/wellness/articles/13-bad-everyday-habits-seriously-123102996.html)
-- Jul 25 - [Experts issue warning after making horrifying discovery in cows' digestive systems: 'The situation is extremely dangerous'](https://www.yahoo.com/news/articles/experts-issue-warning-making-horrifying-111542206.html)
 <!-- feed end -->
