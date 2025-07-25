@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Palestinians are ‘walking corpses’ says UN, as Starmer calls starvation ‘unspeakable and indefensible’](https://www.yahoo.com/news/articles/starving-palestinians-trade-gold-flour-070503505.html)
+- Jul 25 - [Father of girl ‘assaulted’ by migrant ‘backs anti-hotel protests’](https://www.yahoo.com/news/articles/father-girl-assaulted-migrant-backs-062717746.html)
+- Jul 25 - [New species of ancient shark discovered at Mammoth Cave National Park](https://www.yahoo.com/news/articles/species-ancient-shark-discovered-mammoth-062351006.html)
 - Jul 25 - [A man is halted climbing the US-Mexico border wall. Under new Trump rules, US troops sound the alarm](https://www.yahoo.com/news/articles/man-halted-climbing-us-mexico-041159916.html)
-- Jul 24 - [Wrongfully imprisoned Maryland man who spent 32 years behind bars sues former authorities](https://www.yahoo.com/news/articles/wrongfully-imprisoned-maryland-man-spent-225035500.html)
-- Jul 24 - [Fact Check: Another old photo of Trump and daughter Ivanka makes the rounds again](https://www.yahoo.com/news/articles/fact-check-another-old-photo-220600126.html)
-- Jul 24 - [Red Lobster’s new CEO brought seafood chain back from brink of bankruptcy. He did it by reading customers’ comments](https://finance.yahoo.com/news/red-lobster-ceo-brought-seafood-212747196.html)
-- Jul 24 - [Thomas, Alito and Gorsuch dissent from Supreme Court voting rights order](https://www.yahoo.com/news/articles/thomas-alito-gorsuch-dissent-supreme-211853748.html)
+- Jul 25 - [Bitcoin, Ethereum, XRP, Dogecoin Turn Green As Trader Warns That 'Decision Time Is Near'](https://finance.yahoo.com/news/bitcoin-ethereum-xrp-dogecoin-turn-013109045.html)
 <!-- feed end -->
