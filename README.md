@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 25 - [Israel says hundreds of truckloads of aid are waiting to enter Gaza. Why can't the UN bring them in?](https://www.yahoo.com/news/articles/israel-says-hundreds-truckloads-aid-184020085.html)
+- Jul 25 - [Ukraine anti-corruption chief says his agency faces 'dirty information campaign'](https://www.yahoo.com/news/articles/ukraine-anti-corruption-chief-says-183918558.html)
+- Jul 25 - [Fed's Next Move: BlackRock's Rogal, Wolfe Research's Roth](https://finance.yahoo.com/video/feds-next-move-blackrocks-rogal-182302948.html)
 - Jul 25 - [A science journal pulled a controversial study about a bizarre life form against the authors' wishes](https://www.yahoo.com/news/articles/science-journal-pulled-controversial-study-180526603.html)
-- Jul 25 - [Carolinas ranked among highest in STD rates, report finds](https://www.yahoo.com/news/articles/carolinas-ranked-among-highest-std-172851327.html)
-- Jul 25 - [U.S. and Israel pull out of cease-fire talks as Gaza humanitarian crisis worsens](https://www.yahoo.com/news/videos/u-israel-pull-cease-fire-172157032.html)
-- Jul 25 - [After accusing Obama of treason, Trump now says the former president 'owes me big'](https://www.yahoo.com/news/articles/accusing-obama-treason-trump-now-161322033.html)
-- Jul 25 - [Kaylee Goncalves Left ‘Disfigured’ by Bryan Kohberger After She ‘Ruined His Plans,’ Ex FBI Agent Suggests](https://www.yahoo.com/news/articles/kaylee-goncalves-left-disfigured-bryan-153928910.html)
+- Jul 25 - [US, China confront each other on Ukraine at United Nations](https://www.yahoo.com/news/articles/us-china-confront-other-ukraine-180056236.html)
 <!-- feed end -->
