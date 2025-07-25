@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 24 - ['Say It, Scott': CNN Panel Turns Testy After Scott Jennings Resorts To Name-Calling](https://www.yahoo.com/news/articles/scott-cnn-panel-turns-testy-211623571.html)
-- Jul 24 - [Intel Q2 beat: Company's turnaround still a 'longer-term story'](https://finance.yahoo.com/video/intel-q2-beat-companys-turnaround-211236407.html)
+- Jul 24 - [Wrongfully imprisoned Maryland man who spent 32 years behind bars sues former authorities](https://www.yahoo.com/news/articles/wrongfully-imprisoned-maryland-man-spent-225035500.html)
+- Jul 24 - [Fact Check: Another old photo of Trump and daughter Ivanka makes the rounds again](https://www.yahoo.com/news/articles/fact-check-another-old-photo-220600126.html)
+- Jul 24 - [Appeals court says California law requiring background checks for ammunition is unconstitutional](https://www.yahoo.com/news/articles/appeals-court-says-california-law-210248922.html)
 - Jul 24 - [This is one of the worst political scandals of our era: Marc Thiessen](https://www.yahoo.com/news/videos/one-worst-political-scandals-era-204744688.html)
 - Jul 24 - [President Donald Trump issues executive order for college sports](https://sports.yahoo.com/college-football/breaking-news/article/president-donald-trump-issues-executive-order-for-college-sports-204418513.html)
-- Jul 24 - [Judge orders Wisconsin school shooter's father to stand trial on charges he allowed access to guns](https://www.yahoo.com/news/articles/judge-orders-wisconsin-school-shooters-204209958.html)
 <!-- feed end -->
