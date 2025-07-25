@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Apple's Lack Of Clear AI Strategy A Warning Flag, Analyst Says](https://www.investors.com/news/technology/apple-stock-iphone-maker-needs-clear-ai-strategy/?src=A00220&yptr=yahoo)
+- Jul 25 - [Shipping industry's tariff-fueled decline won't be 'short-lived'](https://finance.yahoo.com/video/shipping-industrys-tariff-fueled-decline-213000372.html)
+- Jul 25 - [Palm Coast council sends letter asking DeSantis to suspend or remove Mayor Norris](https://www.yahoo.com/news/articles/palm-coast-council-sends-letter-210758762.html)
+- Jul 25 - [Joe Rogan Slams Kash Patel Over Epstein Files: ‘Everyone Knows It Doesn’t Make Any Sense’ | Video](https://www.yahoo.com/news/articles/joe-rogan-slams-kash-patel-210422458.html)
 - Jul 25 - [House ethics panel tells Rep. Alexandria Ocasio-Cortez to pay more for Met Gala attendance](https://www.yahoo.com/news/articles/house-ethics-panel-tells-rep-200903106.html)
 - Jul 25 - [Donald Trump Is Going To Scotland, And This Brutal Scottish Newspaper Cover "Welcoming" Him Is Going Viral](https://www.yahoo.com/news/articles/scottish-newspaper-cover-welcoming-donald-184538131.html)
-- Jul 25 - [A science journal pulled a controversial study about a bizarre life form against the authors' wishes](https://www.yahoo.com/news/articles/science-journal-pulled-controversial-study-180526603.html)
-- Jul 25 - [US, China confront each other on Ukraine at United Nations](https://www.yahoo.com/news/articles/us-china-confront-other-ukraine-180056236.html)
 <!-- feed end -->
