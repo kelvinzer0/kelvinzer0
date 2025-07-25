@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [South Park’s savage takedown shows Trump has picked a fight he can’t win](https://www.yahoo.com/news/articles/south-park-savage-takedown-shows-081806776.html)
-- Jul 25 - [A man is halted climbing the US-Mexico border wall. Under new Trump rules, US troops sound the alarm](https://www.yahoo.com/news/articles/man-halted-climbing-us-mexico-041159916.html)
-- Jul 25 - [Bitcoin, Ethereum, XRP, Dogecoin Turn Green As Trader Warns That 'Decision Time Is Near'](https://finance.yahoo.com/news/bitcoin-ethereum-xrp-dogecoin-turn-013109045.html)
-- Jul 24 - [Fact Check: Another old photo of Trump and daughter Ivanka makes the rounds again](https://www.yahoo.com/news/articles/fact-check-another-old-photo-220600126.html)
-- Jul 24 - [Red Lobster’s new CEO brought seafood chain back from brink of bankruptcy. He did it by reading customers’ comments](https://finance.yahoo.com/news/red-lobster-ceo-brought-seafood-212747196.html)
+- Jul 25 - [Aidoc Raises $150m to Continue Innovating Medical Diagnostics](https://finance.yahoo.com/video/aidoc-raises-150m-continue-innovating-114014364.html)
+- Jul 25 - [Driver goes 130mph across I-90 floating bridge, crashes into barrier](https://www.yahoo.com/news/articles/driver-goes-130mph-across-90-113524040.html)
+- Jul 25 - [The Democrat told Jesse Watters that the “world is talking about Epstein” whereas Fox was still dragging the Bidens.](https://www.yahoo.com/news/videos/democrat-told-jesse-watters-world-104739863.html)
+- Jul 25 - [Man sparks outrage with disturbing video of crisis unfolding in US waterway: 'Is anyone ever going to be held accountable?'](https://www.yahoo.com/news/articles/man-sparks-outrage-disturbing-video-103018066.html)
+- Jul 25 - [Debt-plagued Maldives to host Modi, continuing to rebuild ties with lender](https://www.yahoo.com/news/articles/debt-plagued-maldives-host-modi-080029435.html)
 <!-- feed end -->
