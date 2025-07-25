@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [As INEOS looks to grow in the US, it must deal with Trump's tariffs and the 'Chicken Tax' on trucks](https://finance.yahoo.com/news/as-ineos-looks-to-grow-in-the-us-it-must-deal-with-trumps-tariffs-and-the-chicken-tax-on-trucks-131729992.html)
+- Jul 25 - [Anger at travellers taking over seaside town for fortnight - dumping nappies in sea](https://www.yahoo.com/news/videos/anger-travellers-taking-over-seaside-141556867.html)
+- Jul 25 - [NASA Is Watching a Huge Anomaly Growing in Earth's Magnetic Field](https://www.yahoo.com/news/articles/nasa-watching-huge-anomaly-growing-130010405.html)
 - Jul 25 - [13 "Bad" Everyday Habits That Are Seriously Harming Your Health, Straight From Medical Professionals](https://health.yahoo.com/wellness/articles/13-bad-everyday-habits-seriously-123102996.html)
+- Jul 25 - [Suze Orman Urges You To Cut This Expense That ‘Happens Over and Over Again’](https://finance.yahoo.com/news/suze-orman-cut-expense-happens-170032466.html)
 - Jul 25 - [Experts issue warning after making horrifying discovery in cows' digestive systems: 'The situation is extremely dangerous'](https://www.yahoo.com/news/articles/experts-issue-warning-making-horrifying-111542206.html)
-- Jul 25 - [Men face steep penalties after being caught on camera committing upsetting act at popular beach — here's what happened](https://www.yahoo.com/news/articles/men-face-steep-penalties-being-104544095.html)
-- Jul 25 - [Debt-plagued Maldives to host Modi, continuing to rebuild ties with lender](https://www.yahoo.com/news/articles/debt-plagued-maldives-host-modi-080029435.html)
 <!-- feed end -->
