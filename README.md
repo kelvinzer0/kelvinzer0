@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Crypto on Wall Street: How eth 'unlocks' crypto narrative](https://finance.yahoo.com/video/crypto-wall-street-eth-unlocks-170000897.html)
+- Jul 25 - [A science journal pulled a controversial study about a bizarre life form against the authors' wishes](https://www.yahoo.com/news/articles/science-journal-pulled-controversial-study-180526603.html)
+- Jul 25 - [Carolinas ranked among highest in STD rates, report finds](https://www.yahoo.com/news/articles/carolinas-ranked-among-highest-std-172851327.html)
+- Jul 25 - [U.S. and Israel pull out of cease-fire talks as Gaza humanitarian crisis worsens](https://www.yahoo.com/news/videos/u-israel-pull-cease-fire-172157032.html)
 - Jul 25 - [After accusing Obama of treason, Trump now says the former president 'owes me big'](https://www.yahoo.com/news/articles/accusing-obama-treason-trump-now-161322033.html)
 - Jul 25 - [Kaylee Goncalves Left ‘Disfigured’ by Bryan Kohberger After She ‘Ruined His Plans,’ Ex FBI Agent Suggests](https://www.yahoo.com/news/articles/kaylee-goncalves-left-disfigured-bryan-153928910.html)
-- Jul 25 - [How Rich Are You? This Is The Net Worth It Takes To Join The Top 2% Of Households](https://finance.yahoo.com/news/rich-net-worth-takes-join-144605754.html)
-- Jul 25 - [13 "Bad" Everyday Habits That Are Seriously Harming Your Health, Straight From Medical Professionals](https://health.yahoo.com/wellness/articles/13-bad-everyday-habits-seriously-123102996.html)
 <!-- feed end -->
