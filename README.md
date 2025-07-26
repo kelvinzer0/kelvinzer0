@@ -58,8 +58,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 26 - [Thai-Cambodian conflict pits a well-equipped US ally against a weaker adversary with strong China links](https://www.yahoo.com/news/articles/thai-cambodian-conflict-pits-well-092053984.html)
-- Jul 26 - [‘He felt something crawl on him:’ Simple spider bite leaves teen with failing kidneys and unable to speak](https://www.yahoo.com/news/articles/felt-something-crawl-him-simple-203846427.html)
-- Jul 25 - [The asteroid that will spare Earth might hit the moon instead. What happens if it does?](https://www.yahoo.com/news/articles/happens-asteroid-hits-moon-astronomers-133209287.html)
+- Jul 26 - [JD Vance Slams Microsoft For Firing Americans, Relying on H-1B Workers: Satya Nadella Says Layoffs Are 'Weighing Heavily' On Him](https://finance.yahoo.com/news/jd-vance-slams-microsoft-firing-023105284.html)
 - Jul 25 - [A 59-Year-Old Career Nurse Feels 'Defeated And Cooked' After Learning Her Coworker Has Saved Nearly $500,000 More For Retirement](https://finance.yahoo.com/news/59-old-career-nurse-feels-223155613.html)
 - Jul 25 - [Prominent Lawyer Among 2 Dead After Small Plane Crashes and Bursts into Fireball on Busy Highway](https://www.yahoo.com/entertainment/videos/prominent-lawyer-among-2-dead-204602928.html)
+- Jul 25 - [A pregnant surrogate for a defunct California company doesn't know what will happen to the baby she's carrying](https://www.yahoo.com/news/articles/pregnant-surrogate-defunct-california-company-193744479.html)
 <!-- feed end -->
