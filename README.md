@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 26 - [Prediction: President Trump Wants to Fast-Track U.S. Drone Production, but Kratos and AeroVironment Stocks Are the Wrong Way to Play This New Defense Policy](https://finance.yahoo.com/news/prediction-president-trump-wants-fast-110700049.html)
 - Jul 26 - [This family self-deported to Mexico, and lost everything](https://www.yahoo.com/news/articles/family-self-deported-mexico-lost-100153216.html)
-- Jul 26 - [A Once-in-a-Lifetime Opportunity: This Quantum Computing Stock Looks Set To Skyrocket](https://finance.yahoo.com/news/once-lifetime-opportunity-quantum-computing-091500724.html)
-- Jul 25 - [Trump's Body Language During Awkward Exchange With Jerome Powell Spoke Volumes, Experts Say](https://www.yahoo.com/news/articles/trumps-body-language-during-awkward-231428531.html)
-- Jul 25 - [Four Mass. beaches, one Maine beach rank among the safest in the country, study finds](https://www.yahoo.com/news/articles/four-mass-beaches-one-maine-230413826.html)
-- Jul 25 - [A 59-Year-Old Career Nurse Feels 'Defeated And Cooked' After Learning Her Coworker Has Saved Nearly $500,000 More For Retirement](https://finance.yahoo.com/news/59-old-career-nurse-feels-223155613.html)
+- Jul 26 - [Judge issues temporary injunction against Trump administration cancellation of humanities grants](https://www.yahoo.com/news/articles/judge-issues-temporary-injunction-against-035310745.html)
+- Jul 25 - [The asteroid that will spare Earth might hit the moon instead. What happens if it does?](https://www.yahoo.com/news/articles/happens-asteroid-hits-moon-astronomers-133209287.html)
+- Jul 25 - [Meta names ChatGPT co-creator as chief scientist of Superintelligence Lab](https://tech.yahoo.com/ai/articles/meta-names-chatgpt-co-creator-213628277.html)
 <!-- feed end -->
