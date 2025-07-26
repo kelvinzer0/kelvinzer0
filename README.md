@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Meet the refusers: The Israeli teenagers risking jail, friendships and family to refuse conscription to the IDF](https://www.yahoo.com/news/articles/meet-refusers-israeli-teenagers-risking-074042029.html)
-- Jul 26 - [Stop Sticks Lead To Fatal Crash During Police Chase](https://autos.yahoo.com/articles/stop-sticks-lead-fatal-crash-160000928.html)
-- Jul 26 - [The former NBC host blasted the former president’s son for a series of media appearances in which he blasted Joe Biden’s critics.](https://www.yahoo.com/news/videos/former-nbc-host-blasted-former-155809369.html)
+- Jul 26 - [Man suffers spinal injuries after jumping off boat near North Shore beach](https://www.yahoo.com/news/articles/man-suffers-spinal-injuries-jumping-170939560.html)
 - Jul 26 - [Mossad in Farsi says Khamenei spends 'half the day sleeping, the other half high'](https://www.yahoo.com/news/articles/mossad-farsi-says-khamenei-spends-125657029.html)
-- Jul 26 - [I Asked ChatGPT How Much the Average Middle-Class Retiree Spends Monthly at Age 75: Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-average-middle-110126299.html)
+- Jul 26 - [Trump plays golf in Scotland while protesters take to the streets and decry his visit](https://www.yahoo.com/news/articles/trump-plays-golfs-scotland-while-123926511.html)
+- Jul 26 - [5 Luxury SUVs That Will Have Massive Price Drops Before 2025 Ends](https://autos.yahoo.com/articles/5-luxury-suvs-massive-price-110115114.html)
+- Jul 26 - [Scientists make surprising discovery after attempting to remove dangerous fish from lake: 'It took us 25 years to prove why'](https://www.yahoo.com/news/articles/scientists-surprising-discovery-attempting-remove-104512821.html)
 <!-- feed end -->
