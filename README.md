@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Sentence for man who disrupted finish of Tour de France 17th stage](https://sports.yahoo.com/article/sentence-man-disrupted-finish-tour-124720851.html)
-- Jul 26 - [Meet the refusers: The Israeli teenagers risking jail, friendships and family to refuse conscription to the IDF](https://www.yahoo.com/news/articles/meet-refusers-israeli-teenagers-risking-074042029.html)
+- Jul 26 - [Modi joins Maldives independence day celebrations, signals easing tensions amid China rivalry](https://www.yahoo.com/news/articles/modi-joins-maldives-independence-day-150720656.html)
+- Jul 26 - [Canceled home sales surge as fed-up buyers and sellers walk away](https://finance.yahoo.com/news/canceled-home-sales-surge-as-fed-up-buyers-and-sellers-walk-away-120010066.html)
+- Jul 26 - [I Asked ChatGPT How Much the Average Middle-Class Retiree Spends Monthly at Age 75: Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-average-middle-110126299.html)
+- Jul 26 - [Scientists discover worrisome threat lurking beneath Hawaii's iconic Waikiki Beach: 'Could fail sooner than we anticipated'](https://www.yahoo.com/news/articles/scientists-discover-worrisome-threat-lurking-110024647.html)
 - Jul 26 - [My fiance’s rich parents want me to quit work when we marry, but lost it when I asked for a trust in case we divorce](https://finance.yahoo.com/news/fiance-rich-parents-want-quit-110000642.html)
-- Jul 26 - [Experts issue urgent warning as island chain is on brink of disappearing: 'It's just a question of time'](https://www.yahoo.com/news/articles/experts-issue-urgent-warning-island-103057597.html)
-- Jul 26 - [Huawei shows off AI computing system to rival Nvidia's top product](https://finance.yahoo.com/news/huawei-shows-off-ai-computing-101116334.html)
 <!-- feed end -->
