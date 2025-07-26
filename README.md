@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Prediction: President Trump Wants to Fast-Track U.S. Drone Production, but Kratos and AeroVironment Stocks Are the Wrong Way to Play This New Defense Policy](https://finance.yahoo.com/news/prediction-president-trump-wants-fast-110700049.html)
-- Jul 26 - [This family self-deported to Mexico, and lost everything](https://www.yahoo.com/news/articles/family-self-deported-mexico-lost-100153216.html)
-- Jul 26 - [Judge issues temporary injunction against Trump administration cancellation of humanities grants](https://www.yahoo.com/news/articles/judge-issues-temporary-injunction-against-035310745.html)
-- Jul 25 - [The asteroid that will spare Earth might hit the moon instead. What happens if it does?](https://www.yahoo.com/news/articles/happens-asteroid-hits-moon-astronomers-133209287.html)
-- Jul 25 - [Meta names ChatGPT co-creator as chief scientist of Superintelligence Lab](https://tech.yahoo.com/ai/articles/meta-names-chatgpt-co-creator-213628277.html)
+- Jul 26 - [Meet the refusers: The Israeli teenagers risking jail, friendships and family to refuse conscription to the IDF](https://www.yahoo.com/news/articles/meet-refusers-israeli-teenagers-risking-074042029.html)
+- Jul 26 - [‘Polite’ teen camper joined search for slain paddleboarder. Now police say he’s the killer](https://www.yahoo.com/news/articles/polite-teen-camper-joined-search-121741670.html)
+- Jul 26 - [Experts issue urgent warning as island chain is on brink of disappearing: 'It's just a question of time'](https://www.yahoo.com/news/articles/experts-issue-urgent-warning-island-103057597.html)
+- Jul 26 - [Scientists stunned by 'lethal' discovery made while studying popular swamp: 'We wonder what else is being affected'](https://www.yahoo.com/news/articles/scientists-stunned-lethal-discovery-made-103034406.html)
+- Jul 26 - [Huawei shows off AI computing system to rival Nvidia's top product](https://finance.yahoo.com/news/huawei-shows-off-ai-computing-101116334.html)
 <!-- feed end -->
