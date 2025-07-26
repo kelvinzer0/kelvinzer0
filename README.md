@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 25 - [Greek port workers jailed pending trial on drug smuggling charges](https://www.yahoo.com/news/articles/greek-port-workers-jailed-pending-223536280.html)
-- Jul 25 - [IRC Sounds Alarm Over Crisis in Gaza](https://finance.yahoo.com/video/irc-sounds-alarm-over-crisis-221810993.html)
-- Jul 25 - [Failure to act on 999 call by authorities led to death of malnourished teenager and unwell mother](https://www.yahoo.com/news/articles/failure-act-999-call-authorities-174409009.html)
-- Jul 25 - [Guess Which Texas Republican Was Just Accused of Paying for Abortions?](https://www.yahoo.com/news/articles/guess-texas-republican-just-accused-212313047.html)
-- Jul 25 - [House ethics panel tells Rep. Alexandria Ocasio-Cortez to pay more for Met Gala attendance](https://www.yahoo.com/news/articles/house-ethics-panel-tells-rep-200903106.html)
+- Jul 26 - [One of the grenades recovered ahead of blast that killed 3 L.A. deputies is missing, authorities say](https://www.yahoo.com/news/articles/one-grenades-recovered-ahead-blast-010905574.html)
+- Jul 25 - [The asteroid that will spare Earth might hit the moon instead. What happens if it does?](https://www.yahoo.com/news/articles/happens-asteroid-hits-moon-astronomers-133209287.html)
+- Jul 25 - [Four Mass. beaches, one Maine beach rank among the safest in the country, study finds](https://www.yahoo.com/news/articles/four-mass-beaches-one-maine-230413826.html)
+- Jul 25 - [A 59-Year-Old Career Nurse Feels 'Defeated And Cooked' After Learning Her Coworker Has Saved Nearly $500,000 More For Retirement](https://finance.yahoo.com/news/59-old-career-nurse-feels-223155613.html)
+- Jul 25 - [South Carolina dance teacher arrested after questionable routine uncovers serious allegations](https://www.yahoo.com/news/articles/south-carolina-dance-teacher-arrested-222704584.html)
 <!-- feed end -->
