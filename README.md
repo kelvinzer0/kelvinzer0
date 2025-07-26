@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [One of the grenades recovered ahead of blast that killed 3 L.A. deputies is missing, authorities say](https://www.yahoo.com/news/articles/one-grenades-recovered-ahead-blast-010905574.html)
-- Jul 25 - [The asteroid that will spare Earth might hit the moon instead. What happens if it does?](https://www.yahoo.com/news/articles/happens-asteroid-hits-moon-astronomers-133209287.html)
-- Jul 25 - [Four Mass. beaches, one Maine beach rank among the safest in the country, study finds](https://www.yahoo.com/news/articles/four-mass-beaches-one-maine-230413826.html)
+- Jul 26 - [Sharknado? The next generation of hurricane forecasters could be sharks](https://www.yahoo.com/news/articles/sharknado-next-generation-hurricane-forecasters-211810007.html)
+- Jul 26 - [Death toll rises in Thai-Cambodian clashes despite ceasefire call](https://www.yahoo.com/news/articles/death-toll-rises-thai-cambodian-024637089.html)
+- Jul 25 - [Examining reports Texas man who moved family to Russia died in Ukraine war](https://www.yahoo.com/news/articles/examining-reports-texas-man-moved-231800583.html)
 - Jul 25 - [A 59-Year-Old Career Nurse Feels 'Defeated And Cooked' After Learning Her Coworker Has Saved Nearly $500,000 More For Retirement](https://finance.yahoo.com/news/59-old-career-nurse-feels-223155613.html)
-- Jul 25 - [South Carolina dance teacher arrested after questionable routine uncovers serious allegations](https://www.yahoo.com/news/articles/south-carolina-dance-teacher-arrested-222704584.html)
+- Jul 25 - [Surveillance video captures brutal road rage stabbing in New Jersey](https://www.yahoo.com/news/articles/surveillance-video-captures-brutal-road-221056184.html)
 <!-- feed end -->
