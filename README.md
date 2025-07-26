@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Sharknado? The next generation of hurricane forecasters could be sharks](https://www.yahoo.com/news/articles/sharknado-next-generation-hurricane-forecasters-211810007.html)
-- Jul 26 - [Death toll rises in Thai-Cambodian clashes despite ceasefire call](https://www.yahoo.com/news/articles/death-toll-rises-thai-cambodian-024637089.html)
+- Jul 26 - [‘He felt something crawl on him:’ Simple spider bite leaves teen with failing kidneys and unable to speak](https://www.yahoo.com/news/articles/felt-something-crawl-him-simple-203846427.html)
+- Jul 26 - [Machete-wielding youths who smiled as they fatally stabbed schoolboy jailed for life](https://www.yahoo.com/news/articles/machete-wielding-youths-smiled-fatally-155551018.html)
 - Jul 25 - [Examining reports Texas man who moved family to Russia died in Ukraine war](https://www.yahoo.com/news/articles/examining-reports-texas-man-moved-231800583.html)
 - Jul 25 - [A 59-Year-Old Career Nurse Feels 'Defeated And Cooked' After Learning Her Coworker Has Saved Nearly $500,000 More For Retirement](https://finance.yahoo.com/news/59-old-career-nurse-feels-223155613.html)
-- Jul 25 - [Surveillance video captures brutal road rage stabbing in New Jersey](https://www.yahoo.com/news/articles/surveillance-video-captures-brutal-road-221056184.html)
+- Jul 25 - [Meta names ChatGPT co-creator as chief scientist of Superintelligence Lab](https://tech.yahoo.com/ai/articles/meta-names-chatgpt-co-creator-213628277.html)
 <!-- feed end -->
