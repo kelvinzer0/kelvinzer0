@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [CNN Analyst Stunned After Trump Botches 'Easiest Question In Human History'](https://www.yahoo.com/news/articles/cnn-analyst-stunned-trump-botches-192626822.html)
-- Jul 26 - [Hollywood’s Hottest Starlet Is Using Her Beauty To Manipulate Stock Prices](https://finance.yahoo.com/news/hollywood-hottest-starlet-using-her-165931073.html)
+- Jul 26 - [Sydney Sweeney's American Eagle Ad Sparks Outrage, But Fans Praise Her For 'Killing Woke Advertising'](https://www.yahoo.com/entertainment/articles/sydney-sweeneys-american-eagle-ad-223012604.html)
+- Jul 26 - [Landlord jailed for decades in hate-crime attack on Palestinian American family has died](https://www.yahoo.com/news/articles/landlord-jailed-decades-hate-crime-195618300.html)
+- Jul 26 - [A MAGA Voter's Reddit Post Breaking Down 5 Reasons They'll Be Voting "All Blue" In The Midterms Is Going Viral](https://www.yahoo.com/news/articles/maga-voters-reddit-post-breaking-185344600.html)
 - Jul 26 - [Six people killed in crash on I-485 in west Charlotte: Medic](https://www.yahoo.com/news/articles/485-outer-closed-west-charlotte-162614554.html)
-- Jul 26 - [Mossad in Farsi says Khamenei spends 'half the day sleeping, the other half high'](https://www.yahoo.com/news/articles/mossad-farsi-says-khamenei-spends-125657029.html)
-- Jul 26 - [Trump plays golf in Scotland while protesters take to the streets and decry his visit](https://www.yahoo.com/news/articles/trump-plays-golfs-scotland-while-123926511.html)
+- Jul 26 - [The former NBC host blasted the former president’s son for a series of media appearances in which he blasted Joe Biden’s critics.](https://www.yahoo.com/news/videos/former-nbc-host-blasted-former-155809369.html)
 <!-- feed end -->
