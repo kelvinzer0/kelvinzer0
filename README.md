@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [The former NBC host blasted the former president’s son for a series of media appearances in which he blasted Joe Biden’s critics.](https://www.yahoo.com/news/videos/former-nbc-host-blasted-former-155809369.html)
+- Jul 26 - [CNN Analyst Stunned After Trump Botches 'Easiest Question In Human History'](https://www.yahoo.com/news/articles/cnn-analyst-stunned-trump-botches-192626822.html)
+- Jul 26 - [Hollywood’s Hottest Starlet Is Using Her Beauty To Manipulate Stock Prices](https://finance.yahoo.com/news/hollywood-hottest-starlet-using-her-165931073.html)
+- Jul 26 - [Tesla passes several vehicles on Door County highway before crash, killing 1 and injuring 4](https://www.yahoo.com/news/articles/tesla-passes-several-vehicles-door-145523437.html)
+- Jul 26 - [Mossad in Farsi says Khamenei spends 'half the day sleeping, the other half high'](https://www.yahoo.com/news/articles/mossad-farsi-says-khamenei-spends-125657029.html)
 - Jul 26 - [Trump plays golf in Scotland while protesters take to the streets and decry his visit](https://www.yahoo.com/news/articles/trump-plays-golfs-scotland-while-123926511.html)
-- Jul 26 - [Pittsburgh man tells Dave Ramsey he wants to marry his girlfriend of 8 months — but balked when she suggested a prenup](https://finance.yahoo.com/news/pittsburgh-man-tells-dave-ramsey-114500691.html)
-- Jul 26 - [Earth Has Tilted 31.5 Inches. That Shouldn't Happen.](https://www.yahoo.com/news/articles/earth-tilted-31-5-inches-113000647.html)
-- Jul 26 - [I Asked ChatGPT How Much the Average Middle-Class Retiree Spends Monthly at Age 75: Here’s What It Said](https://finance.yahoo.com/news/asked-chatgpt-much-average-middle-110126299.html)
 <!-- feed end -->
