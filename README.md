@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 26 - [Families of Americans slain in the West Bank lose hope for justice](https://www.yahoo.com/news/articles/families-americans-slain-west-bank-051430846.html)
+- Jul 26 - [Thai-Cambodian conflict pits a well-equipped US ally against a weaker adversary with strong China links](https://www.yahoo.com/news/articles/thai-cambodian-conflict-pits-well-092053984.html)
 - Jul 26 - [‘He felt something crawl on him:’ Simple spider bite leaves teen with failing kidneys and unable to speak](https://www.yahoo.com/news/articles/felt-something-crawl-him-simple-203846427.html)
+- Jul 25 - [The asteroid that will spare Earth might hit the moon instead. What happens if it does?](https://www.yahoo.com/news/articles/happens-asteroid-hits-moon-astronomers-133209287.html)
 - Jul 25 - [A 59-Year-Old Career Nurse Feels 'Defeated And Cooked' After Learning Her Coworker Has Saved Nearly $500,000 More For Retirement](https://finance.yahoo.com/news/59-old-career-nurse-feels-223155613.html)
-- Jul 25 - [Enormous Explosion Shakes Onlookers in DC](https://www.yahoo.com/news/videos/enormous-explosion-shakes-onlookers-dc-221727567.html)
-- Jul 25 - [Surveillance video captures brutal road rage stabbing in New Jersey](https://www.yahoo.com/news/articles/surveillance-video-captures-brutal-road-221056184.html)
+- Jul 25 - [Prominent Lawyer Among 2 Dead After Small Plane Crashes and Bursts into Fireball on Busy Highway](https://www.yahoo.com/entertainment/videos/prominent-lawyer-among-2-dead-204602928.html)
 <!-- feed end -->
