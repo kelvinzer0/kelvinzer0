@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Intercepted ship carrying activists and humanitarian aid for Gaza arrives at Israel port](https://www.yahoo.com/news/videos/intercepted-ship-carrying-activists-humanitarian-091037431.html)
 - Jul 27 - [Joking about her abusive husband launched this Chinese comedian to stardom. The authorities aren’t laughing](https://www.yahoo.com/news/articles/joking-her-abusive-husband-launched-044541161.html)
+- Jul 27 - [Jeju Air jet still had a working engine when it crashed, investigation update says](https://www.yahoo.com/news/articles/jeju-air-jet-still-had-035532234.html)
 - Jul 27 - [China is suppressing coverage of deadly attacks. Some people are complaining online](https://www.yahoo.com/news/articles/china-suppressing-coverage-deadly-attacks-032156814.html)
-- Jul 26 - [Sydney Sweeney's American Eagle Ad Sparks Outrage, But Fans Praise Her For 'Killing Woke Advertising'](https://www.yahoo.com/entertainment/articles/sydney-sweeneys-american-eagle-ad-223012604.html)
-- Jul 26 - [Veteran Arab affairs commentator Ehud Yaari reveals he had indirect contact with Yahya Sinwar](https://www.yahoo.com/news/articles/veteran-arab-affairs-commentator-ehud-215441331.html)
+- Jul 26 - [Landlord imprisoned for decades in hate-crime attack on Palestinian American family has died](https://www.yahoo.com/news/articles/landlord-jailed-decades-hate-crime-195618300.html)
+- Jul 26 - [CNN Analyst Stunned After Trump Botches 'Easiest Question In Human History'](https://www.yahoo.com/news/articles/cnn-analyst-stunned-trump-botches-192626822.html)
 <!-- feed end -->
