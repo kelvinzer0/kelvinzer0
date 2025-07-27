@@ -58,8 +58,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 27 - [China is suppressing coverage of deadly attacks. Some people are complaining online](https://www.yahoo.com/news/articles/china-suppressing-coverage-deadly-attacks-032156814.html)
-- Jul 26 - [Sydney Sweeney's American Eagle Ad Sparks Outrage, But Fans Praise Her For 'Killing Woke Advertising'](https://www.yahoo.com/entertainment/articles/sydney-sweeneys-american-eagle-ad-223012604.html)
-- Jul 26 - [Veteran Arab affairs commentator Ehud Yaari reveals he had indirect contact with Yahya Sinwar](https://www.yahoo.com/news/articles/veteran-arab-affairs-commentator-ehud-215441331.html)
+- Jul 26 - [French official tells paper Arab countries will condemn Hamas, trying to get Palestinian statehood recognized](https://www.yahoo.com/news/articles/french-official-tells-paper-arab-204958539.html)
+- Jul 26 - [Landlord jailed for decades in hate-crime attack on Palestinian American family has died](https://www.yahoo.com/news/articles/landlord-jailed-decades-hate-crime-195618300.html)
 - Jul 26 - [CNN Analyst Stunned After Trump Botches 'Easiest Question In Human History'](https://www.yahoo.com/news/articles/cnn-analyst-stunned-trump-botches-192626822.html)
-- Jul 26 - [What are those two castle-like towers near the Chain of Rocks Bridge?](https://www.yahoo.com/news/articles/those-two-castle-towers-near-190422258.html)
+- Jul 26 - ['So Lazy': President Trump Taking Heat For Golf Etiquette After Viral Putt](https://www.yahoo.com/entertainment/articles/lazy-president-trump-taking-heat-175312248.html)
 <!-- feed end -->
