@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - ['Haves and have-nots': The stock market thinks more consumers are reaching a breaking point](https://finance.yahoo.com/news/haves-and-have-nots-the-stock-market-thinks-more-consumers-are-reaching-a-breaking-point-150020027.html)
+- Jul 27 - [Federal judge in RI halts restrictions on funding to groups that serve society's vulnerable](https://www.yahoo.com/news/articles/federal-judge-ri-halts-restrictions-145503285.html)
 - Jul 27 - [‘Killed it on the spot’: Infant bites cobra to death after it coiled around his hands](https://www.yahoo.com/news/articles/infant-bites-death-cobra-coiled-110505046.html)
 - Jul 27 - [Ukrainian drones target St Petersburg as Putin attends scaled-down Navy Day](https://www.yahoo.com/news/articles/ukrainian-drones-target-st-petersburg-135229389.html)
 - Jul 27 - [£274m of Child Trust Fund cash has not been claimed – here’s how to get yours](https://www.yahoo.com/news/articles/275m-child-trust-fund-cash-074451263.html)
-- Jul 27 - [‘He cannot match my spending’: I’m 65 and have $7 million. My boyfriend is 73. Should he release equity from his home so we can enjoy retirement?](https://finance.yahoo.com/news/cannot-match-spending-m-65-101500770.html)
-- Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
 <!-- feed end -->
