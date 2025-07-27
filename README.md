@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Man arrested after multiple people assaulted during Charlottesville church service](https://www.yahoo.com/news/articles/man-arrested-multiple-people-assaulted-185819024.html)
-- Jul 27 - [Charlie Hurt insisted that the government’s refusal to use child labor on farms is “mindblowing.”](https://www.yahoo.com/news/videos/charlie-hurt-insisted-government-refusal-182835920.html)
-- Jul 27 - [Suspect in Michigan Walmart stabbing faces terrorism and assault charges](https://www.yahoo.com/news/articles/random-stabbing-michigan-walmart-left-092431429.html)
+- Jul 27 - [Dow Inc. (DOW): Good News About Industrial Economy Isn’t Helping, Says Jim Cramer](https://finance.yahoo.com/news/dow-inc-dow-good-news-201632880.html)
+- Jul 27 - [Boeing's contract offer rejected by union members](https://www.yahoo.com/news/articles/boeings-contract-offer-rejected-union-175417910.html)
 - Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
-- Jul 27 - [President Trump Received Clear 'Warning' Playing Golf Saturday](https://www.yahoo.com/news/articles/president-trump-received-clear-warning-151950679.html)
+- Jul 27 - [I Asked ChatGPT To Give Me the ‘Cheat Code’ for Making the Most of My Money: Here’s What It Said](https://www.yahoo.com/lifestyle/articles/asked-chatgpt-cheat-code-making-170510988.html)
+- Jul 27 - [Fact check: Trump calls to prosecute Beyoncé based on a nonexistent $11 million payment](https://www.yahoo.com/news/articles/fact-check-trump-calls-prosecute-160431618.html)
 <!-- feed end -->
