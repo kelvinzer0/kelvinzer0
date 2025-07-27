@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Israel again intercepts Gaza-bound ship carrying activists and humanitarian aid](https://www.yahoo.com/news/articles/israel-again-intercepts-gaza-bound-081151622.html)
 - Jul 27 - [Joking about her abusive husband launched this Chinese comedian to stardom. The authorities aren’t laughing](https://www.yahoo.com/news/articles/joking-her-abusive-husband-launched-044541161.html)
 - Jul 27 - [China is suppressing coverage of deadly attacks. Some people are complaining online](https://www.yahoo.com/news/articles/china-suppressing-coverage-deadly-attacks-032156814.html)
 - Jul 26 - [Sydney Sweeney's American Eagle Ad Sparks Outrage, But Fans Praise Her For 'Killing Woke Advertising'](https://www.yahoo.com/entertainment/articles/sydney-sweeneys-american-eagle-ad-223012604.html)
 - Jul 26 - [Veteran Arab affairs commentator Ehud Yaari reveals he had indirect contact with Yahya Sinwar](https://www.yahoo.com/news/articles/veteran-arab-affairs-commentator-ehud-215441331.html)
-- Jul 26 - [Landlord jailed for decades in hate-crime attack on Palestinian American family has died](https://www.yahoo.com/news/articles/landlord-jailed-decades-hate-crime-195618300.html)
 <!-- feed end -->
