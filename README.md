@@ -58,8 +58,8 @@ https://kelvinzer0.github.io
 
 <!-- feed start -->
 - Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
-- Jul 27 - [Russian Navy Day parade cancelled for ‘security reasons’](https://www.yahoo.com/news/articles/russian-navy-day-parade-cancelled-165107012.html)
+- Jul 27 - [Bangladesh orders 25 Boeing planes as part of push to ease US tariffs](https://finance.yahoo.com/news/bangladesh-orders-25-boeing-planes-161018309.html)
+- Jul 27 - [GOP Sen. Refuses to Admit Bush, Not Obama, Was President During Epstein’s Plea Deal](https://www.yahoo.com/news/articles/gop-sen-refuses-admit-bush-155055387.html)
 - Jul 27 - [President Trump Received Clear 'Warning' Playing Golf Saturday](https://www.yahoo.com/news/articles/president-trump-received-clear-warning-151950679.html)
-- Jul 27 - [Prayers Pouring In After Football Coach Is Found Dead Inside Home](https://www.yahoo.com/news/articles/prayers-pouring-football-coach-found-151448044.html)
-- Jul 27 - [Ukrainian drones target St Petersburg as Putin attends scaled-down Navy Day](https://www.yahoo.com/news/articles/ukrainian-drones-target-st-petersburg-135229389.html)
+- Jul 27 - ['Haves and have-nots': The stock market thinks more consumers are reaching a breaking point](https://finance.yahoo.com/news/haves-and-have-nots-the-stock-market-thinks-more-consumers-are-reaching-a-breaking-point-150020027.html)
 <!-- feed end -->
