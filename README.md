@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Bystanders confront man after 11 injured in Walmart stabbing](https://www.yahoo.com/news/videos/bystanders-confront-man-11-injured-153438110.html)
-- Jul 27 - [President Trump Received Clear 'Warning' Playing Golf Saturday](https://www.yahoo.com/news/articles/president-trump-received-clear-warning-151950679.html)
-- Jul 27 - [Ukrainian drones target St Petersburg as Putin attends scaled-down Navy Day](https://www.yahoo.com/news/articles/ukrainian-drones-target-st-petersburg-135229389.html)
-- Jul 27 - [£274m of Child Trust Fund cash has not been claimed – here’s how to get yours](https://www.yahoo.com/news/articles/275m-child-trust-fund-cash-074451263.html)
 - Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
+- Jul 27 - [Russian Navy Day parade cancelled for ‘security reasons’](https://www.yahoo.com/news/articles/russian-navy-day-parade-cancelled-165107012.html)
+- Jul 27 - [President Trump Received Clear 'Warning' Playing Golf Saturday](https://www.yahoo.com/news/articles/president-trump-received-clear-warning-151950679.html)
+- Jul 27 - [Prayers Pouring In After Football Coach Is Found Dead Inside Home](https://www.yahoo.com/news/articles/prayers-pouring-football-coach-found-151448044.html)
+- Jul 27 - [Ukrainian drones target St Petersburg as Putin attends scaled-down Navy Day](https://www.yahoo.com/news/articles/ukrainian-drones-target-st-petersburg-135229389.html)
 <!-- feed end -->
