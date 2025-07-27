@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [‘Killed it on the spot’: Infant bites cobra to death after it coiled around his hands](https://www.yahoo.com/news/articles/infant-bites-death-cobra-coiled-110505046.html)
+- Jul 27 - [Ukrainian drones target St Petersburg as Putin attends scaled-down Navy Day](https://www.yahoo.com/news/articles/ukrainian-drones-target-st-petersburg-135229389.html)
 - Jul 27 - [£274m of Child Trust Fund cash has not been claimed – here’s how to get yours](https://www.yahoo.com/news/articles/275m-child-trust-fund-cash-074451263.html)
-- Jul 27 - [Is Eating Too Many Raw Vegetables Hurting Your Gut? Here's What Dietitians Say](https://health.yahoo.com/conditions/digestive-health/articles/eating-too-many-raw-vegetables-130000117.html)
-- Jul 27 - [Plane drops aid over Gaza Strip amid concerns over worsening humanitarian situation](https://www.yahoo.com/news/videos/plane-drops-aid-over-gaza-125446318.html)
-- Jul 27 - [Tourist Says He Was Denied Entry To U.S. Over A Seemingly Innocent Photo — And It Could Happen To You](https://www.yahoo.com/news/articles/tourist-says-denied-entry-u-110017013.html)
-- Jul 27 - [Indian tech company TCS to cut workforce by 2%, affecting more than 12,000 jobs](https://finance.yahoo.com/news/indian-tech-company-tcs-cut-103558159.html)
+- Jul 27 - [‘He cannot match my spending’: I’m 65 and have $7 million. My boyfriend is 73. Should he release equity from his home so we can enjoy retirement?](https://finance.yahoo.com/news/cannot-match-spending-m-65-101500770.html)
+- Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
 <!-- feed end -->
