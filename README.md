@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Passengers exit plane via emergency slide after aborted takeoff](https://www.yahoo.com/news/articles/passengers-exit-plane-via-emergency-014243681.html)
 - Jul 26 - [Sydney Sweeney's American Eagle Ad Sparks Outrage, But Fans Praise Her For 'Killing Woke Advertising'](https://www.yahoo.com/entertainment/articles/sydney-sweeneys-american-eagle-ad-223012604.html)
+- Jul 26 - [Vehicle accident involving an ambulance in Clifton; I-70B temporarily closes](https://www.yahoo.com/news/articles/vehicle-accident-involving-ambulance-clifton-221333614.html)
+- Jul 26 - [French official tells paper Arab countries will condemn Hamas, trying to get Palestinian statehood recognized](https://www.yahoo.com/news/articles/french-official-tells-paper-arab-204958539.html)
 - Jul 26 - [Landlord jailed for decades in hate-crime attack on Palestinian American family has died](https://www.yahoo.com/news/articles/landlord-jailed-decades-hate-crime-195618300.html)
-- Jul 26 - [A MAGA Voter's Reddit Post Breaking Down 5 Reasons They'll Be Voting "All Blue" In The Midterms Is Going Viral](https://www.yahoo.com/news/articles/maga-voters-reddit-post-breaking-185344600.html)
-- Jul 26 - [Six people killed in crash on I-485 in west Charlotte: Medic](https://www.yahoo.com/news/articles/485-outer-closed-west-charlotte-162614554.html)
-- Jul 26 - [The former NBC host blasted the former president’s son for a series of media appearances in which he blasted Joe Biden’s critics.](https://www.yahoo.com/news/videos/former-nbc-host-blasted-former-155809369.html)
 <!-- feed end -->
