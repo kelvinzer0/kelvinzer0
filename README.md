@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Dow Inc. (DOW): Good News About Industrial Economy Isn’t Helping, Says Jim Cramer](https://finance.yahoo.com/news/dow-inc-dow-good-news-201632880.html)
-- Jul 27 - [Boeing's contract offer rejected by union members](https://www.yahoo.com/news/articles/boeings-contract-offer-rejected-union-175417910.html)
-- Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
-- Jul 27 - [I Asked ChatGPT To Give Me the ‘Cheat Code’ for Making the Most of My Money: Here’s What It Said](https://www.yahoo.com/lifestyle/articles/asked-chatgpt-cheat-code-making-170510988.html)
-- Jul 27 - [Fact check: Trump calls to prosecute Beyoncé based on a nonexistent $11 million payment](https://www.yahoo.com/news/articles/fact-check-trump-calls-prosecute-160431618.html)
+- Jul 27 - [Yemen's Houthis threaten to target ships linked to firms dealing with Israeli ports](https://www.yahoo.com/news/articles/yemens-houthis-threaten-target-ships-214824596.html)
+- Jul 27 - [Boeing's fighter jet workers in the St. Louis area reject a contract offer](https://finance.yahoo.com/news/boeings-fighter-jet-workers-st-212321060.html)
+- Jul 27 - [Rough deal: Social media roasts Trump’s golf game after clip appears to show alleged cheating in Scotland](https://www.yahoo.com/news/articles/rough-deal-social-media-roasts-210730846.html)
+- Jul 27 - [Factbox-Key elements of EU-U.S. trade deal agreed on Sunday](https://finance.yahoo.com/news/factbox-key-elements-eu-u-193445175.html)
+- Jul 27 - [Lauren Boebert’s son charged with child abuse in incident she described as a ‘miscommunication’](https://www.yahoo.com/news/articles/lauren-boebert-son-charged-child-183940455.html)
 <!-- feed end -->
