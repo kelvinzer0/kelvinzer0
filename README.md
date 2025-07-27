@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [Want Decades of Passive Income? Buy This Index Fund and Hold It Forever.](https://finance.yahoo.com/news/want-decades-passive-income-buy-102200271.html)
+- Jul 27 - [Social Security Wisdom: One Key Piece of Advice for All Retirees](https://finance.yahoo.com/news/social-security-wisdom-one-key-095100060.html)
 - Jul 27 - [San Francisco residents say someone is now reporting them for parking in their own driveways — costing them hundreds](https://www.yahoo.com/news/articles/san-francisco-residents-someone-now-093000078.html)
-- Jul 27 - [Joking about her abusive husband launched this Chinese comedian to stardom. The authorities aren’t laughing](https://www.yahoo.com/news/articles/joking-her-abusive-husband-launched-044541161.html)
+- Jul 27 - [Iran's Supreme Leader spends his days sleeping and getting high, Mossad-linked account says](https://www.yahoo.com/news/articles/irans-supreme-leader-spends-days-061446766.html)
 - Jul 27 - [China is suppressing coverage of deadly attacks. Some people are complaining online](https://www.yahoo.com/news/articles/china-suppressing-coverage-deadly-attacks-032156814.html)
-- Jul 26 - [Veteran Arab affairs commentator Ehud Yaari reveals he had indirect contact with Yahya Sinwar](https://www.yahoo.com/news/articles/veteran-arab-affairs-commentator-ehud-215441331.html)
-- Jul 26 - [Landlord imprisoned for decades in hate-crime attack on Palestinian American family has died](https://www.yahoo.com/news/articles/landlord-jailed-decades-hate-crime-195618300.html)
 <!-- feed end -->
