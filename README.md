@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
+- Jul 27 - [£274m of Child Trust Fund cash has not been claimed – here’s how to get yours](https://www.yahoo.com/news/articles/275m-child-trust-fund-cash-074451263.html)
+- Jul 27 - [Is Eating Too Many Raw Vegetables Hurting Your Gut? Here's What Dietitians Say](https://health.yahoo.com/conditions/digestive-health/articles/eating-too-many-raw-vegetables-130000117.html)
 - Jul 27 - [Plane drops aid over Gaza Strip amid concerns over worsening humanitarian situation](https://www.yahoo.com/news/videos/plane-drops-aid-over-gaza-125446318.html)
 - Jul 27 - [Tourist Says He Was Denied Entry To U.S. Over A Seemingly Innocent Photo — And It Could Happen To You](https://www.yahoo.com/news/articles/tourist-says-denied-entry-u-110017013.html)
-- Jul 27 - [Scientists make alarming discovery after attaching GoPro cameras to polar bears in the Arctic — here's what's happening](https://www.yahoo.com/news/articles/scientists-alarming-discovery-attaching-gopro-101554464.html)
-- Jul 27 - [Denny’s CEO asks potential hires these questions at the interview—if they can’t answer, it’s an immediate red flag](https://www.yahoo.com/news/articles/denny-ceo-asks-potential-hires-100300902.html)
-- Jul 27 - [Hurricane season warning signs pile up. Brace for a dangerous August.](https://www.yahoo.com/news/articles/hurricane-season-warning-signs-pile-100216536.html)
+- Jul 27 - [Indian tech company TCS to cut workforce by 2%, affecting more than 12,000 jobs](https://finance.yahoo.com/news/indian-tech-company-tcs-cut-103558159.html)
 <!-- feed end -->
