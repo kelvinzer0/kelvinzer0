@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Yemen's Houthis threaten to target ships linked to firms dealing with Israeli ports](https://www.yahoo.com/news/articles/yemens-houthis-threaten-target-ships-214824596.html)
-- Jul 27 - [Boeing's fighter jet workers in the St. Louis area reject a contract offer](https://finance.yahoo.com/news/boeings-fighter-jet-workers-st-212321060.html)
-- Jul 27 - [Rough deal: Social media roasts Trump’s golf game after clip appears to show alleged cheating in Scotland](https://www.yahoo.com/news/articles/rough-deal-social-media-roasts-210730846.html)
-- Jul 27 - [Factbox-Key elements of EU-U.S. trade deal agreed on Sunday](https://finance.yahoo.com/news/factbox-key-elements-eu-u-193445175.html)
-- Jul 27 - [Lauren Boebert’s son charged with child abuse in incident she described as a ‘miscommunication’](https://www.yahoo.com/news/articles/lauren-boebert-son-charged-child-183940455.html)
+- Jul 27 - [Grand Rapids Twp home ‘total loss’ after fire](https://www.yahoo.com/news/videos/grand-rapids-twp-home-total-222434254.html)
+- Jul 27 - [Woman Claims Spirit Airlines Refused to Let Her Board a Flight Home from Miami After She Underwent Cosmetic Surgery](https://www.yahoo.com/news/articles/woman-claims-spirit-airlines-refused-221141902.html)
+- Jul 27 - [3-Year-Old Dies in Hot Car After DHR Custody Failure](https://www.yahoo.com/news/articles/3-old-dies-hot-car-220057809.html)
+- Jul 27 - [A Sacramento mother and her 8-month-old daughter have been missing for over 10 days](https://www.yahoo.com/news/articles/sacramento-mother-her-8-month-180445139.html)
+- Jul 27 - [Boeing's contract offer rejected by union members](https://www.yahoo.com/news/articles/boeings-contract-offer-rejected-union-175417910.html)
 <!-- feed end -->
