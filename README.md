@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Want Decades of Passive Income? Buy This Index Fund and Hold It Forever.](https://finance.yahoo.com/news/want-decades-passive-income-buy-102200271.html)
-- Jul 27 - [Social Security Wisdom: One Key Piece of Advice for All Retirees](https://finance.yahoo.com/news/social-security-wisdom-one-key-095100060.html)
-- Jul 27 - [San Francisco residents say someone is now reporting them for parking in their own driveways — costing them hundreds](https://www.yahoo.com/news/articles/san-francisco-residents-someone-now-093000078.html)
-- Jul 27 - [Iran's Supreme Leader spends his days sleeping and getting high, Mossad-linked account says](https://www.yahoo.com/news/articles/irans-supreme-leader-spends-days-061446766.html)
-- Jul 27 - [China is suppressing coverage of deadly attacks. Some people are complaining online](https://www.yahoo.com/news/articles/china-suppressing-coverage-deadly-attacks-032156814.html)
+- Jul 27 - [Plane drops aid over Gaza Strip amid concerns over worsening humanitarian situation](https://www.yahoo.com/news/videos/plane-drops-aid-over-gaza-125446318.html)
+- Jul 27 - [Tourist Says He Was Denied Entry To U.S. Over A Seemingly Innocent Photo — And It Could Happen To You](https://www.yahoo.com/news/articles/tourist-says-denied-entry-u-110017013.html)
+- Jul 27 - [Scientists make alarming discovery after attaching GoPro cameras to polar bears in the Arctic — here's what's happening](https://www.yahoo.com/news/articles/scientists-alarming-discovery-attaching-gopro-101554464.html)
+- Jul 27 - [Denny’s CEO asks potential hires these questions at the interview—if they can’t answer, it’s an immediate red flag](https://www.yahoo.com/news/articles/denny-ceo-asks-potential-hires-100300902.html)
+- Jul 27 - [Hurricane season warning signs pile up. Brace for a dangerous August.](https://www.yahoo.com/news/articles/hurricane-season-warning-signs-pile-100216536.html)
 <!-- feed end -->
