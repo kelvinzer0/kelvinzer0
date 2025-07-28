@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Palestinians in Gaza say aid efforts not enough to reach all those in need](https://www.yahoo.com/news/videos/palestinians-gaza-aid-efforts-not-033246415.html)
+- Jul 28 - [As Dubai cracks down on crowded jerry-rigged apartments, migrant workers have nowhere else to go](https://www.yahoo.com/news/articles/dubai-cracks-down-crowded-jerry-041506903.html)
+- Jul 28 - [Europe hopes for 'no surprises' as US weighs force withdrawals](https://www.yahoo.com/news/articles/europe-hopes-no-surprises-us-032054995.html)
 - Jul 28 - [Congresswoman Lauren Boebert Speaks Out as Son Tyler, 20, Faces Child Abuse Allegations Tied to Incident with Her Grandson](https://www.yahoo.com/news/articles/congresswoman-lauren-boebert-speaks-son-001347472.html)
-- Jul 28 - [Powerful sister of North Korean leader Kim rejects outreach by South's new president](https://www.yahoo.com/news/articles/powerful-sister-north-korean-leader-000519946.html)
-- Jul 27 - [Rough deal: Social media roasts Trump’s golf game after clip appears to show alleged cheating in Scotland](https://www.yahoo.com/news/articles/rough-deal-social-media-roasts-210730846.html)
-- Jul 27 - [Boeing's contract offer rejected by union members](https://www.yahoo.com/news/articles/boeings-contract-offer-rejected-union-175417910.html)
+- Jul 28 - [Kim Jong Un's sister rejects outreach by South's new president](https://www.yahoo.com/news/articles/powerful-sister-north-korean-leader-000519946.html)
+- Jul 27 - [North Korea says South Korea's overtures 'great miscalculation'](https://www.yahoo.com/news/articles/north-korea-says-south-koreas-220947624.html)
 <!-- feed end -->
