@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [EU Tariff Deal Lacks Detail: Greta Peisch](https://finance.yahoo.com/video/eu-tariff-deal-lacks-detail-215131180.html)
+- Jul 28 - [‘It’s falling’: Kansas City woman warned friends day before fatal Family Dollar collapse](https://www.yahoo.com/news/videos/falling-kansas-city-woman-warned-222007475.html)
 - Jul 28 - [Tariff evaders may face criminal charges under Trump's DOJ](https://finance.yahoo.com/video/tariff-evaders-may-face-criminal-210813419.html)
-- Jul 28 - [MSTR Introduces New Preferred Stock With Initial 9% Dividend](https://finance.yahoo.com/news/mstr-introduces-preferred-stock-initial-210000977.html)
-- Jul 28 - [Cadence to plead guilty and pay $140 million to US for China sales](https://finance.yahoo.com/news/exclusive-cadence-nears-deal-pay-195320976.html)
-- Jul 28 - [This Elderly Trump Supporter's Analysis Of What Trump Did To America Is Going Viral](https://www.yahoo.com/news/articles/elderly-trump-voters-reason-renouncing-194929781.html)
+- Jul 28 - ['Anti-vax' woman died after refusing chemotherapy](https://www.yahoo.com/news/articles/anti-vax-woman-died-refusing-210609973.html)
+- Jul 28 - [Ethereum's Future Is Now, Co-Founder Lubin Says](https://finance.yahoo.com/video/ethereums-future-now-co-founder-202227247.html)
+- Jul 28 - [2 customs officers plead guilty to allowing drugs to enter the US through their inspection lanes](https://www.yahoo.com/news/articles/2-customs-officers-plead-guilty-194643161.html)
 <!-- feed end -->
 
 ---
