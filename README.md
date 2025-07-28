@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [‘The whole thing was a fake’: Trump says Democrats could have ‘put things in’ the Epstein file](https://www.yahoo.com/news/articles/whole-thing-fake-trump-says-144324114.html)
-- Jul 28 - [UN high level meeting on Israel-Palestinian two-state solution gets underway](https://www.yahoo.com/news/videos/un-high-level-meeting-israel-151751964.html)
-- Jul 28 - [Europe reacts with mix of relief and concern to US trade deal](https://finance.yahoo.com/video/europe-reacts-mix-relief-concern-150238293.html)
-- Jul 28 - [18 ChatGPT Prompts To Use To Increase Your Wealth](https://finance.yahoo.com/news/yourself-money-smart-20-chatgpt-160057244.html)
-- Jul 28 - [Trump Says There's 'Real Starvation' In Gaza: 'You Can't Fake That'](https://www.yahoo.com/news/articles/trump-says-theres-real-starvation-150101770.html)
+- Jul 28 - [Hospitals make record number of requests for doctors to work during strikes, claims union](https://www.yahoo.com/news/articles/hospitals-record-number-requests-doctors-153345374.html)
+- Jul 28 - [Pilot arrested on child sex abuse material charges after landing at San Francisco airport](https://www.yahoo.com/news/articles/pilot-arrested-child-sex-abuse-154630425.html)
+- Jul 28 - [Trump reiterates that he has the authority to pardon Ghislaine Maxwell](https://www.yahoo.com/news/articles/trump-reiterates-authority-pardon-ghislaine-153852029.html)
+- Jul 28 - [Nigeria kidnappers kill 35 hostages even after ransom paid](https://www.yahoo.com/news/articles/nigeria-kidnappers-kill-38-hostages-141507585.html)
+- Jul 28 - [Eight-year-old girl seriously injured in holiday party horror](https://www.yahoo.com/news/articles/eight-old-girl-seriously-injured-071616615.html)
 <!-- feed end -->
 
 ---
