@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Samsung shares jump on news of $16.5 bln Tesla chips deal](https://finance.yahoo.com/video/samsung-shares-jump-news-16-072013053.html)
 - Jul 28 - [As Dubai cracks down on crowded jerry-rigged apartments, migrant workers have nowhere else to go](https://www.yahoo.com/news/articles/dubai-cracks-down-crowded-jerry-041506128.html)
+- Jul 28 - [Prediction: Quantum Computing Stock Will Be Worth This Much in 2030](https://finance.yahoo.com/news/prediction-quantum-computing-stock-worth-013000941.html)
 - Jul 28 - [Congresswoman Lauren Boebert Speaks Out as Son Tyler, 20, Faces Child Abuse Allegations Tied to Incident with Her Grandson](https://www.yahoo.com/news/articles/congresswoman-lauren-boebert-speaks-son-001347472.html)
-- Jul 28 - [Kim Jong Un's sister rejects outreach by South's new president](https://www.yahoo.com/news/articles/powerful-sister-north-korean-leader-000519946.html)
-- Jul 27 - [North Korea says South Korea's overtures 'great miscalculation'](https://www.yahoo.com/news/articles/north-korea-says-south-koreas-220947624.html)
 - Jul 27 - [EU urges Ukraine to uphold independent anti-corruption bodies; Zelenskiy signals swift action](https://www.yahoo.com/news/articles/eu-urges-ukraine-uphold-independent-214842103.html)
 <!-- feed end -->
 
