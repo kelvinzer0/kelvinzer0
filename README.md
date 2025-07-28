@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Man dies, 3 injured when part of Kansas City store's roof collapses](https://www.yahoo.com/news/videos/man-dies-3-injured-part-205810275.html)
-- Jul 28 - [Donald Trump reignites feud with Sadiq Khan as he calls London Mayor 'a nasty person' in awkward exchange](https://www.yahoo.com/news/articles/donald-trump-reignites-feud-sadiq-143514552.html)
-- Jul 28 - [Wall Street kicks off a week full of potential flashpoints with a whisper](https://www.yahoo.com/news/videos/wall-street-kicks-off-week-203520902.html)
-- Jul 28 - [Ethereum's Future Is Now, Co-Founder Lubin Says](https://finance.yahoo.com/video/ethereums-future-now-co-founder-202227247.html)
-- Jul 28 - [This Elderly Trump Voter's Reason For Renouncing Trump Is Going Viral](https://www.yahoo.com/news/articles/elderly-trump-voters-reason-renouncing-194929781.html)
+- Jul 28 - [EU Tariff Deal Lacks Detail: Greta Peisch](https://finance.yahoo.com/video/eu-tariff-deal-lacks-detail-215131180.html)
+- Jul 28 - [Tariff evaders may face criminal charges under Trump's DOJ](https://finance.yahoo.com/video/tariff-evaders-may-face-criminal-210813419.html)
+- Jul 28 - [MSTR Introduces New Preferred Stock With Initial 9% Dividend](https://finance.yahoo.com/news/mstr-introduces-preferred-stock-initial-210000977.html)
+- Jul 28 - [Cadence to plead guilty and pay $140 million to US for China sales](https://finance.yahoo.com/news/exclusive-cadence-nears-deal-pay-195320976.html)
+- Jul 28 - [This Elderly Trump Supporter's Analysis Of What Trump Did To America Is Going Viral](https://www.yahoo.com/news/articles/elderly-trump-voters-reason-renouncing-194929781.html)
 <!-- feed end -->
 
 ---
