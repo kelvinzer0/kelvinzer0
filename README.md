@@ -57,9 +57,9 @@ https://kelvinzer0.github.io
 ### Today's News:
 
 <!-- feed start -->
-- Jul 27 - [Grand Rapids Twp home ‘total loss’ after fire](https://www.yahoo.com/news/videos/grand-rapids-twp-home-total-222434254.html)
-- Jul 27 - [Woman Claims Spirit Airlines Refused to Let Her Board a Flight Home from Miami After She Underwent Cosmetic Surgery](https://www.yahoo.com/news/articles/woman-claims-spirit-airlines-refused-221141902.html)
-- Jul 27 - [3-Year-Old Dies in Hot Car After DHR Custody Failure](https://www.yahoo.com/news/articles/3-old-dies-hot-car-220057809.html)
-- Jul 27 - [A Sacramento mother and her 8-month-old daughter have been missing for over 10 days](https://www.yahoo.com/news/articles/sacramento-mother-her-8-month-180445139.html)
-- Jul 27 - [Boeing's contract offer rejected by union members](https://www.yahoo.com/news/articles/boeings-contract-offer-rejected-union-175417910.html)
+- Jul 28 - [Powerful sister of North Korean leader Kim rejects outreach by South’s new president](https://www.yahoo.com/news/articles/powerful-sister-north-korean-leader-015927995.html)
+- Jul 28 - [Congresswoman Lauren Boebert Speaks Out as Son Tyler, 20, Faces Child Abuse Allegations Tied to Incident with Her Grandson](https://www.yahoo.com/news/articles/congresswoman-lauren-boebert-speaks-son-001347472.html)
+- Jul 27 - [Rough deal: Social media roasts Trump’s golf game after clip appears to show alleged cheating in Scotland](https://www.yahoo.com/news/articles/rough-deal-social-media-roasts-210730846.html)
+- Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
+- Jul 27 - [New information about Walmart mass shooting emerges in recently released evidence](https://www.yahoo.com/news/articles/information-walmart-mass-shooting-emerges-163414373.html)
 <!-- feed end -->
