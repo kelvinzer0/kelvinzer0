@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [EU says Temu in breach of rules to prevent sale of illegal products](https://tech.yahoo.com/business/articles/eu-says-temu-breach-rules-105503111.html)
-- Jul 28 - [This construction project was on time and on budget. Then came ICE](https://www.yahoo.com/news/articles/construction-project-time-budget-then-100431932.html)
-- Jul 28 - [Health insurance companies have a problem — people are using their plans more](https://finance.yahoo.com/news/health-insurance-companies-have-a-problem--people-are-using-their-plans-more-092016719.html)
-- Jul 28 - [Elon Musk Thinks Tesla Will Become the World's Most Valuable Company. I Predict Its Stock Could Plunge by 70% (or More) Instead.](https://finance.yahoo.com/news/elon-musk-thinks-tesla-become-082700484.html)
-- Jul 28 - [Viral 'honour' killing in southwest Pakistan triggers national outrage](https://www.yahoo.com/news/articles/viral-honour-killing-southwest-pakistan-050401289.html)
+- Jul 28 - [New York’s Sexual Assault Law Excludes the Intoxicated. This Bill Aims to Fix It.](https://www.yahoo.com/news/articles/york-sexual-assault-law-excludes-120000161.html)
+- Jul 28 - [Hackers paralyse Russia’s largest airline](https://www.yahoo.com/news/articles/hackers-paralyse-russia-largest-airline-113716372.html)
+- Jul 28 - [I bought a used car with 6% interest but the dealership claims the bank pushed back and bumped it to 8%. What can I do?](https://finance.yahoo.com/news/bought-used-car-6-interest-113000528.html)
+- Jul 28 - [Israel Pauses Gaza Attacks Amid Global Outrage Over Starvation](https://www.yahoo.com/news/videos/israel-pauses-gaza-attacks-amid-112114013.html)
+- Jul 28 - [Horst Mahler, a German Holocaust denier who was once a far-left militant, dies at 89](https://www.yahoo.com/news/articles/horst-mahler-german-holocaust-denier-111808846.html)
 <!-- feed end -->
 
 ---
