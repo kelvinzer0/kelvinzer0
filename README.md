@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Hospitals make record number of requests for doctors to work during strikes, claims union](https://www.yahoo.com/news/articles/hospitals-record-number-requests-doctors-153345374.html)
-- Jul 28 - [Pilot arrested on child sex abuse material charges after landing at San Francisco airport](https://www.yahoo.com/news/articles/pilot-arrested-child-sex-abuse-154630425.html)
-- Jul 28 - [Trump reiterates that he has the authority to pardon Ghislaine Maxwell](https://www.yahoo.com/news/articles/trump-reiterates-authority-pardon-ghislaine-153852029.html)
-- Jul 28 - [Nigeria kidnappers kill 35 hostages even after ransom paid](https://www.yahoo.com/news/articles/nigeria-kidnappers-kill-38-hostages-141507585.html)
-- Jul 28 - [Eight-year-old girl seriously injured in holiday party horror](https://www.yahoo.com/news/articles/eight-old-girl-seriously-injured-071616615.html)
+- Jul 28 - [Ex-officer who mistook a Black man's keys and phone for a gun gets 15 years to life for murder](https://www.yahoo.com/news/articles/ex-officer-mistook-black-mans-164629483.html)
+- Jul 28 - [Boeing Q2 earnings preview: CEO Ortberg's turnaround plan expected to roll on](https://finance.yahoo.com/news/boeing-q2-earnings-preview-ceo-ortbergs-turnaround-plan-expected-to-roll-on-163209150.html)
+- Jul 28 - [Pastor and wife charged with $1m fraud after ‘God told him’ to sell crypto to his flock and spent it on vacations](https://www.yahoo.com/news/articles/pastor-wife-charged-1m-fraud-162250421.html)
+- Jul 28 - [Two rights groups are first Israeli voices to accuse Israel of genocide](https://www.yahoo.com/news/articles/two-rights-groups-first-israeli-161531594.html)
+- Jul 28 - [AMD stock jumps on 3 catalysts, Boeing faces potential strike](https://finance.yahoo.com/video/amd-stock-jumps-3-catalysts-161524529.html)
 <!-- feed end -->
 
 ---
