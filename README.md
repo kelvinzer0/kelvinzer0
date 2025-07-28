@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Ex-officer who mistook a Black man's keys and phone for a gun gets 15 years to life for murder](https://www.yahoo.com/news/articles/ex-officer-mistook-black-mans-164629483.html)
-- Jul 28 - [Boeing Q2 earnings preview: CEO Ortberg's turnaround plan expected to roll on](https://finance.yahoo.com/news/boeing-q2-earnings-preview-ceo-ortbergs-turnaround-plan-expected-to-roll-on-163209150.html)
-- Jul 28 - [Pastor and wife charged with $1m fraud after ‘God told him’ to sell crypto to his flock and spent it on vacations](https://www.yahoo.com/news/articles/pastor-wife-charged-1m-fraud-162250421.html)
-- Jul 28 - [Two rights groups are first Israeli voices to accuse Israel of genocide](https://www.yahoo.com/news/articles/two-rights-groups-first-israeli-161531594.html)
-- Jul 28 - [AMD stock jumps on 3 catalysts, Boeing faces potential strike](https://finance.yahoo.com/video/amd-stock-jumps-3-catalysts-161524529.html)
+- Jul 28 - [Detained magnate Plahotniuc willing to be extradited to Moldova, lawyer says](https://www.yahoo.com/news/articles/detained-magnate-plahotniuc-willing-extradited-180553680.html)
+- Jul 28 - [Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024](https://www.yahoo.com/news/articles/pete-buttigieg-says-democratic-party-175506220.html)
+- Jul 28 - [EU-US trade deal could add up to $19 billion in pharma industry costs, analysts say](https://finance.yahoo.com/news/eu-us-trade-deal-could-174146296.html)
+- Jul 28 - [This Aggressive Weight Loss Method Actually Works, Nutrition Expert Says](https://www.yahoo.com/lifestyle/articles/aggressive-weight-loss-method-actually-173200406.html)
+- Jul 28 - [Teacher banned from the classroom after encouraging pupil to perform sex act on him](https://www.yahoo.com/news/articles/teacher-banned-classroom-encouraging-pupil-165322264.html)
 <!-- feed end -->
 
 ---
