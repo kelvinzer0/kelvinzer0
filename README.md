@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [SEC Halts Approval of Bitwise ETF](https://finance.yahoo.com/video/sec-halts-approval-bitwise-etf-185328760.html)
-- Jul 28 - [AMD Stock Jumps as AI Chip Prices Soar Ahead of Q2 Earnings](https://finance.yahoo.com/news/amd-stock-jumps-ai-chip-184602059.html)
-- Jul 28 - [Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024](https://www.yahoo.com/news/articles/pete-buttigieg-says-democratic-party-175506220.html)
-- Jul 28 - [US health chief Kennedy targets vaccine injury compensation program](https://www.yahoo.com/news/articles/us-health-chief-kennedy-targets-172452861.html)
-- Jul 28 - [The US Army and its allies flew a HIMARS missile launcher in and out for fast, far-reaching strikes](https://www.yahoo.com/news/articles/us-army-allies-flew-himars-172139467.html)
+- Jul 28 - [Suspect in Michigan Walmart stabbings is charged with a rarely used state terrorism count](https://www.yahoo.com/news/articles/suspect-michigan-walmart-stabbings-charged-200759754.html)
+- Jul 28 - [This Stock Smashes Nvidia, All Mag 7 Members — With A New Breakout Ahead](https://www.investors.com/research/how-to-find-the-best-stocks-to-buy/argan-stock-smashes-nvidia-meta-tesla-magnificent-seven-stocks/?src=A00220&yptr=yahoo)
+- Jul 28 - [Exclusive-Cadence nears deal to pay over $100 million to US for China sales, sources say](https://finance.yahoo.com/news/exclusive-cadence-nears-deal-pay-195320479.html)
+- Jul 28 - [Transitions in the Semiconductor Space](https://finance.yahoo.com/video/transitions-semiconductor-space-194051785.html)
+- Jul 28 - [Houthis say they hold 10 crew from Greek-operated ship they sank off Yemen](https://www.yahoo.com/news/articles/houthis-hold-10-crew-greek-193444920.html)
 <!-- feed end -->
 
 ---
