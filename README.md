@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Suspect in Michigan Walmart stabbings is charged with a rarely used state terrorism count](https://www.yahoo.com/news/articles/suspect-michigan-walmart-stabbings-charged-200759754.html)
-- Jul 28 - [This Stock Smashes Nvidia, All Mag 7 Members — With A New Breakout Ahead](https://www.investors.com/research/how-to-find-the-best-stocks-to-buy/argan-stock-smashes-nvidia-meta-tesla-magnificent-seven-stocks/?src=A00220&yptr=yahoo)
-- Jul 28 - [Exclusive-Cadence nears deal to pay over $100 million to US for China sales, sources say](https://finance.yahoo.com/news/exclusive-cadence-nears-deal-pay-195320479.html)
-- Jul 28 - [Transitions in the Semiconductor Space](https://finance.yahoo.com/video/transitions-semiconductor-space-194051785.html)
-- Jul 28 - [Houthis say they hold 10 crew from Greek-operated ship they sank off Yemen](https://www.yahoo.com/news/articles/houthis-hold-10-crew-greek-193444920.html)
+- Jul 28 - [Man dies, 3 injured when part of Kansas City store's roof collapses](https://www.yahoo.com/news/videos/man-dies-3-injured-part-205810275.html)
+- Jul 28 - [Donald Trump reignites feud with Sadiq Khan as he calls London Mayor 'a nasty person' in awkward exchange](https://www.yahoo.com/news/articles/donald-trump-reignites-feud-sadiq-143514552.html)
+- Jul 28 - [Wall Street kicks off a week full of potential flashpoints with a whisper](https://www.yahoo.com/news/videos/wall-street-kicks-off-week-203520902.html)
+- Jul 28 - [Ethereum's Future Is Now, Co-Founder Lubin Says](https://finance.yahoo.com/video/ethereums-future-now-co-founder-202227247.html)
+- Jul 28 - [This Elderly Trump Voter's Reason For Renouncing Trump Is Going Viral](https://www.yahoo.com/news/articles/elderly-trump-voters-reason-renouncing-194929781.html)
 <!-- feed end -->
 
 ---
