@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Detained magnate Plahotniuc willing to be extradited to Moldova, lawyer says](https://www.yahoo.com/news/articles/detained-magnate-plahotniuc-willing-extradited-180553680.html)
+- Jul 28 - [SEC Halts Approval of Bitwise ETF](https://finance.yahoo.com/video/sec-halts-approval-bitwise-etf-185328760.html)
+- Jul 28 - [AMD Stock Jumps as AI Chip Prices Soar Ahead of Q2 Earnings](https://finance.yahoo.com/news/amd-stock-jumps-ai-chip-184602059.html)
 - Jul 28 - [Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024](https://www.yahoo.com/news/articles/pete-buttigieg-says-democratic-party-175506220.html)
-- Jul 28 - [EU-US trade deal could add up to $19 billion in pharma industry costs, analysts say](https://finance.yahoo.com/news/eu-us-trade-deal-could-174146296.html)
-- Jul 28 - [This Aggressive Weight Loss Method Actually Works, Nutrition Expert Says](https://www.yahoo.com/lifestyle/articles/aggressive-weight-loss-method-actually-173200406.html)
-- Jul 28 - [Teacher banned from the classroom after encouraging pupil to perform sex act on him](https://www.yahoo.com/news/articles/teacher-banned-classroom-encouraging-pupil-165322264.html)
+- Jul 28 - [US health chief Kennedy targets vaccine injury compensation program](https://www.yahoo.com/news/articles/us-health-chief-kennedy-targets-172452861.html)
+- Jul 28 - [The US Army and its allies flew a HIMARS missile launcher in and out for fast, far-reaching strikes](https://www.yahoo.com/news/articles/us-army-allies-flew-himars-172139467.html)
 <!-- feed end -->
 
 ---
