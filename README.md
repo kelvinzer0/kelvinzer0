@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [The Taliban’s top environment official wants the UN to include Afghanistan in climate talks](https://www.yahoo.com/news/articles/taliban-top-environment-official-wants-140436019.html)
-- Jul 28 - [EU strikes trade deal with US but final decision still to be made on alcohol](https://finance.yahoo.com/news/eu-strikes-trade-deal-us-135425179.html)
-- Jul 28 - [Italy's working age population set to shrink by one fifth, statistics agency says](https://www.yahoo.com/news/articles/italys-working-age-population-set-134954485.html)
-- Jul 28 - [Delta Airlines Pilot Arrested in Cockpit Within Moments of Plane Touching Down in San Francisco: Reports](https://www.yahoo.com/news/articles/delta-airlines-pilot-arrested-cockpit-125428136.html)
-- Jul 28 - [Trump sets deadline of 10 or 12 days for Russia on war with Ukraine](https://www.yahoo.com/news/articles/trump-says-reducing-50-day-120813589.html)
+- Jul 28 - [‘The whole thing was a fake’: Trump says Democrats could have ‘put things in’ the Epstein file](https://www.yahoo.com/news/articles/whole-thing-fake-trump-says-144324114.html)
+- Jul 28 - [UN high level meeting on Israel-Palestinian two-state solution gets underway](https://www.yahoo.com/news/videos/un-high-level-meeting-israel-151751964.html)
+- Jul 28 - [Europe reacts with mix of relief and concern to US trade deal](https://finance.yahoo.com/video/europe-reacts-mix-relief-concern-150238293.html)
+- Jul 28 - [18 ChatGPT Prompts To Use To Increase Your Wealth](https://finance.yahoo.com/news/yourself-money-smart-20-chatgpt-160057244.html)
+- Jul 28 - [Trump Says There's 'Real Starvation' In Gaza: 'You Can't Fake That'](https://www.yahoo.com/news/articles/trump-says-theres-real-starvation-150101770.html)
 <!-- feed end -->
 
 ---
