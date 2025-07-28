@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [Samsung shares jump on news of $16.5 bln Tesla chips deal](https://finance.yahoo.com/video/samsung-shares-jump-news-16-072013053.html)
-- Jul 28 - ['Total Mental Collapse': Trump Ripped After 'Insane' New Ramble In Europe](https://www.yahoo.com/news/articles/total-mental-collapse-trump-ripped-062841599.html)
+- Jul 28 - [EU says Temu in breach of rules to prevent sale of illegal products](https://tech.yahoo.com/business/articles/eu-says-temu-breach-rules-105503111.html)
+- Jul 28 - [This construction project was on time and on budget. Then came ICE](https://www.yahoo.com/news/articles/construction-project-time-budget-then-100431932.html)
+- Jul 28 - [Health insurance companies have a problem — people are using their plans more](https://finance.yahoo.com/news/health-insurance-companies-have-a-problem--people-are-using-their-plans-more-092016719.html)
+- Jul 28 - [Elon Musk Thinks Tesla Will Become the World's Most Valuable Company. I Predict Its Stock Could Plunge by 70% (or More) Instead.](https://finance.yahoo.com/news/elon-musk-thinks-tesla-become-082700484.html)
 - Jul 28 - [Viral 'honour' killing in southwest Pakistan triggers national outrage](https://www.yahoo.com/news/articles/viral-honour-killing-southwest-pakistan-050401289.html)
-- Jul 28 - [Prediction: Quantum Computing Stock Will Be Worth This Much in 2030](https://finance.yahoo.com/news/prediction-quantum-computing-stock-worth-013000941.html)
-- Jul 28 - [Kim Jong Un's sister rejects outreach by South Korea's new president](https://www.yahoo.com/news/articles/powerful-sister-north-korean-leader-000519946.html)
 <!-- feed end -->
 
 ---
