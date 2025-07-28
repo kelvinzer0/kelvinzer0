@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [As Dubai cracks down on crowded jerry-rigged apartments, migrant workers have nowhere else to go](https://www.yahoo.com/news/articles/dubai-cracks-down-crowded-jerry-041506128.html)
 - Jul 28 - [Congresswoman Lauren Boebert Speaks Out as Son Tyler, 20, Faces Child Abuse Allegations Tied to Incident with Her Grandson](https://www.yahoo.com/news/articles/congresswoman-lauren-boebert-speaks-son-001347472.html)
 - Jul 28 - [Kim Jong Un's sister rejects outreach by South's new president](https://www.yahoo.com/news/articles/powerful-sister-north-korean-leader-000519946.html)
-- Jul 27 - [Man drowns after swinging into Russian River](https://www.yahoo.com/news/articles/man-drowns-swinging-russian-river-230105824.html)
-- Jul 27 - [Rough deal: Social media roasts Trump’s golf game after clip appears to show alleged cheating in Scotland](https://www.yahoo.com/news/articles/rough-deal-social-media-roasts-210730846.html)
-- Jul 27 - [There is a larger problem for Trump in the Epstein chaos](https://www.yahoo.com/news/articles/trump-could-burned-conspiracy-theory-120042894.html)
+- Jul 27 - [North Korea says South Korea's overtures 'great miscalculation'](https://www.yahoo.com/news/articles/north-korea-says-south-koreas-220947624.html)
+- Jul 27 - [EU urges Ukraine to uphold independent anti-corruption bodies; Zelenskiy signals swift action](https://www.yahoo.com/news/articles/eu-urges-ukraine-uphold-independent-214842103.html)
 <!-- feed end -->
 
 ---
