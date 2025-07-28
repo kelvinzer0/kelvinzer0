@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 28 - [Samsung shares jump on news of $16.5 bln Tesla chips deal](https://finance.yahoo.com/video/samsung-shares-jump-news-16-072013053.html)
 - Jul 28 - ['Total Mental Collapse': Trump Ripped After 'Insane' New Ramble In Europe](https://www.yahoo.com/news/articles/total-mental-collapse-trump-ripped-062841599.html)
-- Jul 28 - [Palestinians in Gaza say aid efforts not enough to reach all those in need](https://www.yahoo.com/news/videos/palestinians-gaza-aid-efforts-not-033246415.html)
-- Jul 28 - [Monolith's Wang on China AI Investment Opportunities](https://finance.yahoo.com/video/monoliths-wang-china-ai-investment-025147764.html)
+- Jul 28 - [Viral 'honour' killing in southwest Pakistan triggers national outrage](https://www.yahoo.com/news/articles/viral-honour-killing-southwest-pakistan-050401289.html)
 - Jul 28 - [Prediction: Quantum Computing Stock Will Be Worth This Much in 2030](https://finance.yahoo.com/news/prediction-quantum-computing-stock-worth-013000941.html)
-- Jul 27 - [EU urges Ukraine to uphold independent anti-corruption bodies; Zelenskiy signals swift action](https://www.yahoo.com/news/articles/eu-urges-ukraine-uphold-independent-214842103.html)
+- Jul 28 - [Kim Jong Un's sister rejects outreach by South Korea's new president](https://www.yahoo.com/news/articles/powerful-sister-north-korean-leader-000519946.html)
 <!-- feed end -->
 
 ---
