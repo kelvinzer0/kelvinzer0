@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Nvidia orders 300,000 H20 chips from TSMC due to robust China demand, sources say](https://finance.yahoo.com/news/exclusive-nvidia-orders-300-000-030423386.html)
+- Jul 29 - [Average rent surges to £2,712 in London and £1,365 across UK](https://uk.finance.yahoo.com/news/uk-rent-prices-average-london-rightmove-050030068.html)
 - Jul 29 - [Bangkok shooting: Gunman who killed 5 people 'had grudge'; Thai army accuses Cambodia of breaking truce: Singapore live news](https://www.yahoo.com/news/live/bangkok-shooting-gunman-who-killed-5-people-had-grudge-thai-army-accuses-cambodia-of-breaking-truce-singapore-live-news-021901116.html)
 - Jul 29 - [Justice Department files misconduct complaint against federal judge handling deportation case](https://www.yahoo.com/news/articles/justice-department-files-misconduct-complaint-011915497.html)
+- Jul 29 - [Young girls tied to series of unprovoked attacks in San Francisco](https://www.yahoo.com/news/articles/young-girls-tied-series-unprovoked-005344733.html)
 - Jul 28 - [Michigan Walmart customers used shopping carts and a gun to subdue a man who stabbed 11 people](https://www.yahoo.com/news/articles/michigan-walmart-customers-used-shopping-234458394.html)
-- Jul 28 - [Storm chaser Reed Timmer is in South Dakota tonight, hunting for a tornado](https://www.yahoo.com/news/articles/storm-chaser-reed-timmer-south-214826971.html)
 <!-- feed end -->
 
 ---
