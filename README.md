@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 29 - [Her Mother-In-Law Threatened To Sue, So She Called Dave Ramsey. His Advice? 'Give Somebody 10 Grand And Keep Her Tied Up Till She Dies'](https://finance.yahoo.com/news/her-mother-law-threatened-sue-230151701.html)
+- Jul 29 - [The unexpected side-effect of eating too much watermelon](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/unexpected-side-effect-eating-too-204113769.html)
+- Jul 29 - [Exclusive-New York gunman was flagged by security camera system before attack, sources say](https://www.yahoo.com/news/articles/exclusive-york-gunman-flagged-security-220412345.html)
+- Jul 29 - [Wife of Marine Corps veteran released from ICE custody after advocacy from GOP Senator's office](https://www.yahoo.com/news/articles/wife-marine-corps-veteran-released-213256477.html)
 - Jul 29 - [Some North Carolina Democratic lawmakers break from party to pass Republican priorities](https://www.yahoo.com/news/articles/north-carolina-democratic-lawmakers-break-211408817.html)
-- Jul 29 - [Dr. Ann McKee, who was mentioned in Manhattan gunman's note, speaks with CBS News](https://www.yahoo.com/news/videos/dr-ann-mckee-mentioned-manhattan-204851640.html)
-- Jul 29 - [Bessent warns China on Russian oil purchases that could bring 100% tariffs](https://www.yahoo.com/news/articles/bessent-warns-china-russian-oil-203759933.html)
-- Jul 29 - [Dr. Oz on the future of US healthcare: 'There is a new sheriff in town'](https://finance.yahoo.com/news/dr-oz-on-the-future-of-us-healthcare-there-is-a-new-sheriff-in-town-202833620.html)
-- Jul 29 - [Trump says Epstein ‘stole’ underage victim Virginia Giuffre from his Mar-a-Lago spa, leading to feud](https://www.yahoo.com/news/articles/trump-says-epstein-stole-underage-181659213.html)
 <!-- feed end -->
 
 ---
