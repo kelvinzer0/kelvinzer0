@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Trump's EU Deal 'Good For US Markets,' Say Experts: META, AAPL, PLTR Among Likely Winners — See Full List](https://finance.yahoo.com/news/trumps-eu-deal-good-us-203108606.html)
+- Jul 29 - [Some North Carolina Democratic lawmakers break from party to pass Republican priorities](https://www.yahoo.com/news/articles/north-carolina-democratic-lawmakers-break-211408817.html)
+- Jul 29 - [Dr. Ann McKee, who was mentioned in Manhattan gunman's note, speaks with CBS News](https://www.yahoo.com/news/videos/dr-ann-mckee-mentioned-manhattan-204851640.html)
+- Jul 29 - [Bessent warns China on Russian oil purchases that could bring 100% tariffs](https://www.yahoo.com/news/articles/bessent-warns-china-russian-oil-203759933.html)
 - Jul 29 - [Dr. Oz on the future of US healthcare: 'There is a new sheriff in town'](https://finance.yahoo.com/news/dr-oz-on-the-future-of-us-healthcare-there-is-a-new-sheriff-in-town-202833620.html)
 - Jul 29 - [Trump says Epstein ‘stole’ underage victim Virginia Giuffre from his Mar-a-Lago spa, leading to feud](https://www.yahoo.com/news/articles/trump-says-epstein-stole-underage-181659213.html)
-- Jul 29 - [People Are Just Learning The Difference Between "Grey" Vs. "Gray" Because Of This Viral Tweet](https://www.yahoo.com/lifestyle/articles/people-just-learning-difference-between-191201645.html)
-- Jul 29 - [Is SMCI Stock the Next NVIDIA, and Is It Worth Buying?](https://finance.yahoo.com/news/smci-stock-next-nvidia-worth-190000501.html)
 <!-- feed end -->
 
 ---
