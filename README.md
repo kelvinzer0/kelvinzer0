@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 28 - [‘It’s falling’: Kansas City woman warned friends day before fatal Family Dollar collapse](https://www.yahoo.com/news/videos/falling-kansas-city-woman-warned-222007475.html)
-- Jul 28 - [Tariff evaders may face criminal charges under Trump's DOJ](https://finance.yahoo.com/video/tariff-evaders-may-face-criminal-210813419.html)
-- Jul 28 - ['Anti-vax' woman died after refusing chemotherapy](https://www.yahoo.com/news/articles/anti-vax-woman-died-refusing-210609973.html)
-- Jul 28 - [Ethereum's Future Is Now, Co-Founder Lubin Says](https://finance.yahoo.com/video/ethereums-future-now-co-founder-202227247.html)
-- Jul 28 - [2 customs officers plead guilty to allowing drugs to enter the US through their inspection lanes](https://www.yahoo.com/news/articles/2-customs-officers-plead-guilty-194643161.html)
+- Jul 29 - [States Are Fighting The Trump Admin’s Ability To Use SNAP Data Against Immigrants](https://www.yahoo.com/news/articles/states-fighting-trump-admin-ability-020614940.html)
+- Jul 29 - [24 Times Patients Said "Actually, I Think I Know My Body Better" And Literally Saved Their Own Lives](https://health.yahoo.com/conditions/cancer/breast-cancer/articles/24-times-patients-said-actually-013102480.html)
+- Jul 29 - [Justice Department files misconduct complaint against federal judge handling deportation case](https://www.yahoo.com/news/articles/justice-department-files-misconduct-complaint-011915497.html)
+- Jul 29 - [U.S. citizen told "you have no rights" during immigration arrest speaks out](https://www.yahoo.com/news/articles/u-citizen-told-no-rights-010600507.html)
+- Jul 28 - [Michigan Walmart customers used shopping carts and a gun to subdue a man who stabbed 11 people](https://www.yahoo.com/news/articles/michigan-walmart-customers-used-shopping-234458394.html)
 <!-- feed end -->
 
 ---
