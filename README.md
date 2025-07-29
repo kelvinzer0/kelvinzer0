@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Trump says Epstein ‘stole’ underage victim Virginia Giuffre from his Mar-a-Lago spa leading to feud](https://www.yahoo.com/news/articles/trump-says-epstein-stole-underage-181347720.html)
-- Jul 29 - [Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024](https://www.yahoo.com/news/articles/pete-buttigieg-says-democratic-party-175506220.html)
-- Jul 29 - [Maine police chief says Jamaican officer arrested by ICE had cleared federal check for work in May](https://www.yahoo.com/news/articles/maine-police-chief-says-jamaican-173242370.html)
-- Jul 29 - [Maxwell offers to testify before Congress but with major conditions, including immunity](https://www.yahoo.com/news/articles/maxwell-offers-testify-congress-major-164335296.html)
-- Jul 29 - [This Scottish Protester's Simple Words About Donald Trump Are Going Viral](https://www.yahoo.com/news/articles/scottish-protesters-simple-words-donald-170058632.html)
+- Jul 29 - [Wall Street drifts as a busy week rolls on](https://www.yahoo.com/news/videos/wall-street-drifts-busy-week-201638853.html)
+- Jul 29 - [Trump says Epstein ‘stole’ underage victim Virginia Giuffre from his Mar-a-Lago spa, leading to feud](https://www.yahoo.com/news/articles/trump-says-epstein-stole-underage-181659213.html)
+- Jul 29 - [Judge weighs challenge to Trump mandates as domestic violence groups warn of shutdown risk](https://www.yahoo.com/news/articles/judge-weighs-challenge-trump-mandates-195132336.html)
+- Jul 29 - [AIPAC Says It’s Too Early to Say if They Don’t Support Starving Kids](https://www.yahoo.com/news/articles/aipac-says-too-early-don-193735021.html)
+- Jul 29 - [Bodycam video appears to show Florida officer aiming a gun at Black student during brutal arrest](https://www.yahoo.com/news/articles/bodycam-video-appears-show-florida-192536368.html)
 <!-- feed end -->
 
 ---
