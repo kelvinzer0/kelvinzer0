@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Jul 29 - [Nigeria kidnappers kill 35 hostages even after ransom paid](https://www.yahoo.com/news/articles/nigeria-kidnappers-kill-38-hostages-141507585.html)
-- Jul 29 - ["Our gardens were destroyed when new tramline caused them to collapse"](https://www.yahoo.com/news/videos/gardens-were-destroyed-tramline-caused-080401043.html)
-- Jul 29 - [This Is, Officially, the 3rd Priciest Stock Market in Over 150 Years -- and There's No Mistaking What Comes Next for Stocks, Based on History](https://finance.yahoo.com/news/officially-3rd-priciest-stock-market-070600593.html)
-- Jul 29 - [Average rent surges to £2,712 in London and £1,365 across UK](https://uk.finance.yahoo.com/news/uk-rent-prices-average-london-rightmove-050030068.html)
 - Jul 29 - [Nvidia orders 300,000 H20 chips from TSMC due to robust China demand, sources say](https://finance.yahoo.com/news/exclusive-nvidia-orders-300-000-030423386.html)
+- Jul 29 - [Bangkok shooting: Gunman who killed 5 people 'had grudge'; Thai army accuses Cambodia of breaking truce: Singapore live news](https://www.yahoo.com/news/live/bangkok-shooting-gunman-who-killed-5-people-had-grudge-thai-army-accuses-cambodia-of-breaking-truce-singapore-live-news-021901116.html)
+- Jul 29 - [Justice Department files misconduct complaint against federal judge handling deportation case](https://www.yahoo.com/news/articles/justice-department-files-misconduct-complaint-011915497.html)
+- Jul 29 - [Schumer blasts Trump’s EU deal: ‘It’s fake!’](https://www.yahoo.com/news/articles/schumer-blasts-trump-eu-deal-000019522.html)
 <!-- feed end -->
 
 ---
