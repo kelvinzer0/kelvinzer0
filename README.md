@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Toa Payoh fire: 7, including child and fireman, brought to hospital; gunman in Bangkok shooting 'had grudge', Thai police said: Singapore live news](https://www.yahoo.com/news/live/toa-payoh-fire-7-including-child-and-fireman-brought-to-hospital-gunman-in-bangkok-shooting-had-grudge-thai-police-said-singapore-live-news-095556157.html)
+- Jul 29 - [Air India audit finds 51 safety lapses, from unapproved simulators to training gaps](https://finance.yahoo.com/news/air-india-audit-finds-51-103239418.html)
+- Jul 29 - [The world’s first passenger jet was a luxurious death trap. Now it’s been brought back to life](https://www.yahoo.com/news/articles/world-first-passenger-jet-luxurious-100943709.html)
 - Jul 29 - [Nigeria kidnappers kill 35 hostages even after ransom paid](https://www.yahoo.com/news/articles/nigeria-kidnappers-kill-38-hostages-141507585.html)
-- Jul 29 - [Intense rain creates a waterfall in Hong Kong](https://www.yahoo.com/news/videos/intense-rain-creates-waterfall-hong-092457422.html)
-- Jul 29 - [One Bay restaurants closed, seven get high-priority violations in state inspections](https://www.yahoo.com/news/articles/one-bay-restaurants-closed-seven-085914903.html)
-- Jul 29 - [BlackRock's Marchioni on European Assets, CapEx](https://finance.yahoo.com/video/blackrocks-marchioni-european-assets-capex-085533234.html)
+- Jul 29 - [Outrage in China after reports exploitative images of Chinese women shared in Telegram groups](https://tech.yahoo.com/social-media/articles/outrage-china-reports-exploitative-images-084159039.html)
+- Jul 29 - [Nvidia orders 300,000 H20 chips from TSMC due to robust China demand, sources say](https://finance.yahoo.com/news/exclusive-nvidia-orders-300-000-030423386.html)
 <!-- feed end -->
 
 ---
