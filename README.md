@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Niinami on Trade Deal Impact on Japan Businesses](https://finance.yahoo.com/video/niinami-trade-deal-impact-japan-034205022.html)
+- Jul 29 - [Nvidia orders 300,000 H20 chips from TSMC due to robust China demand, sources say](https://finance.yahoo.com/news/exclusive-nvidia-orders-300-000-030423386.html)
+- Jul 29 - [Bangkok shooting: Gunman who killed 5 people 'had grudge'; Thai army accuses Cambodia of breaking truce: Singapore live news](https://www.yahoo.com/news/live/bangkok-shooting-gunman-who-killed-5-people-had-grudge-thai-army-accuses-cambodia-of-breaking-truce-singapore-live-news-021901116.html)
 - Jul 29 - [Justice Department files misconduct complaint against federal judge handling deportation case](https://www.yahoo.com/news/articles/justice-department-files-misconduct-complaint-011915497.html)
 - Jul 28 - [Michigan Walmart customers used shopping carts and a gun to subdue a man who stabbed 11 people](https://www.yahoo.com/news/articles/michigan-walmart-customers-used-shopping-234458394.html)
-- Jul 28 - [‘It’s falling’: Kansas City woman warned friends day before fatal Family Dollar collapse](https://www.yahoo.com/news/videos/falling-kansas-city-woman-warned-222007475.html)
 - Jul 28 - [Storm chaser Reed Timmer is in South Dakota tonight, hunting for a tornado](https://www.yahoo.com/news/articles/storm-chaser-reed-timmer-south-214826971.html)
 <!-- feed end -->
 
