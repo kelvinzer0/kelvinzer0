@@ -29,8 +29,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Trump gets tariffs; Americans get price hikes](https://finance.yahoo.com/news/trump-gets-tariffs-americans-price-180747457.html)
-- Jul 29 - [Italy’s Wood Supply Chain Urges Swift Trade Deal With South American Trade Bloc](https://finance.yahoo.com/news/italy-wood-supply-chain-urges-175704694.html)
+- Jul 29 - [Trump says Epstein ‘stole’ underage victim Virginia Giuffre from his Mar-a-Lago spa leading to feud](https://www.yahoo.com/news/articles/trump-says-epstein-stole-underage-181347720.html)
+- Jul 29 - [Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024](https://www.yahoo.com/news/articles/pete-buttigieg-says-democratic-party-175506220.html)
 - Jul 29 - [Maine police chief says Jamaican officer arrested by ICE had cleared federal check for work in May](https://www.yahoo.com/news/articles/maine-police-chief-says-jamaican-173242370.html)
 - Jul 29 - [Maxwell offers to testify before Congress but with major conditions, including immunity](https://www.yahoo.com/news/articles/maxwell-offers-testify-congress-major-164335296.html)
 - Jul 29 - [This Scottish Protester's Simple Words About Donald Trump Are Going Viral](https://www.yahoo.com/news/articles/scottish-protesters-simple-words-donald-170058632.html)
