@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [UN court denies Mladic request for release on health grounds](https://www.yahoo.com/news/articles/un-court-denies-mladic-request-165147967.html)
-- Jul 29 - [China says tariff pause extended with U.S.](https://www.yahoo.com/news/videos/china-says-tariff-pause-extended-163931380.html)
-- Jul 29 - [‘ICE Barbie’ Kristie Noem dons favorite cowboy gear as she visits Argentina to work on new visa deal](https://www.yahoo.com/news/articles/ice-barbie-kristie-noem-dons-030544944.html)
-- Jul 29 - [Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024](https://www.yahoo.com/news/articles/pete-buttigieg-says-democratic-party-175506220.html)
-- Jul 29 - [Blackstone executive Wesley LePatner among 4 killed in shooting at firm's NYC office](https://finance.yahoo.com/news/blackstone-executive-wesley-lepatner-among-4-killed-in-shooting-at-firms-nyc-office-131102017.html)
+- Jul 29 - [Trump gets tariffs; Americans get price hikes](https://finance.yahoo.com/news/trump-gets-tariffs-americans-price-180747457.html)
+- Jul 29 - [Italy’s Wood Supply Chain Urges Swift Trade Deal With South American Trade Bloc](https://finance.yahoo.com/news/italy-wood-supply-chain-urges-175704694.html)
+- Jul 29 - [Maine police chief says Jamaican officer arrested by ICE had cleared federal check for work in May](https://www.yahoo.com/news/articles/maine-police-chief-says-jamaican-173242370.html)
+- Jul 29 - [Maxwell offers to testify before Congress but with major conditions, including immunity](https://www.yahoo.com/news/articles/maxwell-offers-testify-congress-major-164335296.html)
+- Jul 29 - [This Scottish Protester's Simple Words About Donald Trump Are Going Viral](https://www.yahoo.com/news/articles/scottish-protesters-simple-words-donald-170058632.html)
 <!-- feed end -->
 
 ---
