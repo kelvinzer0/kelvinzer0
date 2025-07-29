@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Jul 29 - [Blackstone executive Wesley LePatner among 4 killed in shooting at firm's NYC office](https://finance.yahoo.com/news/blackstone-executive-wesley-lepatner-among-4-killed-in-shooting-at-firms-nyc-office-131102017.html)
-- Jul 29 - [Jordan, UAE and other countries air drop aid into Gaza](https://www.yahoo.com/news/videos/jordan-uae-other-countries-air-130724654.html)
-- Jul 29 - [Who are the victims in the New York City shooting? What we know](https://www.yahoo.com/news/articles/victims-york-city-shooting-know-130142246.html)
-- Jul 29 - [Major cyber attack closes hundreds of pharmacies across Russia](https://www.yahoo.com/news/articles/major-cyber-attack-closes-hundreds-125722686.html)
-- Jul 29 - [5 Approaches to Money That Set Buffett & the Wealthy Apart From the Middle Class](https://finance.yahoo.com/news/5-ways-wealthy-warren-buffett-120219584.html)
+- Jul 29 - [Former WEWS meteorologist Mark Johnson finds employment with WKYC parent company TEGNA](https://www.yahoo.com/news/articles/former-wews-meteorologist-mark-johnson-123612561.html)
+- Jul 29 - [The world’s first passenger jet was a luxurious death trap. Now it’s been brought back to life](https://www.yahoo.com/news/articles/world-first-passenger-jet-luxurious-100943709.html)
+- Jul 29 - [‘Smell the house from the street’: OKC neighborhood fed up with problem property](https://www.yahoo.com/news/articles/smell-house-street-okc-neighborhood-111500317.html)
+- Jul 29 - [Your net worth will 'go crazy' once you pass this money milestone - here's the magic number and how to hit it](https://finance.yahoo.com/news/net-worth-crazy-once-pass-091500673.html)
 <!-- feed end -->
 
 ---
