@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [How Spanish olive exporters survived Trump tariffs since 2017](https://finance.yahoo.com/video/spanish-olive-exporters-survived-trump-145232667.html)
+- Jul 29 - [UN court denies Mladic request for release on health grounds](https://www.yahoo.com/news/articles/un-court-denies-mladic-request-165147967.html)
+- Jul 29 - [China says tariff pause extended with U.S.](https://www.yahoo.com/news/videos/china-says-tariff-pause-extended-163931380.html)
+- Jul 29 - [‘ICE Barbie’ Kristie Noem dons favorite cowboy gear as she visits Argentina to work on new visa deal](https://www.yahoo.com/news/articles/ice-barbie-kristie-noem-dons-030544944.html)
+- Jul 29 - [Pete Buttigieg says Democratic Party’s attachment to two words handed Trump the White House in 2024](https://www.yahoo.com/news/articles/pete-buttigieg-says-democratic-party-175506220.html)
 - Jul 29 - [Blackstone executive Wesley LePatner among 4 killed in shooting at firm's NYC office](https://finance.yahoo.com/news/blackstone-executive-wesley-lepatner-among-4-killed-in-shooting-at-firms-nyc-office-131102017.html)
-- Jul 29 - [Scientists Witnessed the Birth of a Monster—8.3 Billion Years After It Happened](https://www.yahoo.com/news/articles/scientists-witnessed-birth-monster-8-130000841.html)
-- Jul 29 - [Former WEWS meteorologist Mark Johnson finds employment with WKYC parent company TEGNA](https://www.yahoo.com/news/articles/former-wews-meteorologist-mark-johnson-123612561.html)
-- Jul 29 - [Hurricane Iona has strengthened into a Category 3 storm: See path](https://www.yahoo.com/news/articles/hurricane-iona-strengthened-category-3-115914053.html)
 <!-- feed end -->
 
 ---
