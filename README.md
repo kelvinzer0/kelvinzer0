@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Wall Street drifts as a busy week rolls on](https://www.yahoo.com/news/videos/wall-street-drifts-busy-week-201638853.html)
+- Jul 29 - [Trump's EU Deal 'Good For US Markets,' Say Experts: META, AAPL, PLTR Among Likely Winners — See Full List](https://finance.yahoo.com/news/trumps-eu-deal-good-us-203108606.html)
+- Jul 29 - [Dr. Oz on the future of US healthcare: 'There is a new sheriff in town'](https://finance.yahoo.com/news/dr-oz-on-the-future-of-us-healthcare-there-is-a-new-sheriff-in-town-202833620.html)
 - Jul 29 - [Trump says Epstein ‘stole’ underage victim Virginia Giuffre from his Mar-a-Lago spa, leading to feud](https://www.yahoo.com/news/articles/trump-says-epstein-stole-underage-181659213.html)
-- Jul 29 - [Judge weighs challenge to Trump mandates as domestic violence groups warn of shutdown risk](https://www.yahoo.com/news/articles/judge-weighs-challenge-trump-mandates-195132336.html)
-- Jul 29 - [AIPAC Says It’s Too Early to Say if They Don’t Support Starving Kids](https://www.yahoo.com/news/articles/aipac-says-too-early-don-193735021.html)
-- Jul 29 - [Bodycam video appears to show Florida officer aiming a gun at Black student during brutal arrest](https://www.yahoo.com/news/articles/bodycam-video-appears-show-florida-192536368.html)
+- Jul 29 - [People Are Just Learning The Difference Between "Grey" Vs. "Gray" Because Of This Viral Tweet](https://www.yahoo.com/lifestyle/articles/people-just-learning-difference-between-191201645.html)
+- Jul 29 - [Is SMCI Stock the Next NVIDIA, and Is It Worth Buying?](https://finance.yahoo.com/news/smci-stock-next-nvidia-worth-190000501.html)
 <!-- feed end -->
 
 ---
