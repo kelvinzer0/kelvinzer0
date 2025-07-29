@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Jul 29 - [How Spanish olive exporters survived Trump tariffs since 2017](https://finance.yahoo.com/video/spanish-olive-exporters-survived-trump-145232667.html)
-- Jul 29 - [Union Pacific, Norfolk Southern to merge in $85 billion deal](https://finance.yahoo.com/news/union-pacific-norfolk-southern-merge-144713163.html)
-- Jul 29 - [Pastor and wife charged with $1m fraud after ‘God told him’ to sell crypto to his flock and spent it on vacations](https://www.yahoo.com/news/articles/pastor-wife-charged-1m-fraud-162250421.html)
-- Jul 29 - [Cuban private sector overtakes state in retail sales value amid economic crisis](https://finance.yahoo.com/news/cuban-private-sector-overtakes-state-140836795.html)
-- Jul 29 - [New York City Shooter Mentioned CTE, Believed To Have Targeted NFL, Says Mayor Eric Adams](https://www.yahoo.com/entertainment/videos/york-city-shooter-mentioned-cte-140000133.html)
+- Jul 29 - [Blackstone executive Wesley LePatner among 4 killed in shooting at firm's NYC office](https://finance.yahoo.com/news/blackstone-executive-wesley-lepatner-among-4-killed-in-shooting-at-firms-nyc-office-131102017.html)
+- Jul 29 - [Scientists Witnessed the Birth of a Monster—8.3 Billion Years After It Happened](https://www.yahoo.com/news/articles/scientists-witnessed-birth-monster-8-130000841.html)
+- Jul 29 - [Former WEWS meteorologist Mark Johnson finds employment with WKYC parent company TEGNA](https://www.yahoo.com/news/articles/former-wews-meteorologist-mark-johnson-123612561.html)
+- Jul 29 - [Hurricane Iona has strengthened into a Category 3 storm: See path](https://www.yahoo.com/news/articles/hurricane-iona-strengthened-category-3-115914053.html)
 <!-- feed end -->
 
 ---
