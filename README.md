@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [States Are Fighting The Trump Admin’s Ability To Use SNAP Data Against Immigrants](https://www.yahoo.com/news/articles/states-fighting-trump-admin-ability-020614940.html)
-- Jul 29 - [24 Times Patients Said "Actually, I Think I Know My Body Better" And Literally Saved Their Own Lives](https://health.yahoo.com/conditions/cancer/breast-cancer/articles/24-times-patients-said-actually-013102480.html)
+- Jul 29 - [Niinami on Trade Deal Impact on Japan Businesses](https://finance.yahoo.com/video/niinami-trade-deal-impact-japan-034205022.html)
 - Jul 29 - [Justice Department files misconduct complaint against federal judge handling deportation case](https://www.yahoo.com/news/articles/justice-department-files-misconduct-complaint-011915497.html)
-- Jul 29 - [U.S. citizen told "you have no rights" during immigration arrest speaks out](https://www.yahoo.com/news/articles/u-citizen-told-no-rights-010600507.html)
 - Jul 28 - [Michigan Walmart customers used shopping carts and a gun to subdue a man who stabbed 11 people](https://www.yahoo.com/news/articles/michigan-walmart-customers-used-shopping-234458394.html)
+- Jul 28 - [‘It’s falling’: Kansas City woman warned friends day before fatal Family Dollar collapse](https://www.yahoo.com/news/videos/falling-kansas-city-woman-warned-222007475.html)
+- Jul 28 - [Storm chaser Reed Timmer is in South Dakota tonight, hunting for a tornado](https://www.yahoo.com/news/articles/storm-chaser-reed-timmer-south-214826971.html)
 <!-- feed end -->
 
 ---
