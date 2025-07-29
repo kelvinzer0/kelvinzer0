@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Poland says 32 people detained and suspected of coordinating with Russia for sabotage](https://www.yahoo.com/news/articles/poland-says-32-people-detained-122705918.html)
-- Jul 29 - [Gunman who killed 4 at Manhattan office building was targeting NFL headquarters, mayor says](https://www.yahoo.com/news/articles/gunman-killed-4-manhattan-office-120358118.html)
-- Jul 29 - [The world’s first passenger jet was a luxurious death trap. Now it’s been brought back to life](https://www.yahoo.com/news/articles/world-first-passenger-jet-luxurious-100943709.html)
-- Jul 29 - [Minister claims Farage is on the side of Jimmy Savile over plans to oppose online safety laws](https://www.yahoo.com/news/articles/cabinet-minister-says-nigel-farage-080936465.html)
-- Jul 29 - [Nigeria kidnappers kill 35 hostages even after ransom paid](https://www.yahoo.com/news/articles/nigeria-kidnappers-kill-38-hostages-141507585.html)
+- Jul 29 - [Blackstone executive Wesley LePatner among 4 killed in shooting at firm's NYC office](https://finance.yahoo.com/news/blackstone-executive-wesley-lepatner-among-4-killed-in-shooting-at-firms-nyc-office-131102017.html)
+- Jul 29 - [Jordan, UAE and other countries air drop aid into Gaza](https://www.yahoo.com/news/videos/jordan-uae-other-countries-air-130724654.html)
+- Jul 29 - [Who are the victims in the New York City shooting? What we know](https://www.yahoo.com/news/articles/victims-york-city-shooting-know-130142246.html)
+- Jul 29 - [Major cyber attack closes hundreds of pharmacies across Russia](https://www.yahoo.com/news/articles/major-cyber-attack-closes-hundreds-125722686.html)
+- Jul 29 - [5 Approaches to Money That Set Buffett & the Wealthy Apart From the Middle Class](https://finance.yahoo.com/news/5-ways-wealthy-warren-buffett-120219584.html)
 <!-- feed end -->
 
 ---
