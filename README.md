@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Tsunami crashes over coastline in Russia's Far East region](https://www.yahoo.com/news/videos/tsunami-crashes-over-coastline-russias-042310766.html)
 - Jul 30 - [Video appears to show Putin's bodyguards armed with a handheld anti-drone interceptor](https://www.yahoo.com/news/articles/video-appears-show-putins-bodyguards-040852250.html)
 - Jul 30 - [The Latest: Powerful waves hit Russian islands and Japan after 8.8-magnitude earthquake](https://www.yahoo.com/news/articles/latest-tsunami-hits-russia-kuril-023011016.html)
 - Jul 29 - [Whoa! Trump's Epstein crashout shows 'no good answer' for damning receipts, says Carville](https://www.yahoo.com/news/videos/whoa-trumps-epstein-crashout-shows-233930967.html)
 - Jul 29 - ["It's Bad": An Eye Doctor Is Warning People About This Common Habit That Could Ruin Your Eyesight](https://health.yahoo.com/your-body/eye-health/articles/bad-eye-doctor-warning-people-233102521.html)
-- Jul 29 - [Bitcoin mining giant Marathon Digital reveals shocking earnings](https://finance.yahoo.com/news/bitcoin-mining-giant-marathon-digital-231516140.html)
 <!-- feed end -->
 
 ---
