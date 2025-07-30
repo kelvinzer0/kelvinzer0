@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Jul 30 - [Dow Jones Futures: Market Rally Falls As Fed, Microsoft, Meta Loom; 7 Early Movers](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-fed-microsoft-meta-earnings/?src=A00220&yptr=yahoo)
-- Jul 30 - [Voices: Will Keir Starmer’s decision to recognise Palestine shore up his waning popularity?](https://www.yahoo.com/news/articles/voices-keir-starmer-decision-recognise-104138620.html)
-- Jul 30 - [Gary Neville hits out at Rachel Reeves over national insurance hike](https://www.yahoo.com/news/articles/gary-neville-hits-rachel-reeves-084303791.html)
-- Jul 30 - [Video appears to show Putin's bodyguards armed with a handheld anti-drone interceptor](https://www.yahoo.com/news/articles/video-appears-show-putins-bodyguards-040852250.html)
-- Jul 30 - [The Latest: Powerful waves travel across Pacific after 8.8-magnitude earthquake](https://www.yahoo.com/news/articles/latest-tsunami-hits-russia-kuril-023011016.html)
+- Jul 30 - ['Magnificent Seven' stocks: Buy Nvidia, skip Apple](https://finance.yahoo.com/video/magnificent-seven-stocks-buy-nvidia-113046015.html)
+- Jul 30 - [China unveils groundbreaking technology that could revolutionize how nations approach their policies: 'It's a necessity'](https://www.yahoo.com/news/articles/china-unveils-groundbreaking-technology-could-103018610.html)
+- Jul 30 - [Heather Haley leaves WVLT for the University of Tennessee: 'It's like I’m hitting reset'](https://www.yahoo.com/news/articles/heather-haley-leaves-wvlt-university-071822486.html)
+- Jul 30 - [The Most Anticipated Stock Split of 2025 May Be Announced Later Today](https://finance.yahoo.com/news/most-anticipated-stock-split-2025-070600064.html)
 <!-- feed end -->
 
 ---
