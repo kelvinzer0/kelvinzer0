@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Massive loggerhead sea turtle full of eggs returns to ocean after treatment in Florida](https://www.yahoo.com/news/articles/massive-loggerhead-sea-turtle-full-165401414.html)
-- Jul 30 - [Tesla Signed A $16 Billion Deal For Samsung AI Chips. It Just Inked Another Deal To Sidestep China.](https://www.investors.com/news/tesla-lg-energy-elon-musk-stock-market-sidestep-china-deal/?src=A00220&yptr=yahoo)
+- Jul 30 - [Fed policy decision generates most governor dissents since 1993](https://finance.yahoo.com/news/fed-policy-decision-generates-most-181158224.html)
+- Jul 30 - [Radioactive wasp nest found at site where US once made nuclear bombs](https://www.yahoo.com/news/articles/radioactive-wasp-nest-found-where-173908854.html)
 - Jul 30 - [Huge hidden flood bursts through the Greenland ice sheet surface](https://www.yahoo.com/news/videos/huge-hidden-flood-bursts-greenland-162440947.html)
-- Jul 30 - [China calls for more engagement with US, warns against confrontation](https://www.yahoo.com/news/articles/china-calls-more-engagement-us-145923296.html)
-- Jul 30 - [Walmart is selling a $130 outdoor security camera for just $37, and buyers love the 'crystal-clear' picture quality](https://shopping.yahoo.com/home-garden/outdoor/articles/walmart-selling-130-outdoor-security-144500354.html)
+- Jul 30 - [Video shows sea lions diving off cliff after massive earthquake strikes Russia's far east](https://www.yahoo.com/news/articles/video-shows-sea-lions-diving-155633319.html)
+- Jul 30 - [We’re in our 60s, retired, have $70,000 in savings and Social Security of about $3,780/month. How can we survive?](https://finance.yahoo.com/news/60s-retired-70-000-savings-153600589.html)
 <!-- feed end -->
 
 ---
