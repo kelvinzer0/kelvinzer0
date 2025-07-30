@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 29 - [Her Mother-In-Law Threatened To Sue, So She Called Dave Ramsey. His Advice? 'Give Somebody 10 Grand And Keep Her Tied Up Till She Dies'](https://finance.yahoo.com/news/her-mother-law-threatened-sue-230151701.html)
-- Jul 29 - [The unexpected side-effect of eating too much watermelon](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/unexpected-side-effect-eating-too-204113769.html)
-- Jul 29 - [Exclusive-New York gunman was flagged by security camera system before attack, sources say](https://www.yahoo.com/news/articles/exclusive-york-gunman-flagged-security-220412345.html)
-- Jul 29 - [Wife of Marine Corps veteran released from ICE custody after advocacy from GOP Senator's office](https://www.yahoo.com/news/articles/wife-marine-corps-veteran-released-213256477.html)
-- Jul 29 - [Some North Carolina Democratic lawmakers break from party to pass Republican priorities](https://www.yahoo.com/news/articles/north-carolina-democratic-lawmakers-break-211408817.html)
+- Jul 30 - [Maxwell offers to testify before Congress but with major conditions, including immunity](https://www.yahoo.com/news/articles/maxwell-offers-testify-congress-major-164335296.html)
+- Jul 29 - [Whoa! Trump's Epstein crashout shows 'no good answer' for damning receipts, says Carville](https://www.yahoo.com/news/videos/whoa-trumps-epstein-crashout-shows-233930967.html)
+- Jul 29 - ["It's Bad": An Eye Doctor Is Warning People About This Common Habit That Could Ruin Your Eyesight](https://health.yahoo.com/your-body/eye-health/articles/bad-eye-doctor-warning-people-233102521.html)
+- Jul 29 - [Germany prepares huge orders for jets, armored vehicles, sources say](https://finance.yahoo.com/news/germany-prepares-huge-orders-jets-225308875.html)
+- Jul 29 - [Witnesses: Transgender woman, friends assaulted at Barton Springs; man hurt intervening](https://www.yahoo.com/news/articles/witnesses-transgender-woman-friends-assaulted-222710886.html)
 <!-- feed end -->
 
 ---
