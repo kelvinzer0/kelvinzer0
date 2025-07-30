@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Maxwell offers to testify before Congress but with major conditions, including immunity](https://www.yahoo.com/news/articles/maxwell-offers-testify-congress-major-164335296.html)
+- Jul 30 - [Dow Jones Futures: Market Rally Falls As Fed, Microsoft, Meta Loom; 5 Earnings Movers Late](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-fed-microsoft-meta-earnings/?src=A00220&yptr=yahoo)
+- Jul 30 - [Couple received 'death stare' from suspect in Devil's Den Park killings: Podcaster | Banfield](https://www.yahoo.com/news/videos/couple-received-death-stare-suspect-023608074.html)
+- Jul 30 - [The Latest: Tsunami hits Russia’s islands and Japan after 8.8-magnitude earthquake off Russia](https://www.yahoo.com/news/articles/latest-tsunami-hits-russia-kuril-023011016.html)
+- Jul 30 - [High in India’s Himalayan mountains, yak herders struggle to survive a warming world](https://www.yahoo.com/news/articles/high-india-himalayan-mountains-yak-011756884.html)
 - Jul 29 - [Whoa! Trump's Epstein crashout shows 'no good answer' for damning receipts, says Carville](https://www.yahoo.com/news/videos/whoa-trumps-epstein-crashout-shows-233930967.html)
-- Jul 29 - ["It's Bad": An Eye Doctor Is Warning People About This Common Habit That Could Ruin Your Eyesight](https://health.yahoo.com/your-body/eye-health/articles/bad-eye-doctor-warning-people-233102521.html)
-- Jul 29 - [Germany prepares huge orders for jets, armored vehicles, sources say](https://finance.yahoo.com/news/germany-prepares-huge-orders-jets-225308875.html)
-- Jul 29 - [Witnesses: Transgender woman, friends assaulted at Barton Springs; man hurt intervening](https://www.yahoo.com/news/articles/witnesses-transgender-woman-friends-assaulted-222710886.html)
 <!-- feed end -->
 
 ---
