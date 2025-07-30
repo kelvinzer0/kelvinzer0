@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Gulf Breeze High School teacher arrested for alleged romantic relationship with student](https://www.yahoo.com/news/articles/gulf-breeze-high-school-teacher-143041860.html)
+- Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
 - Jul 30 - [Ukraine arrests air force officer for spying on Western-supplied fighter jets](https://www.yahoo.com/news/articles/ukraine-arrests-air-force-officer-135230872.html)
-- Jul 30 - [Maddow Blog | Trump plays a radical game by personally screening nominees for four-star generals](https://www.yahoo.com/news/articles/maddow-blog-trump-plays-radical-135026652.html)
-- Jul 30 - [Trump meets with candidates for four-star general in break with tradition, White House acknowledges](https://www.yahoo.com/news/articles/trump-meets-candidates-four-star-130839554.html)
-- Jul 30 - [Logitech has made progress in shifting production from China, CEO says](https://finance.yahoo.com/news/logitech-made-progress-shifting-production-130731725.html)
-- Jul 30 - [Ukraine's special operators used to dodge artillery shells. Now they're trying to survive Russian drones.](https://www.yahoo.com/news/articles/ukraines-special-operators-used-dodge-130351206.html)
+- Jul 30 - [Terrifying video shows moments giant alligator swims up behind 12-year-old wakeboarder in Texas](https://www.yahoo.com/news/articles/terrifying-video-shows-moments-giant-135157436.html)
+- Jul 30 - [A US man goes on trial in Indonesia for allegedly selling porn videos online](https://www.yahoo.com/news/articles/us-man-goes-trial-indonesia-133524309.html)
 <!-- feed end -->
 
 ---
