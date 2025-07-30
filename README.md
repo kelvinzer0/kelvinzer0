@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Dow Jones Futures: Market Rally Falls As Fed, Microsoft, Meta Loom; 7 Early Movers](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-fed-microsoft-meta-earnings/?src=A00220&yptr=yahoo)
-- Jul 30 - ['Magnificent Seven' stocks: Buy Nvidia, skip Apple](https://finance.yahoo.com/video/magnificent-seven-stocks-buy-nvidia-113046015.html)
-- Jul 30 - [China unveils groundbreaking technology that could revolutionize how nations approach their policies: 'It's a necessity'](https://www.yahoo.com/news/articles/china-unveils-groundbreaking-technology-could-103018610.html)
-- Jul 30 - [Heather Haley leaves WVLT for the University of Tennessee: 'It's like I’m hitting reset'](https://www.yahoo.com/news/articles/heather-haley-leaves-wvlt-university-071822486.html)
-- Jul 30 - [The Most Anticipated Stock Split of 2025 May Be Announced Later Today](https://finance.yahoo.com/news/most-anticipated-stock-split-2025-070600064.html)
+- Jul 30 - [Rescue operation races to reach double Olympic champion Laura Dahlmeier after ‘serious’ injury in climbing accident](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
+- Jul 30 - [Authorities make startling discovery after passenger suffers animal bite mid-flight: 'It's crucial to identify, stop, and prevent such actions'](https://www.yahoo.com/news/articles/authorities-startling-discovery-passenger-suffers-104533964.html)
+- Jul 30 - [An 8.8 Magnitude Earthquake Hit Kamchatka, Russia. The Videos Are Wild](https://www.yahoo.com/news/articles/8-8-magnitude-earthquake-hit-092840086.html)
+- Jul 30 - [Pensacola area restaurant inspections: 5 receive high violations, from dead roaches to flying insects](https://www.yahoo.com/news/articles/pensacola-area-restaurant-inspections-5-090326403.html)
+- Jul 30 - [UN investigator says US sanctions over her criticism of Israel will seriously impact her life](https://www.yahoo.com/news/articles/un-investigator-says-us-sanctions-045928203.html)
 <!-- feed end -->
 
 ---
