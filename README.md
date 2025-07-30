@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Tsunami crashes over coastline in Russia's Far East region](https://www.yahoo.com/news/videos/tsunami-crashes-over-coastline-russias-042310766.html)
+- Jul 30 - [Dow Jones Futures: Market Rally Falls As Fed, Microsoft, Meta Loom; 7 Early Movers](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-fed-microsoft-meta-earnings/?src=A00220&yptr=yahoo)
+- Jul 30 - [Voices: Will Keir Starmer’s decision to recognise Palestine shore up his waning popularity?](https://www.yahoo.com/news/articles/voices-keir-starmer-decision-recognise-104138620.html)
+- Jul 30 - [Gary Neville hits out at Rachel Reeves over national insurance hike](https://www.yahoo.com/news/articles/gary-neville-hits-rachel-reeves-084303791.html)
 - Jul 30 - [Video appears to show Putin's bodyguards armed with a handheld anti-drone interceptor](https://www.yahoo.com/news/articles/video-appears-show-putins-bodyguards-040852250.html)
 - Jul 30 - [The Latest: Powerful waves travel across Pacific after 8.8-magnitude earthquake](https://www.yahoo.com/news/articles/latest-tsunami-hits-russia-kuril-023011016.html)
-- Jul 30 - [Trump Now “Seriously Considering” Pardon For Sean Combs Ahead Of Sentencing; White House Officially Says Nothing](https://www.yahoo.com/entertainment/articles/trump-now-seriously-considering-pardon-013444644.html)
-- Jul 29 - [San Diego International Airport to open new traffic route](https://www.yahoo.com/news/articles/san-diego-international-airport-open-235424645.html)
 <!-- feed end -->
 
 ---
