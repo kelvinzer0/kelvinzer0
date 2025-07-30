@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Rescue operation races to reach double Olympic champion Laura Dahlmeier after ‘serious’ injury in climbing accident](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
-- Jul 30 - [Authorities make startling discovery after passenger suffers animal bite mid-flight: 'It's crucial to identify, stop, and prevent such actions'](https://www.yahoo.com/news/articles/authorities-startling-discovery-passenger-suffers-104533964.html)
-- Jul 30 - [An 8.8 Magnitude Earthquake Hit Kamchatka, Russia. The Videos Are Wild](https://www.yahoo.com/news/articles/8-8-magnitude-earthquake-hit-092840086.html)
-- Jul 30 - [Pensacola area restaurant inspections: 5 receive high violations, from dead roaches to flying insects](https://www.yahoo.com/news/articles/pensacola-area-restaurant-inspections-5-090326403.html)
-- Jul 30 - [UN investigator says US sanctions over her criticism of Israel will seriously impact her life](https://www.yahoo.com/news/articles/un-investigator-says-us-sanctions-045928203.html)
+- Jul 30 - [Ukraine arrests air force officer for spying on Western-supplied fighter jets](https://www.yahoo.com/news/articles/ukraine-arrests-air-force-officer-135230872.html)
+- Jul 30 - [Maddow Blog | Trump plays a radical game by personally screening nominees for four-star generals](https://www.yahoo.com/news/articles/maddow-blog-trump-plays-radical-135026652.html)
+- Jul 30 - [Trump meets with candidates for four-star general in break with tradition, White House acknowledges](https://www.yahoo.com/news/articles/trump-meets-candidates-four-star-130839554.html)
+- Jul 30 - [Logitech has made progress in shifting production from China, CEO says](https://finance.yahoo.com/news/logitech-made-progress-shifting-production-130731725.html)
+- Jul 30 - [Ukraine's special operators used to dodge artillery shells. Now they're trying to survive Russian drones.](https://www.yahoo.com/news/articles/ukraines-special-operators-used-dodge-130351206.html)
 <!-- feed end -->
 
 ---
