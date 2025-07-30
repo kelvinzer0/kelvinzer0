@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [My five days on the road with Trump revealed a man in complete control](https://www.yahoo.com/news/articles/five-days-road-trump-revealed-160307419.html)
+- Jul 30 - [Massive loggerhead sea turtle full of eggs returns to ocean after treatment in Florida](https://www.yahoo.com/news/articles/massive-loggerhead-sea-turtle-full-165401414.html)
 - Jul 30 - [Tesla Signed A $16 Billion Deal For Samsung AI Chips. It Just Inked Another Deal To Sidestep China.](https://www.investors.com/news/tesla-lg-energy-elon-musk-stock-market-sidestep-china-deal/?src=A00220&yptr=yahoo)
-- Jul 30 - [MAGA Official Says Everyone Investigating Him for Porn Should Resign](https://www.yahoo.com/news/articles/maga-official-says-everyone-investigating-143356770.html)
-- Jul 30 - [India reacts to Trump's 25% tariff on exports to US](https://finance.yahoo.com/news/instant-view-india-reacts-trumps-141419537.html)
-- Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
+- Jul 30 - [Huge hidden flood bursts through the Greenland ice sheet surface](https://www.yahoo.com/news/videos/huge-hidden-flood-bursts-greenland-162440947.html)
+- Jul 30 - [China calls for more engagement with US, warns against confrontation](https://www.yahoo.com/news/articles/china-calls-more-engagement-us-145923296.html)
+- Jul 30 - [Walmart is selling a $130 outdoor security camera for just $37, and buyers love the 'crystal-clear' picture quality](https://shopping.yahoo.com/home-garden/outdoor/articles/walmart-selling-130-outdoor-security-144500354.html)
 <!-- feed end -->
 
 ---
