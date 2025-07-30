@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Videos show damage from magnitude 8.8 quake in Russia's Far East](https://www.yahoo.com/news/videos/videos-show-damage-magnitude-8-051032056.html)
-- Jul 30 - [Tsunami crashes over coastline in Russia's Far East region](https://www.yahoo.com/news/videos/tsunami-crashes-over-coastline-russias-042310766.html)
+- Jul 30 - [UN investigator says US sanctions over her criticism of Israel will seriously impact her life](https://www.yahoo.com/news/articles/un-investigator-says-us-sanctions-045928203.html)
 - Jul 30 - [Video appears to show Putin's bodyguards armed with a handheld anti-drone interceptor](https://www.yahoo.com/news/articles/video-appears-show-putins-bodyguards-040852250.html)
 - Jul 30 - [The Latest: Powerful waves travel across Pacific after 8.8-magnitude earthquake](https://www.yahoo.com/news/articles/latest-tsunami-hits-russia-kuril-023011016.html)
 - Jul 30 - [Elon Musk Said He Would 'Walk The Line Personally' Following $16.5 Billion Samsung Deal, Is this A Return To 'Wartime CEO' Mode?](https://finance.yahoo.com/news/elon-musk-said-walk-line-013114740.html)
+- Jul 29 - [San Diego International Airport to open new traffic route](https://www.yahoo.com/news/articles/san-diego-international-airport-open-235424645.html)
 <!-- feed end -->
 
 ---
