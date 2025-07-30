@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Jerome Powell, King Of Understatement, Says Trump's Visit Was 'Nice'](https://www.yahoo.com/news/articles/jerome-powell-king-understatement-says-205526636.html)
+- Jul 30 - [Fact Check: Video of people fleeing tsunami wasn't taken after 2025 Russia earthquake](https://www.yahoo.com/news/articles/fact-check-video-people-fleeing-203000930.html)
 - Jul 30 - [Tesla Signed A $16 Billion Deal For Samsung AI Chips. It Just Inked Another Deal To Sidestep China.](https://www.investors.com/news/tesla-lg-energy-elon-musk-stock-market-sidestep-china-deal/?src=A00220&yptr=yahoo)
-- Jul 30 - [Trump backs Israel and rebukes Starmer over Palestinian state recognition](https://www.yahoo.com/news/articles/trump-backs-israel-rebukes-starmer-200208802.html)
-- Jul 30 - [China’s Appetite for Nvidia H20 AI Chips Expands](https://tech.yahoo.com/ai/articles/china-appetite-nvidia-h20-ai-193405608.html)
-- Jul 30 - [Israeli minister proposes annexing areas in Gaza to pressure Hamas](https://www.yahoo.com/news/articles/israeli-minister-proposes-annexing-areas-190824051.html)
-- Jul 30 - [Watch live: Fed Chair Powell holds press conference after interest rate decision](https://finance.yahoo.com/news/watch-live-fed-chair-powell-holds-press-conference-after-interest-rate-decision-182229195.html)
+- Jul 30 - [Man Pours Bucket of Gasoline on Elected Official and Sets Him on Fire Outside Office, Police Say](https://www.yahoo.com/news/articles/man-pours-bucket-gasoline-elected-195617017.html)
+- Jul 30 - [Gavin Newsom Is Going Viral For Shutting Down JD Vance With One Single Map](https://www.yahoo.com/news/articles/gavin-newsom-just-shut-jd-185313765.html)
 <!-- feed end -->
 
 ---
