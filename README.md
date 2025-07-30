@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 30 - [Tesla Signed A $16 Billion Deal For Samsung AI Chips. It Just Inked Another Deal To Sidestep China.](https://www.investors.com/news/tesla-lg-energy-elon-musk-stock-market-sidestep-china-deal/?src=A00220&yptr=yahoo)
+- Jul 30 - [Trump backs Israel and rebukes Starmer over Palestinian state recognition](https://www.yahoo.com/news/articles/trump-backs-israel-rebukes-starmer-200208802.html)
+- Jul 30 - [China’s Appetite for Nvidia H20 AI Chips Expands](https://tech.yahoo.com/ai/articles/china-appetite-nvidia-h20-ai-193405608.html)
+- Jul 30 - [Israeli minister proposes annexing areas in Gaza to pressure Hamas](https://www.yahoo.com/news/articles/israeli-minister-proposes-annexing-areas-190824051.html)
 - Jul 30 - [Watch live: Fed Chair Powell holds press conference after interest rate decision](https://finance.yahoo.com/news/watch-live-fed-chair-powell-holds-press-conference-after-interest-rate-decision-182229195.html)
-- Jul 30 - [Radioactive wasp nest found at site where US once made nuclear bombs](https://www.yahoo.com/news/articles/radioactive-wasp-nest-found-where-173908854.html)
-- Jul 30 - [Archer Aviation (ACHR) Stock Drops Sharply as Traders Hedge Bets](https://finance.yahoo.com/news/archer-aviation-achr-stock-drops-164906607.html)
-- Jul 30 - [Huge hidden flood bursts through the Greenland ice sheet surface](https://www.yahoo.com/news/videos/huge-hidden-flood-bursts-greenland-162440947.html)
-- Jul 30 - [Video shows sea lions diving off cliff after massive earthquake strikes Russia's far east](https://www.yahoo.com/news/articles/video-shows-sea-lions-diving-155633319.html)
 <!-- feed end -->
 
 ---
