@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Standing just behind the president, MAGA Rep. Derrick Van Orden appeared to awkwardly mouth, “I’m here.”](https://www.yahoo.com/news/videos/standing-just-behind-president-maga-211757713.html)
-- Jul 30 - [Trump White House Says ‘Moronic’ Sydney Sweeney Criticism Shows Why He Won: Voters Are ‘Tired of This Bulls—t’ | Video](https://www.yahoo.com/news/articles/trump-white-house-says-moronic-205150416.html)
-- Jul 30 - [This Georgia family claims their $500K home was stolen after it was sold using a forged deed — now they’re suing](https://www.yahoo.com/news/articles/georgia-family-claims-500k-home-204500806.html)
-- Jul 30 - [Man Pours Bucket of Gasoline on Elected Official and Sets Him on Fire Outside Office, Police Say](https://www.yahoo.com/news/articles/man-pours-bucket-gasoline-elected-195617017.html)
-- Jul 30 - [Watch live: Fed Chair Powell holds press conference after interest rate decision](https://finance.yahoo.com/news/watch-live-fed-chair-powell-holds-press-conference-after-interest-rate-decision-182229195.html)
+- Jul 30 - [Dave Ramsey Says 'Almost Every Time It Makes Sense To Take It Early' —Tells 61-Year-Old To Claim Social Security At 62 And Invest 'Every Dollar'](https://finance.yahoo.com/news/dave-ramsey-says-almost-every-223322752.html)
+- Jul 30 - [Judge dismisses lawsuit filed by Alec Baldwin for malicious prosecution in fatal 'Rust' set shooting](https://www.yahoo.com/news/articles/judge-dismisses-lawsuit-filed-alec-222758018.html)
+- Jul 30 - [Judge orders Trump administration to explain why order to restore Voice of America wasn't followed](https://www.yahoo.com/news/articles/judge-orders-trump-administration-explain-222742043.html)
+- Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
+- Jul 30 - [A Woman Was Found in Burning Car with Bleach in Throat — and She Was Set to Testify Against One of the Suspects](https://www.yahoo.com/news/articles/woman-found-burning-car-bleach-215116052.html)
 <!-- feed end -->
 
 ---
