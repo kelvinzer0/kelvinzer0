@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [CF man convicted of repeated child sexual assault](https://www.yahoo.com/news/articles/cf-man-convicted-repeated-child-035900607.html)
 - Jul 30 - [Judge orders Trump administration to explain why order to restore Voice of America wasn't followed](https://www.yahoo.com/news/articles/judge-orders-trump-administration-explain-222742043.html)
 - Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
 - Jul 30 - [A Woman Was Found in Burning Car with Bleach in Throat — and She Was Set to Testify Against One of the Suspects](https://www.yahoo.com/news/articles/woman-found-burning-car-bleach-215116052.html)
-- Jul 30 - [Scientists Say A Major Earthquake Fault Line Is Waking Up](https://www.yahoo.com/news/articles/scientists-major-earthquake-fault-line-182658961.html)
+- Jul 30 - [MAGA Rep. Derrick Van Orden appeared to awkwardly mouth, “I’m here.”](https://www.yahoo.com/news/videos/standing-just-behind-president-maga-211757713.html)
+- Jul 30 - [Pakistan says it wins US tariff deal; Trump cites oil reserves pact](https://finance.yahoo.com/news/trump-says-us-pakistan-concluded-203429642.html)
 <!-- feed end -->
 
 ---
