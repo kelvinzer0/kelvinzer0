@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Tribal gaming revenues hit record $43.9B as growth streak continues](https://finance.yahoo.com/news/tribal-gaming-revenues-hit-record-180714629.html)
+- Jul 31 - [Bitcoin Consolidates After FOMC Meeting: What Does Powell's Decision Mean For ETH, XRP, Dogecoin?](https://finance.yahoo.com/news/bitcoin-consolidates-fomc-meeting-does-183040636.html)
+- Jul 31 - [Magnitude 4.3 earthquake recorded near Los Angeles on July 31](https://www.yahoo.com/news/articles/magnitude-4-3-earthquake-recorded-172851359.html)
 - Jul 31 - [A 4th man accused in a fatal dogpile outside a Milwaukee hotel pleads guilty to felony murder](https://www.yahoo.com/news/articles/4th-man-accused-fatal-dogpile-171128723.html)
+- Jul 31 - [Despite Making $118 Million In NBA, Trevor Ariza Says He's Broke And Asked The Court To Lower His Child Support Payments](https://www.yahoo.com/entertainment/articles/despite-making-118-million-nba-164831567.html)
 - Jul 31 - [Tennessee death row inmate can be executed without deactivating implanted defibrillator, court rules](https://www.yahoo.com/news/articles/tennessee-death-row-inmate-executed-162109920.html)
-- Jul 31 - [Father’s throat slashed, daughter attacked while camping in GA](https://www.yahoo.com/news/articles/father-throat-slashed-daughter-attacked-143820614.html)
-- Jul 31 - [33 Infuriating Photos That Show How Scary Late-Stage Capitalism Has Gotten](https://www.yahoo.com/news/articles/33-infuriating-photos-show-scary-133102697.html)
 <!-- feed end -->
 
 ---
