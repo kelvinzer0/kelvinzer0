@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [This rare flu complication is on the rise in otherwise healthy children](https://www.yahoo.com/news/articles/rare-flu-complication-rise-otherwise-191727235.html)
-- Jul 31 - [Death toll from Russian overnight attacks on Kiev climbs to 15](https://www.yahoo.com/news/articles/death-toll-russian-overnight-attacks-190841726.html)
 - Jul 31 - [Severe turbulence on Delta flight forces emergency landing and sends more than two dozen on board to hospitals](https://www.yahoo.com/news/articles/more-two-dozen-passengers-taken-045752757.html)
 - Jul 31 - [Construction of Trump's $200 million White House ballroom to begin in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
 - Jul 31 - [Coast Guard says rotten wood and poor inspections led to deadly schooner mast collapse](https://www.yahoo.com/news/articles/coast-guard-says-rotten-wood-183149612.html)
+- Jul 31 - [Doctors Are Begging People Trying To Lose Weight To Stop Doing This One Thing With Fruit](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/doctors-begging-people-trying-lose-175000489.html)
+- Jul 31 - [Despite Making $118 Million In NBA, Trevor Ariza Says He's Broke And Asked The Court To Lower His Child Support Payments](https://www.yahoo.com/entertainment/articles/despite-making-118-million-nba-164831567.html)
 <!-- feed end -->
 
 ---
