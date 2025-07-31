@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Stock Market Today: Dow On China Trade Deal Hopes; Meta, Microsoft Surge On Earnings (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-china-trade-deal-trump-inflation-data-meta-microsoft-msft/?src=A00220&yptr=yahoo)
-- Jul 31 - [Medvedev reminds Trump of Russia's Doomsday nuclear strike capabilities as war of words escalates](https://www.yahoo.com/news/articles/medvedev-reminds-trump-russias-doomsday-093837700.html)
-- Jul 31 - [Bitcoin Creator Satoshi Nakamoto Once Said He Had No Time To 'Convince' Non-Believers: Why Coinbase CEO Brought It Up After 15 Years](https://finance.yahoo.com/news/bitcoin-creator-satoshi-nakamoto-once-033109156.html)
-- Jul 30 - [Judge orders Trump administration to explain why order to restore Voice of America wasn't followed](https://www.yahoo.com/news/articles/judge-orders-trump-administration-explain-222742043.html)
-- Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
+- Jul 31 - [6 Things to Do in the Morning If You Have High Blood Pressure, According to Experts](https://health.yahoo.com/conditions/cardiovascular-health/articles/6-things-morning-high-blood-133000822.html)
+- Jul 31 - [Alligator gets the last laugh after taking shoe thrown at him: Watch video](https://www.yahoo.com/news/articles/alligator-gets-last-laugh-taking-132006283.html)
+- Jul 31 - [One of world's largest offshore wind farms approved](https://www.yahoo.com/news/articles/one-worlds-largest-offshore-wind-131338853.html)
+- Jul 31 - [Tribal canoe journey disrupted by tsunami advisory](https://www.yahoo.com/news/articles/tribal-canoe-journey-disrupted-tsunami-121555054.html)
+- Jul 31 - [Men accused of staging phony car crashes for insurance payouts: Queens DA](https://www.yahoo.com/news/articles/men-accused-staging-phony-car-120402898.html)
 <!-- feed end -->
 
 ---
