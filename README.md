@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Fed's preferred inflation gauge shows price increases accelerated in June amid tariff uncertainty](https://finance.yahoo.com/news/feds-preferred-inflation-gauge-shows-price-increases-accelerated-in-june-amid-tariff-uncertainty-124028246.html)
+- Jul 31 - [Stock Market Today: Dow On China Trade Deal Hopes; Meta, Microsoft Surge On Earnings (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-china-trade-deal-trump-inflation-data-meta-microsoft-msft/?src=A00220&yptr=yahoo)
 - Jul 31 - [Medvedev reminds Trump of Russia's Doomsday nuclear strike capabilities as war of words escalates](https://www.yahoo.com/news/articles/medvedev-reminds-trump-russias-doomsday-093837700.html)
-- Jul 31 - [Cambodia's Hun Sen at the helm in border conflict with Thailand](https://www.yahoo.com/news/articles/cambodias-hun-sen-helm-border-054011699.html)
+- Jul 31 - [Bitcoin Creator Satoshi Nakamoto Once Said He Had No Time To 'Convince' Non-Believers: Why Coinbase CEO Brought It Up After 15 Years](https://finance.yahoo.com/news/bitcoin-creator-satoshi-nakamoto-once-033109156.html)
 - Jul 30 - [Judge orders Trump administration to explain why order to restore Voice of America wasn't followed](https://www.yahoo.com/news/articles/judge-orders-trump-administration-explain-222742043.html)
 - Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
 <!-- feed end -->
