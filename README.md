@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Trump's watered-down copper tariffs almost crush Comex premium](https://finance.yahoo.com/news/trumps-watered-down-copper-tariffs-011503255.html)
-- Jul 31 - [Goodwill Industries partners with Google for free AI training course](https://www.yahoo.com/news/articles/goodwill-industries-partners-google-free-003527787.html)
-- Jul 30 - [Prediction: This Artificial Intelligence (AI) Stock Will Outperform Nvidia by 2030](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-223000651.html)
+- Jul 31 - [An Israeli military official details expansive Israeli humanitarian operation in Gaza](https://www.yahoo.com/news/articles/israeli-military-official-details-expansive-031009249.html)
+- Jul 30 - [WATCH: Haleiwa Harbor sees dramatic action, water drops 10 to 15 ft](https://www.yahoo.com/news/articles/watch-haleiwa-harbor-sees-dramatic-232309217.html)
 - Jul 30 - [Judge orders Trump administration to explain why order to restore Voice of America wasn't followed](https://www.yahoo.com/news/articles/judge-orders-trump-administration-explain-222742043.html)
 - Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
+- Jul 30 - [A Woman Was Found in Burning Car with Bleach in Throat — and She Was Set to Testify Against One of the Suspects](https://www.yahoo.com/news/articles/woman-found-burning-car-bleach-215116052.html)
 <!-- feed end -->
 
 ---
