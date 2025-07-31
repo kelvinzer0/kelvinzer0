@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 30 - [Dave Ramsey Says 'Almost Every Time It Makes Sense To Take It Early' —Tells 61-Year-Old To Claim Social Security At 62 And Invest 'Every Dollar'](https://finance.yahoo.com/news/dave-ramsey-says-almost-every-223322752.html)
-- Jul 30 - [Judge dismisses lawsuit filed by Alec Baldwin for malicious prosecution in fatal 'Rust' set shooting](https://www.yahoo.com/news/articles/judge-dismisses-lawsuit-filed-alec-222758018.html)
+- Jul 31 - [Trump's watered-down copper tariffs almost crush Comex premium](https://finance.yahoo.com/news/trumps-watered-down-copper-tariffs-011503255.html)
+- Jul 31 - [Goodwill Industries partners with Google for free AI training course](https://www.yahoo.com/news/articles/goodwill-industries-partners-google-free-003527787.html)
+- Jul 30 - [Prediction: This Artificial Intelligence (AI) Stock Will Outperform Nvidia by 2030](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-223000651.html)
 - Jul 30 - [Judge orders Trump administration to explain why order to restore Voice of America wasn't followed](https://www.yahoo.com/news/articles/judge-orders-trump-administration-explain-222742043.html)
 - Jul 30 - [Double Olympic champion Laura Dahlmeier dies in climbing accident aged 31, according to her management](https://www.yahoo.com/news/articles/rescue-operation-races-reach-double-115730005.html)
-- Jul 30 - [A Woman Was Found in Burning Car with Bleach in Throat — and She Was Set to Testify Against One of the Suspects](https://www.yahoo.com/news/articles/woman-found-burning-car-bleach-215116052.html)
 <!-- feed end -->
 
 ---
