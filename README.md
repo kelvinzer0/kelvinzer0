@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Severe turbulence on Delta flight forces emergency landing and sends more than two dozen on board to hospitals](https://www.yahoo.com/news/articles/more-two-dozen-passengers-taken-045752757.html)
-- Jul 31 - [Construction of Trump's $200 million White House ballroom to begin in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
-- Jul 31 - [Coast Guard says rotten wood and poor inspections led to deadly schooner mast collapse](https://www.yahoo.com/news/articles/coast-guard-says-rotten-wood-183149612.html)
+- Jul 31 - [Jet2 says it ‘does not endorse’ White House deportation video featuring viral Jess Glynne clip](https://www.yahoo.com/news/articles/jet2-says-does-not-endorse-194926091.html)
+- Jul 31 - [Fox News Had Only 3 Minutes of Epstein Coverage in the Last 4 Days – and 85 Minutes of Sydney Sweeney’s Jeans Ad](https://www.yahoo.com/news/articles/fox-news-had-only-3-211405890.html)
+- Jul 31 - [Sean 'Diddy' Combs asks judge to throw out guilty verdicts or grant him a new trial](https://www.yahoo.com/news/articles/sean-diddy-combs-asks-judge-193727868.html)
+- Jul 31 - [Trump to start building $200 million White House ballroom in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
 - Jul 31 - [Doctors Are Begging People Trying To Lose Weight To Stop Doing This One Thing With Fruit](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/doctors-begging-people-trying-lose-175000489.html)
-- Jul 31 - [Despite Making $118 Million In NBA, Trevor Ariza Says He's Broke And Asked The Court To Lower His Child Support Payments](https://www.yahoo.com/entertainment/articles/despite-making-118-million-nba-164831567.html)
 <!-- feed end -->
 
 ---
