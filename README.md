@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Stock Market Today: Indexes Trim Gains, Copper Plunges Again; Meta, Carvana Build Alternate Entries (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-china-trade-deal-trump-inflation-data-meta-microsoft-msft/?src=A00220&yptr=yahoo)
+- Jul 31 - [Tribal gaming revenues hit record $43.9B as growth streak continues](https://finance.yahoo.com/news/tribal-gaming-revenues-hit-record-180714629.html)
+- Jul 31 - [A 4th man accused in a fatal dogpile outside a Milwaukee hotel pleads guilty to felony murder](https://www.yahoo.com/news/articles/4th-man-accused-fatal-dogpile-171128723.html)
+- Jul 31 - [Tennessee death row inmate can be executed without deactivating implanted defibrillator, court rules](https://www.yahoo.com/news/articles/tennessee-death-row-inmate-executed-162109920.html)
 - Jul 31 - [Father’s throat slashed, daughter attacked while camping in GA](https://www.yahoo.com/news/articles/father-throat-slashed-daughter-attacked-143820614.html)
-- Jul 31 - [Roger Penske sells a third of Indianapolis Motor Speedway and IndyCar to Fox](https://sports.yahoo.com/article/roger-penske-sells-third-indianapolis-142501867.html)
-- Jul 31 - [Cardiologists Are Begging You To Eat Less of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-less-high-132500509.html)
-- Jul 31 - [Alligator gets the last laugh after taking shoe thrown at him: Watch video](https://www.yahoo.com/news/articles/alligator-gets-last-laugh-taking-132006283.html)
+- Jul 31 - [33 Infuriating Photos That Show How Scary Late-Stage Capitalism Has Gotten](https://www.yahoo.com/news/articles/33-infuriating-photos-show-scary-133102697.html)
 <!-- feed end -->
 
 ---
