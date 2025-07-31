@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Jul 31 - [Jet2 says it ‘does not endorse’ White House deportation video featuring viral Jess Glynne clip](https://www.yahoo.com/news/articles/jet2-says-does-not-endorse-194926091.html)
-- Jul 31 - [Fox News Had Only 3 Minutes of Epstein Coverage in the Last 4 Days – and 85 Minutes of Sydney Sweeney’s Jeans Ad](https://www.yahoo.com/news/articles/fox-news-had-only-3-211405890.html)
+- Jul 31 - [Vodka seltzers mislabeled as energy drinks trigger product recall](https://www.yahoo.com/news/articles/energy-drinks-recalled-us-fda-123508541.html)
 - Jul 31 - [Sean 'Diddy' Combs asks judge to throw out guilty verdicts or grant him a new trial](https://www.yahoo.com/news/articles/sean-diddy-combs-asks-judge-193727868.html)
 - Jul 31 - [Trump to start building $200 million White House ballroom in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
 - Jul 31 - [Doctors Are Begging People Trying To Lose Weight To Stop Doing This One Thing With Fruit](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/doctors-begging-people-trying-lose-175000489.html)
+- Jul 31 - [A 4th man accused in a fatal dogpile outside a Milwaukee hotel pleads guilty to felony murder](https://www.yahoo.com/news/articles/4th-man-accused-fatal-dogpile-171128723.html)
 <!-- feed end -->
 
 ---
