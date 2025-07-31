@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jul 31 - [Stock Market Today: Indexes Trim Gains, Copper Plunges Again; Meta, Carvana Build Alternate Entries (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-china-trade-deal-trump-inflation-data-meta-microsoft-msft/?src=A00220&yptr=yahoo)
 - Jul 31 - [Father’s throat slashed, daughter attacked while camping in GA](https://www.yahoo.com/news/articles/father-throat-slashed-daughter-attacked-143820614.html)
 - Jul 31 - [Roger Penske sells a third of Indianapolis Motor Speedway and IndyCar to Fox](https://sports.yahoo.com/article/roger-penske-sells-third-indianapolis-142501867.html)
 - Jul 31 - [Cardiologists Are Begging You To Eat Less of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-less-high-132500509.html)
 - Jul 31 - [Alligator gets the last laugh after taking shoe thrown at him: Watch video](https://www.yahoo.com/news/articles/alligator-gets-last-laugh-taking-132006283.html)
-- Jul 31 - [Charlotte woman missing after leaving her office in Ballantyne: CMPD](https://www.yahoo.com/news/articles/charlotte-woman-missing-leaving-her-130127046.html)
 <!-- feed end -->
 
 ---
