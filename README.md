@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Stock Market Today: Dow Slides As Investors Run For the Exists; A Power Stock Shines (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-trump-tariffs-amazon-amzn-stock/?src=A00220&yptr=yahoo)
-- Aug 01 - [President Trump fires BLS commissioner after July jobs report disappoints](https://finance.yahoo.com/news/president-trump-fires-bls-commissioner-after-july-jobs-report-disappoints-182118823.html)
-- Aug 01 - [Cathie Wood buys $11 million of surging AI stock](https://finance.yahoo.com/news/cathie-wood-buys-11-million-171700959.html)
-- Aug 01 - [Doctor warns of hand symptom that can reveal advanced lung cancer](https://www.yahoo.com/news/articles/doctor-warns-hand-symptom-reveal-155633548.html)
-- Aug 01 - [Bill Gates says AI is moving at a speed that ‘surprises’ even him—and he says the experts can’t tell if it’ll replace humans in one year or ten](https://www.yahoo.com/news/articles/bill-gates-says-ai-moving-154556150.html)
+- Aug 01 - [Stock Market Today: Dow Loses 542 Points As Indexes See Red; Even Nvidia Falls](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-trump-tariffs-amazon-amzn-stock/?src=A00220&yptr=yahoo)
+- Aug 01 - [Manhunt launched after 4 killed in a shooting at a Montana bar](https://www.yahoo.com/news/articles/multiple-people-shot-montana-business-200415435.html)
+- Aug 01 - [There's a copperhead snake in my backyard: Can I kill it? Here's what SC state law says.](https://www.yahoo.com/news/articles/theres-copperhead-snake-backyard-kill-193746991.html)
+- Aug 01 - [BYD Just Blinked -- China's EV Throne Now Up for Grabs](https://finance.yahoo.com/news/byd-just-blinked-chinas-ev-193647719.html)
+- Aug 01 - [Scotland Waited Exactly Two Days After Trump Left To Do Something So Hilariously Petty](https://www.yahoo.com/news/articles/seriously-funny-scottish-government-announced-185251477.html)
 <!-- feed end -->
 
 ---
