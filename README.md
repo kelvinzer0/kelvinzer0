@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [France to halt Gaza arrivals pending probe into student's antisemitic posts](https://www.yahoo.com/news/articles/france-halt-gaza-arrivals-pending-091703170.html)
-- Aug 01 - [Jim Cramer Calls United Parcel Service Stock’s Plunge “Frightening”](https://finance.yahoo.com/news/jim-cramer-calls-united-parcel-033206408.html)
+- Aug 01 - [How Moscow might respond if Trump stops Russian oil to India](https://finance.yahoo.com/news/moscow-might-respond-trump-stops-103621156.html)
 - Aug 01 - [Trump hikes tariffs on Canada to 35%, announces rates from 10% to 40% for dozens of countries](https://finance.yahoo.com/news/trump-hikes-tariffs-on-canada-to-35-announces-rates-from-10-to-40-for-dozens-of-countries-000338109.html)
-- Jul 31 - [Missing Fremont girl may have run away to meet with online associates, police say](https://www.yahoo.com/news/articles/missing-fremont-girl-may-run-235750122.html)
-- Jul 31 - [Texas man indicted for fatally shooting Afghan refugee who had helped US troops defuse bombs](https://www.yahoo.com/news/articles/texas-man-indicted-fatally-shooting-224645544.html)
+- Jul 31 - [Sen. Elizabeth Warren falls on Senate floor as Republicans offer bipartisan assistance during Israel vote](https://www.yahoo.com/news/articles/sen-elizabeth-warren-falls-senate-214953684.html)
+- Jul 31 - [Sean 'Diddy' Combs asks judge to throw out guilty verdicts or grant him a new trial](https://www.yahoo.com/news/articles/sean-diddy-combs-asks-judge-193727868.html)
+- Jul 31 - [Trump to start building $200 million White House ballroom in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
 <!-- feed end -->
 
 ---
