@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Trump warned he would have to sell Mar-a-Lago, setting off ‘second-tier’ rant against ally Hawley over stock bill](https://www.yahoo.com/news/articles/trump-warned-sell-mar-lago-160722275.html)
+- Aug 01 - [Trump's America First biodiesel policy could cost US companies, consumers, trade groups warn](https://finance.yahoo.com/news/trumps-america-first-biodiesel-policy-170007962.html)
 - Aug 01 - [Common allergy medication’s risks outweigh its usefulness, experts say](https://www.yahoo.com/news/articles/common-allergy-medication-risks-outweigh-100045182.html)
+- Aug 01 - [Tesla driver dumbfounded after making shocking discovery on vehicle: 'I'm not an expert'](https://autos.yahoo.com/articles/tesla-driver-dumbfounded-making-shocking-140030301.html)
 - Aug 01 - [Putin says Russia's hypersonic missile has entered service and will be deployed in Belarus](https://www.yahoo.com/news/articles/putin-says-russias-hypersonic-missile-125954103.html)
 - Aug 01 - [L3Harris, Joby Aviation partner to develop military aircraft](https://finance.yahoo.com/news/l3harris-joby-aviation-partner-develop-123126059.html)
-- Aug 01 - [Tropical Storm Gil expected to become a hurricane Aug. 1: See tracker](https://www.yahoo.com/news/articles/tropical-storm-gil-expected-become-114246377.html)
 <!-- feed end -->
 
 ---
