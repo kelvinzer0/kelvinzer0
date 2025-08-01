@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Russia's rumored jet-powered versions of the Iranian Shahed are appearing in Ukraine's air defense reports](https://www.yahoo.com/news/articles/russias-rumored-jet-powered-versions-044252238.html)
+- Aug 01 - [Former Biden adviser told House panel he was set to receive $8 million if president won reelection](https://www.yahoo.com/news/articles/former-biden-adviser-told-house-030617979.html)
 - Aug 01 - [CEO Tim Cook says Apple ready to open its wallet to catch up in AI](https://finance.yahoo.com/news/ceo-tim-cook-says-apple-013730959.html)
 - Aug 01 - [Trump hikes tariffs on Canada to 35%, announces rates from 10% to 40% for dozens of countries](https://finance.yahoo.com/news/trump-hikes-tariffs-on-canada-to-35-announces-rates-from-10-to-40-for-dozens-of-countries-000338109.html)
 - Jul 31 - [Sen. Elizabeth Warren falls on Senate floor as Republicans offer bipartisan assistance during Israel vote](https://www.yahoo.com/news/articles/sen-elizabeth-warren-falls-senate-214953684.html)
-- Jul 31 - [Trump to start building $200 million White House ballroom in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
-- Jul 31 - [Coast Guard says rotten wood and poor inspections led to deadly schooner mast collapse](https://www.yahoo.com/news/articles/coast-guard-says-rotten-wood-183149612.html)
 <!-- feed end -->
 
 ---
