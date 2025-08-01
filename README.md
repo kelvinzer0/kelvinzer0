@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Stock Market Today: Dow Loses 542 Points As Indexes See Red; Even Nvidia Falls](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-trump-tariffs-amazon-amzn-stock/?src=A00220&yptr=yahoo)
-- Aug 01 - [Manhunt launched after 4 killed in a shooting at a Montana bar](https://www.yahoo.com/news/articles/multiple-people-shot-montana-business-200415435.html)
+- Aug 01 - [Lamborghini's new $380K hybrid supercar redefines luxury tech](https://finance.yahoo.com/video/lamborghinis-380k-hybrid-supercar-redefines-220300572.html)
+- Aug 01 - [An Ohio couple welcomes a baby boy from a nearly 31-year-old frozen embryo](https://www.yahoo.com/news/articles/ohio-couple-welcomes-baby-boy-200833529.html)
 - Aug 01 - [There's a copperhead snake in my backyard: Can I kill it? Here's what SC state law says.](https://www.yahoo.com/news/articles/theres-copperhead-snake-backyard-kill-193746991.html)
-- Aug 01 - [BYD Just Blinked -- China's EV Throne Now Up for Grabs](https://finance.yahoo.com/news/byd-just-blinked-chinas-ev-193647719.html)
-- Aug 01 - [Scotland Waited Exactly Two Days After Trump Left To Do Something So Hilariously Petty](https://www.yahoo.com/news/articles/seriously-funny-scottish-government-announced-185251477.html)
+- Aug 01 - [President Trump fires BLS commissioner after July jobs report disappoints](https://finance.yahoo.com/news/president-trump-fires-bls-commissioner-after-july-jobs-report-disappoints-182118823.html)
+- Aug 01 - [After a Long Day of Travel, She Woke Up Unable to Walk. Then Crawled to Her Car and Drove to the ER (Exclusive)](https://www.yahoo.com/news/articles/long-day-travel-she-woke-181908827.html)
 <!-- feed end -->
 
 ---
