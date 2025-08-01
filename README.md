@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Today in Chicago History: Strike suspends service on railroads, street cars and elevated lines](https://www.yahoo.com/news/articles/today-chicago-history-strike-suspends-114500922.html)
+- Aug 01 - [Putin says Russia's hypersonic missile has entered service and will be deployed in Belarus](https://www.yahoo.com/news/articles/putin-says-russias-hypersonic-missile-125954103.html)
+- Aug 01 - [EU brands turn to obscure customs clause to soften blow of Trump's tariffs](https://finance.yahoo.com/news/eu-brands-turn-obscure-customs-123512071.html)
+- Aug 01 - [Here’s how much Americans have stashed away in their retirement accounts by age — how does your nest egg stack up?](https://finance.yahoo.com/news/much-americans-stashed-away-retirement-113000560.html)
 - Aug 01 - [How Moscow might respond if Trump stops Russian oil to India](https://finance.yahoo.com/news/moscow-might-respond-trump-stops-103621156.html)
 - Aug 01 - [Common allergy medication’s risks outweigh its usefulness, experts say](https://www.yahoo.com/news/articles/common-allergy-medication-risks-outweigh-100045182.html)
-- Aug 01 - [Former Biden adviser told House panel he was set to receive $8 million if president won reelection](https://www.yahoo.com/news/articles/former-biden-adviser-told-house-030617979.html)
-- Aug 01 - [CEO Tim Cook says Apple ready to open its wallet to catch up in AI](https://finance.yahoo.com/news/ceo-tim-cook-says-apple-013730959.html)
 <!-- feed end -->
 
 ---
