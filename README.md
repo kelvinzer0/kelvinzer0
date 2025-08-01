@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Stock Market Today: Dow Tumbles 500 Points As Investors Flee; No Mercy For Nvidia (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-trump-tariffs-amazon-amzn-stock/?src=A00220&yptr=yahoo)
-- Aug 01 - [President Trump says he will fire BLS commissioner after July jobs report disappoints](https://finance.yahoo.com/news/president-trump-says-he-will-fire-bls-commissioner-after-july-jobs-report-disappoints-182118416.html)
-- Aug 01 - [Donald Trump praises registered sex offender invited to speak at White House event for children’s fitness](https://www.yahoo.com/news/articles/donald-trump-praises-registered-sex-181414603.html)
-- Aug 01 - [A trophy hunter killed a lion in Zimbabwe that was part of a research project, sparking anger](https://www.yahoo.com/news/articles/trophy-hunter-killed-lion-zimbabwe-180410197.html)
-- Aug 01 - [Trump says he’s ordered nuclear submarines re-positioned after Russian official’s ‘highly provocative’ remarks](https://www.yahoo.com/news/articles/trump-says-ordered-nuclear-submarines-173812306.html)
+- Aug 01 - [Stock Market Today: Dow Slides As Investors Run For the Exists; A Power Stock Shines (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-trump-tariffs-amazon-amzn-stock/?src=A00220&yptr=yahoo)
+- Aug 01 - [President Trump fires BLS commissioner after July jobs report disappoints](https://finance.yahoo.com/news/president-trump-fires-bls-commissioner-after-july-jobs-report-disappoints-182118823.html)
+- Aug 01 - [Cathie Wood buys $11 million of surging AI stock](https://finance.yahoo.com/news/cathie-wood-buys-11-million-171700959.html)
+- Aug 01 - [Doctor warns of hand symptom that can reveal advanced lung cancer](https://www.yahoo.com/news/articles/doctor-warns-hand-symptom-reveal-155633548.html)
+- Aug 01 - [Bill Gates says AI is moving at a speed that ‘surprises’ even him—and he says the experts can’t tell if it’ll replace humans in one year or ten](https://www.yahoo.com/news/articles/bill-gates-says-ai-moving-154556150.html)
 <!-- feed end -->
 
 ---
