@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Here’s how much Americans have stashed away in their retirement accounts by age — how does your nest egg stack up?](https://finance.yahoo.com/news/much-americans-stashed-away-retirement-113000560.html)
+- Aug 01 - [Putin says Russia's hypersonic missile has entered service and will be deployed in Belarus](https://www.yahoo.com/news/articles/putin-says-russias-hypersonic-missile-125954103.html)
+- Aug 01 - [Tropical Storm Gil expected to become a hurricane Aug. 1: See tracker](https://www.yahoo.com/news/articles/tropical-storm-gil-expected-become-114246377.html)
 - Aug 01 - [How Moscow might respond if Trump stops Russian oil to India](https://finance.yahoo.com/news/moscow-might-respond-trump-stops-103621156.html)
-- Aug 01 - [Common allergy medication’s risks outweigh its usefulness, experts say](https://www.yahoo.com/news/articles/common-allergy-medication-risks-outweigh-100045182.html)
-- Aug 01 - [Russian nuclear submarine base hit by tsunami](https://www.yahoo.com/news/articles/russian-nuclear-submarine-damaged-kamchatka-050000355.html)
-- Aug 01 - [India's R R Kabel says 'won't take extra hit' to supply to US; to shift exports after tariff impact](https://finance.yahoo.com/news/indias-r-r-kabel-increase-085658696.html)
+- Aug 01 - [Televangelist Joel Osteen, 62, Suffers Devastating Loss](https://www.yahoo.com/entertainment/articles/televangelist-joel-osteen-62-suffers-091915442.html)
+- Aug 01 - [Kamala Harris Stuns Colbert With Candid Admission: ‘To Hear You Say That ... Is Harrowing'](https://www.yahoo.com/news/articles/kamala-harris-stuns-colbert-candid-084233837.html)
 <!-- feed end -->
 
 ---
