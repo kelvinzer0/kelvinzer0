@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Former Biden adviser told House panel he was set to receive $8 million if president won reelection](https://www.yahoo.com/news/articles/former-biden-adviser-told-house-030617979.html)
 - Aug 01 - [Trump hikes tariffs on Canada to 35%, announces rates from 10% to 40% for dozens of countries](https://finance.yahoo.com/news/trump-hikes-tariffs-on-canada-to-35-announces-rates-from-10-to-40-for-dozens-of-countries-000338109.html)
-- Jul 31 - [Texas man indicted for fatally shooting Afghan refugee who had helped US troops defuse bombs](https://www.yahoo.com/news/articles/texas-man-indicted-fatally-shooting-224645544.html)
 - Jul 31 - [Sen. Elizabeth Warren falls on Senate floor as Republicans offer bipartisan assistance during Israel vote](https://www.yahoo.com/news/articles/sen-elizabeth-warren-falls-senate-214953684.html)
-- Jul 31 - [While senators rushed to Warren’s aid in a display of bipartisan camaraderie, MAGA pundits wasted no time mocking the moment.](https://www.yahoo.com/news/videos/democratic-senator-fall-sparked-rare-212542749.html)
-- Jul 31 - [A Texas researcher was held at an airport for over a week. Now he faces deportation](https://www.yahoo.com/news/articles/texas-researcher-held-airport-over-204054031.html)
+- Jul 31 - [Sean 'Diddy' Combs asks judge to throw out guilty verdicts or grant him a new trial](https://www.yahoo.com/news/articles/sean-diddy-combs-asks-judge-193727868.html)
+- Jul 31 - [Trump to start building $200 million White House ballroom in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
 <!-- feed end -->
 
 ---
