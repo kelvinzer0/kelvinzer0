@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 01 - [Today in Chicago History: Strike suspends service on railroads, street cars and elevated lines](https://www.yahoo.com/news/articles/today-chicago-history-strike-suspends-114500922.html)
 - Aug 01 - [How Moscow might respond if Trump stops Russian oil to India](https://finance.yahoo.com/news/moscow-might-respond-trump-stops-103621156.html)
-- Aug 01 - [Trump hikes tariffs on Canada to 35%, announces rates from 10% to 40% for dozens of countries](https://finance.yahoo.com/news/trump-hikes-tariffs-on-canada-to-35-announces-rates-from-10-to-40-for-dozens-of-countries-000338109.html)
-- Jul 31 - [Sen. Elizabeth Warren falls on Senate floor as Republicans offer bipartisan assistance during Israel vote](https://www.yahoo.com/news/articles/sen-elizabeth-warren-falls-senate-214953684.html)
-- Jul 31 - [Sean 'Diddy' Combs asks judge to throw out guilty verdicts or grant him a new trial](https://www.yahoo.com/news/articles/sean-diddy-combs-asks-judge-193727868.html)
-- Jul 31 - [Trump to start building $200 million White House ballroom in September](https://www.yahoo.com/news/articles/construction-trump-ballroom-white-house-183759941.html)
+- Aug 01 - [Common allergy medication’s risks outweigh its usefulness, experts say](https://www.yahoo.com/news/articles/common-allergy-medication-risks-outweigh-100045182.html)
+- Aug 01 - [Former Biden adviser told House panel he was set to receive $8 million if president won reelection](https://www.yahoo.com/news/articles/former-biden-adviser-told-house-030617979.html)
+- Aug 01 - [CEO Tim Cook says Apple ready to open its wallet to catch up in AI](https://finance.yahoo.com/news/ceo-tim-cook-says-apple-013730959.html)
 <!-- feed end -->
 
 ---
