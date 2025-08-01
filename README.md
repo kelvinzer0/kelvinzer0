@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [US payrolls revisions jolt markets, making Fed look behind the curve](https://finance.yahoo.com/news/us-payrolls-revisions-jolt-markets-171535025.html)
-- Aug 01 - [Trump warned he would have to sell Mar-a-Lago, setting off ‘second-tier’ rant against ally Hawley over stock bill](https://www.yahoo.com/news/articles/trump-warned-sell-mar-lago-160722275.html)
-- Aug 01 - [Common allergy medication’s risks outweigh its usefulness, experts say](https://www.yahoo.com/news/articles/common-allergy-medication-risks-outweigh-100045182.html)
-- Aug 01 - [Putin says Russia's hypersonic missile has entered service and will be deployed in Belarus](https://www.yahoo.com/news/articles/putin-says-russias-hypersonic-missile-125954103.html)
-- Aug 01 - [Tropical Storm Gil expected to become a hurricane Aug. 1: See tracker](https://www.yahoo.com/news/articles/tropical-storm-gil-expected-become-114246377.html)
+- Aug 01 - [Stock Market Today: Dow Tumbles 500 Points As Investors Flee; No Mercy For Nvidia (Live Coverage)](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-trump-tariffs-amazon-amzn-stock/?src=A00220&yptr=yahoo)
+- Aug 01 - [President Trump says he will fire BLS commissioner after July jobs report disappoints](https://finance.yahoo.com/news/president-trump-says-he-will-fire-bls-commissioner-after-july-jobs-report-disappoints-182118416.html)
+- Aug 01 - [Donald Trump praises registered sex offender invited to speak at White House event for children’s fitness](https://www.yahoo.com/news/articles/donald-trump-praises-registered-sex-181414603.html)
+- Aug 01 - [A trophy hunter killed a lion in Zimbabwe that was part of a research project, sparking anger](https://www.yahoo.com/news/articles/trophy-hunter-killed-lion-zimbabwe-180410197.html)
+- Aug 01 - [Trump says he’s ordered nuclear submarines re-positioned after Russian official’s ‘highly provocative’ remarks](https://www.yahoo.com/news/articles/trump-says-ordered-nuclear-submarines-173812306.html)
 <!-- feed end -->
 
 ---
