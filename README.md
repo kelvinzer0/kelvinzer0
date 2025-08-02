@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [There's a copperhead snake in my backyard: Can I kill it? Here's what SC state law says.](https://www.yahoo.com/news/articles/theres-copperhead-snake-backyard-kill-193746991.html)
-- Aug 01 - [Parents abandon 10-year-old son at Barcelona Airport so they wouldn't miss their flight: report](https://www.yahoo.com/news/articles/parents-abandon-10-old-son-192316115.html)
-- Aug 01 - [Scotland Waited Exactly Two Days After Trump Left To Do Something So Hilariously Petty](https://www.yahoo.com/news/articles/seriously-funny-scottish-government-announced-185251477.html)
-- Aug 01 - [President Trump fires BLS commissioner after July jobs report disappoints](https://finance.yahoo.com/news/president-trump-fires-bls-commissioner-after-july-jobs-report-disappoints-182118823.html)
-- Aug 01 - [New poll shows unexpected Dem as Vance’s toughest 2028 presidential rival](https://www.yahoo.com/news/articles/poll-shows-unexpected-dem-vance-173003301.html)
+- Aug 02 - [Mega Millions winning numbers for Aug. 1: $140 million jackpot](https://www.yahoo.com/news/articles/mega-millions-winning-numbers-aug-010041596.html)
+- Aug 02 - [Researchers stunned after discovering new insect size of bowling pin in Australia: 'Scary thing'](https://www.yahoo.com/news/articles/researchers-stunned-discovering-insect-size-004000381.html)
+- Aug 01 - [Britney Spears Body Cam: Police Say She 'Didn't Take Her Meds' Before In-Flight OUTBURST](https://www.yahoo.com/entertainment/videos/britney-spears-body-cam-police-230306454.html)
+- Aug 01 - [Ohio woman had Kia repossessed — so got revenge by taking dealership’s name. Now they’re in court. Who’s side are you on](https://www.yahoo.com/news/articles/ohio-woman-had-kia-repossessed-223000310.html)
+- Aug 01 - [Attacks in China and Japan raise concerns about xenophobia in both countries](https://www.yahoo.com/news/articles/japanese-woman-attacked-subway-china-202456852.html)
 <!-- feed end -->
 
 ---
