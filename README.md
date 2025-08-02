@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [‘This is not life’: Starvation breaks Gaza’s spirit as world argues over Palestinian statehood](https://www.yahoo.com/news/articles/not-life-starvation-breaks-gaza-080409867.html)
 - Aug 02 - [Trump goes off the deep end over bad jobs numbers; Fox panel stunned](https://www.yahoo.com/news/videos/trump-goes-off-deep-end-031733517.html)
-- Aug 02 - [Researchers stunned after discovering new insect size of bowling pin in Australia: 'Scary thing'](https://www.yahoo.com/news/articles/researchers-stunned-discovering-insect-size-004000381.html)
-- Aug 01 - [Ohio woman had Kia repossessed — so got revenge by taking dealership’s name. Now they’re in court. Who’s side are you on](https://www.yahoo.com/news/articles/ohio-woman-had-kia-repossessed-223000310.html)
-- Aug 01 - [Attacks in China and Japan raise concerns about xenophobia in both countries](https://www.yahoo.com/news/articles/japanese-woman-attacked-subway-china-202456852.html)
-- Aug 01 - [Seventh Central Florida 'Super Speeder' arrest made since law enacted July 1: 'Was I really going 105?'](https://www.yahoo.com/news/articles/seventh-central-florida-super-speeder-190641701.html)
+- Aug 01 - [Ghislaine Maxwell Moved to Lower-Security Texas Prison Where She’ll Be Housed With Two Famous Inmates](https://www.yahoo.com/news/articles/ghislaine-maxwell-moved-lower-security-234156072.html)
+- Aug 01 - [Britney Spears Body Cam: Police Say She 'Didn't Take Her Meds' Before In-Flight OUTBURST](https://www.yahoo.com/entertainment/videos/britney-spears-body-cam-police-230306454.html)
+- Aug 01 - [Portillo's crash: Officials release new details on 2-year-old's death, driver involved](https://www.yahoo.com/news/articles/portillos-crash-officials-release-details-212109753.html)
 <!-- feed end -->
 
 ---
