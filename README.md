@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Mega Millions winning numbers for Aug. 1: $140 million jackpot](https://www.yahoo.com/news/articles/mega-millions-winning-numbers-aug-010041596.html)
 - Aug 02 - [Researchers stunned after discovering new insect size of bowling pin in Australia: 'Scary thing'](https://www.yahoo.com/news/articles/researchers-stunned-discovering-insect-size-004000381.html)
-- Aug 01 - [Britney Spears Body Cam: Police Say She 'Didn't Take Her Meds' Before In-Flight OUTBURST](https://www.yahoo.com/entertainment/videos/britney-spears-body-cam-police-230306454.html)
-- Aug 01 - [Ohio woman had Kia repossessed — so got revenge by taking dealership’s name. Now they’re in court. Who’s side are you on](https://www.yahoo.com/news/articles/ohio-woman-had-kia-repossessed-223000310.html)
+- Aug 01 - [Portillo's crash: Officials release new details on 2-year-old's death, driver involved](https://www.yahoo.com/news/articles/portillos-crash-officials-release-details-212109753.html)
+- Aug 01 - [2 people shot in Downtown Pittsburgh; police looking for suspect](https://www.yahoo.com/news/articles/massive-police-presence-investigating-shooting-203641907.html)
 - Aug 01 - [Attacks in China and Japan raise concerns about xenophobia in both countries](https://www.yahoo.com/news/articles/japanese-woman-attacked-subway-china-202456852.html)
+- Aug 01 - [CSX on the Hot Seat from Activist Ancora Following UP-NSC Takeover](https://finance.yahoo.com/news/csx-hot-seat-activist-ancora-195350145.html)
 <!-- feed end -->
 
 ---
