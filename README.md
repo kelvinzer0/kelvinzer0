@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [California homeowner with Farmers Insurance got hit with a 381% premium hike — is there anything she can do about it?](https://finance.yahoo.com/news/california-homeowner-farmers-insurance-got-140000386.html)
 - Aug 02 - [How Pakistan shot down India's cutting-edge fighter using Chinese gear](https://www.yahoo.com/news/articles/pakistan-shot-down-indias-cutting-100610649.html)
-- Aug 02 - [This Quantum Computing Company Just Unlocked a New AI Breakthrough](https://finance.yahoo.com/news/quantum-computing-company-just-unlocked-085200558.html)
 - Aug 02 - [India will continue to buy Russian oil, government sources say](https://finance.yahoo.com/news/india-buy-russian-oil-despite-084147315.html)
-- Aug 02 - [Palantir Stock vs. Amazon Stock: Wall Street Says Buy One and Sell the Other](https://finance.yahoo.com/news/palantir-stock-vs-amazon-stock-070700239.html)
+- Aug 02 - [Billionaires Are Buying a Popular AI Index Fund That Could Turn $500 Per Month Into $432,300](https://finance.yahoo.com/news/billionaires-buying-popular-ai-index-074500387.html)
 - Aug 02 - [‘It’s Those Lips’: Trump, 79, Goes Gaga for Karoline Leavitt, 27](https://www.yahoo.com/entertainment/articles/those-lips-trump-79-goes-024609672.html)
 <!-- feed end -->
 
