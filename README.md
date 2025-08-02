@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 01 - [Ohio woman had Kia repossessed — so got revenge by taking dealership’s name. Now they’re in court. Who’s side are you on](https://www.yahoo.com/news/articles/ohio-woman-had-kia-repossessed-223000310.html)
-- Aug 01 - [2 people shot in Downtown Pittsburgh; police looking for suspect](https://www.yahoo.com/news/articles/massive-police-presence-investigating-shooting-203641907.html)
-- Aug 01 - [Only one grocery store remains open on Amelia Island, residents voice concerns over access to food](https://www.yahoo.com/news/articles/only-one-grocery-store-remains-200157876.html)
 - Aug 01 - [There's a copperhead snake in my backyard: Can I kill it? Here's what SC state law says.](https://www.yahoo.com/news/articles/theres-copperhead-snake-backyard-kill-193746991.html)
+- Aug 01 - [Parents abandon 10-year-old son at Barcelona Airport so they wouldn't miss their flight: report](https://www.yahoo.com/news/articles/parents-abandon-10-old-son-192316115.html)
 - Aug 01 - [Scotland Waited Exactly Two Days After Trump Left To Do Something So Hilariously Petty](https://www.yahoo.com/news/articles/seriously-funny-scottish-government-announced-185251477.html)
+- Aug 01 - [President Trump fires BLS commissioner after July jobs report disappoints](https://finance.yahoo.com/news/president-trump-fires-bls-commissioner-after-july-jobs-report-disappoints-182118823.html)
+- Aug 01 - [New poll shows unexpected Dem as Vance’s toughest 2028 presidential rival](https://www.yahoo.com/news/articles/poll-shows-unexpected-dem-vance-173003301.html)
 <!-- feed end -->
 
 ---
