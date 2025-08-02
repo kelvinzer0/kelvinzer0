@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 02 - [Manhunt intensifies for suspect in Montana bar mass shooting](https://www.yahoo.com/news/articles/multiple-people-shot-business-western-193302047.html)
 - Aug 02 - [Ukraine says it uncovers major drone procurement corruption scheme](https://www.yahoo.com/news/articles/ukraine-says-uncovers-major-drone-160324330.html)
 - Aug 02 - [Ukraine says it hit Russian targets including refinery and airfield](https://www.yahoo.com/news/videos/ukraine-says-hit-russian-targets-155726563.html)
 - Aug 02 - [Hamas Beit Hanun Battalion surrenders to IDF troops in north Gaza](https://www.yahoo.com/news/articles/hamas-beit-hanun-battalion-surrenders-143643765.html)
 - Aug 02 - [Read AT&T CEO's frank response to employee feedback about a 5-day RTO mandate — and much more](https://finance.yahoo.com/news/read-t-ceos-frank-response-131234695.html)
-- Aug 02 - [Scientists issue warning after detecting shift in rare predator's hunting habits: 'Likely to happen to humans too'](https://www.yahoo.com/news/articles/scientists-issue-warning-detecting-shift-111535607.html)
 <!-- feed end -->
 
 ---
