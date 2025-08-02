@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [‘This is not life’: Starvation breaks Gaza’s spirit as world argues over Palestinian statehood](https://www.yahoo.com/news/articles/not-life-starvation-breaks-gaza-080409867.html)
-- Aug 02 - [Billionaires Are Buying a Popular AI Index Fund That Could Turn $500 Per Month Into $432,300](https://finance.yahoo.com/news/billionaires-buying-popular-ai-index-074500387.html)
-- Aug 02 - [Trump goes off the deep end over bad jobs numbers; Fox panel stunned](https://www.yahoo.com/news/videos/trump-goes-off-deep-end-031733517.html)
+- Aug 02 - [How Pakistan shot down India's cutting-edge fighter using Chinese gear](https://www.yahoo.com/news/articles/pakistan-shot-down-indias-cutting-100610649.html)
+- Aug 02 - [Josh Harris, others react to RFK Stadium bill](https://sports.yahoo.com/article/josh-harris-others-react-rfk-051512493.html)
 - Aug 02 - [‘It’s Those Lips’: Trump, 79, Goes Gaga for Karoline Leavitt, 27](https://www.yahoo.com/entertainment/articles/those-lips-trump-79-goes-024609672.html)
-- Aug 01 - [5 Highest Rated Dividend Kings for Generations of Income](https://finance.yahoo.com/news/5-highest-rated-dividend-kings-230002572.html)
+- Aug 02 - [Researchers stunned after discovering new insect size of bowling pin in Australia: 'Scary thing'](https://www.yahoo.com/news/articles/researchers-stunned-discovering-insect-size-004000381.html)
+- Aug 01 - [North Korea sent me abroad to be a secret IT worker. My wages funded the regime](https://www.yahoo.com/news/articles/north-korea-sent-abroad-secret-232835821.html)
 <!-- feed end -->
 
 ---
