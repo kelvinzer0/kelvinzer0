@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 02 - [How Pakistan shot down India's cutting-edge fighter using Chinese gear](https://www.yahoo.com/news/articles/pakistan-shot-down-indias-cutting-100610649.html)
-- Aug 02 - [Josh Harris, others react to RFK Stadium bill](https://sports.yahoo.com/article/josh-harris-others-react-rfk-051512493.html)
+- Aug 02 - [This Quantum Computing Company Just Unlocked a New AI Breakthrough](https://finance.yahoo.com/news/quantum-computing-company-just-unlocked-085200558.html)
+- Aug 02 - [India will continue to buy Russian oil, government sources say](https://finance.yahoo.com/news/india-buy-russian-oil-despite-084147315.html)
+- Aug 02 - [Palantir Stock vs. Amazon Stock: Wall Street Says Buy One and Sell the Other](https://finance.yahoo.com/news/palantir-stock-vs-amazon-stock-070700239.html)
 - Aug 02 - [‘It’s Those Lips’: Trump, 79, Goes Gaga for Karoline Leavitt, 27](https://www.yahoo.com/entertainment/articles/those-lips-trump-79-goes-024609672.html)
-- Aug 02 - [Researchers stunned after discovering new insect size of bowling pin in Australia: 'Scary thing'](https://www.yahoo.com/news/articles/researchers-stunned-discovering-insect-size-004000381.html)
-- Aug 01 - [North Korea sent me abroad to be a secret IT worker. My wages funded the regime](https://www.yahoo.com/news/articles/north-korea-sent-abroad-secret-232835821.html)
 <!-- feed end -->
 
 ---
