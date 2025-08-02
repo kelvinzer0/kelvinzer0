@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Tuscarawas County roundup: News from the Dover-New Philadelphia area](https://www.yahoo.com/news/articles/tuscarawas-county-roundup-news-dover-090200472.html)
 - Aug 02 - [‘This is not life’: Starvation breaks Gaza’s spirit as world argues over Palestinian statehood](https://www.yahoo.com/news/articles/not-life-starvation-breaks-gaza-080409867.html)
+- Aug 02 - [Billionaires Are Buying a Popular AI Index Fund That Could Turn $500 Per Month Into $432,300](https://finance.yahoo.com/news/billionaires-buying-popular-ai-index-074500387.html)
 - Aug 02 - [Trump goes off the deep end over bad jobs numbers; Fox panel stunned](https://www.yahoo.com/news/videos/trump-goes-off-deep-end-031733517.html)
-- Aug 02 - [Researchers stunned after discovering new insect size of bowling pin in Australia: 'Scary thing'](https://www.yahoo.com/news/articles/researchers-stunned-discovering-insect-size-004000381.html)
-- Aug 01 - [Ohio woman had Kia repossessed — so got revenge by taking dealership’s name. Now they’re in court. Who’s side are you on](https://www.yahoo.com/news/articles/ohio-woman-had-kia-repossessed-223000310.html)
+- Aug 02 - [‘It’s Those Lips’: Trump, 79, Goes Gaga for Karoline Leavitt, 27](https://www.yahoo.com/entertainment/articles/those-lips-trump-79-goes-024609672.html)
+- Aug 01 - [5 Highest Rated Dividend Kings for Generations of Income](https://finance.yahoo.com/news/5-highest-rated-dividend-kings-230002572.html)
 <!-- feed end -->
 
 ---
