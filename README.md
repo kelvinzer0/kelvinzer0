@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [The Fed is concerned. This economist explains exactly why.](https://finance.yahoo.com/video/fed-concerned-economist-explains-exactly-180010251.html)
-- Aug 03 - [Former US soldier suspected of killing 4 in Montana remains at large](https://www.yahoo.com/news/articles/former-us-soldier-suspected-killing-175541821.html)
-- Aug 03 - [Trump calls Charlamagne “racist sleazebag” after Fox News Epstein comments](https://www.yahoo.com/news/articles/trump-calls-charlamagne-racist-sleazebag-160724248.html)
-- Aug 03 - [BLS commissioner reacts to Trump firing](https://www.yahoo.com/news/articles/bls-commissioner-reacts-trump-firing-154437474.html)
-- Aug 03 - [Ukraine drone attack sparks fire in Russian resort city](https://www.yahoo.com/news/articles/ukraine-drone-attack-sparks-fire-151934437.html)
+- Aug 03 - [Oak Park High School unveils Vietnam healing wall to honor fallen classmates](https://www.yahoo.com/news/videos/oak-park-high-school-unveils-200907854.html)
+- Aug 03 - [Israel minister who led prayers at a controversial holy site has a record of provocative actions](https://www.yahoo.com/news/articles/israel-minister-led-prayers-controversial-184300973.html)
+- Aug 03 - [Boeing St. Louis defense workers set to strike from Monday after rejecting latest offer](https://www.yahoo.com/news/articles/boeings-st-louis-union-workers-175051078.html)
+- Aug 03 - [Switzerland could revise offer on Trump tariffs, business minister says](https://finance.yahoo.com/news/switzerland-could-revise-offer-trump-160200418.html)
+- Aug 03 - [California's Gifford Fire surges to nearly 40,000 acres closing highway, evacuation orders expanded](https://www.yahoo.com/news/articles/californias-gifford-fire-surges-nearly-155429771.html)
 <!-- feed end -->
 
 ---
