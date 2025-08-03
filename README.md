@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Fact Check: Real photo shows Epstein accuser Chauntae Davies giving Bill Clinton shoulder massage in 2002](https://www.yahoo.com/news/articles/fact-check-real-photo-shows-130000750.html)
-- Aug 03 - ['Never seen anything like this': Australians enjoy rare snowfall](https://www.yahoo.com/news/videos/never-seen-anything-australians-enjoy-120629032.html)
-- Aug 03 - [Experts issue warning as 'alien monster' spider spreads around the globe on cargo ships — here's why it's so dangerous](https://www.yahoo.com/news/articles/experts-issue-warning-alien-monster-104500450.html)
-- Aug 03 - [Warren Buffett Said Buying 'Distressed' Homes With 30-Year Mortgages And Renting Them Out Might Be The 'Most Attractive' Investment Available](https://finance.yahoo.com/news/warren-buffett-said-buying-distressed-102604857.html)
-- Aug 03 - [Where is Satoshi Nakamoto? Statue Honouring the Bitcoin Creator Gets Stolen in Lugano](https://www.yahoo.com/news/articles/where-satoshi-nakamoto-statue-honouring-090342924.html)
+- Aug 03 - [Islamic Republic’s defense shake-up: Tehran revives wartime council not seen since Iran-Iraq War](https://www.yahoo.com/news/articles/islamic-republic-defense-shake-tehran-152536226.html)
+- Aug 03 - [China welcomes 183 Brazil coffee sellers in wake of US tariffs](https://finance.yahoo.com/news/china-welcomes-183-brazil-coffee-144459909.html)
+- Aug 03 - [Man accused of threatening to blow up Finger Lakes Gaming Casino](https://www.yahoo.com/news/articles/man-accused-threatening-blow-finger-141008993.html)
+- Aug 03 - [Is China waking up to Israel's strategic importance? Beijing rethinks Middle East strategy](https://www.yahoo.com/news/articles/china-waking-israels-strategic-importance-134742410.html)
+- Aug 03 - [Hurricane Center tracking Invest 95L off North Carolina coast and a large tropical wave](https://www.yahoo.com/news/articles/hurricane-center-tracking-al95-tropical-130054495.html)
 <!-- feed end -->
 
 ---
