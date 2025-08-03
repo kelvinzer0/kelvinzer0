@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 02 - [Heart City Health names Black as chief executive](https://www.yahoo.com/news/articles/heart-city-health-names-black-230100940.html)
-- Aug 02 - [FDA Elevates Recall of 64,800 Lbs. of Butter to Second-Highest Warning Level](https://www.yahoo.com/news/articles/fda-elevates-recall-64-800-212704912.html)
+- Aug 02 - [High ranking Democrat calls for release of Epstein files after Maxwell moved to new prison](https://www.yahoo.com/news/videos/high-ranking-democrat-calls-release-210517285.html)
+- Aug 02 - [19 Funny Women Who Tweeted Things So Hilarious I Woke Up My Roommate At 3 A.M. And Now She's Threatening To Move Out](https://www.yahoo.com/entertainment/articles/19-funny-tweets-women-week-190751481.html)
+- Aug 02 - [Manhunt intensifies for suspect in Montana bar mass shooting](https://www.yahoo.com/news/articles/multiple-people-shot-business-western-193302047.html)
 - Aug 02 - [Ukraine says it uncovers major drone procurement corruption scheme](https://www.yahoo.com/news/articles/ukraine-says-uncovers-major-drone-160324330.html)
 - Aug 02 - [Hamas Beit Hanun Battalion surrenders to IDF troops in north Gaza](https://www.yahoo.com/news/articles/hamas-beit-hanun-battalion-surrenders-143643765.html)
-- Aug 02 - [Read AT&T CEO's frank response to employee feedback about a 5-day RTO mandate — and much more](https://finance.yahoo.com/news/read-t-ceos-frank-response-131234695.html)
 <!-- feed end -->
 
 ---
