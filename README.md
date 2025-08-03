@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Russian volcano in Kamchatka erupts for the first time in 600 years](https://www.yahoo.com/news/videos/russian-volcano-kamchatka-erupts-first-120851872.html)
-- Aug 03 - [Chance Of Tropical Development Increases Off Southeast Coast](https://www.yahoo.com/news/videos/chance-tropical-development-increases-off-112609071.html)
+- Aug 03 - [Millions Struggle to Find Food in Gaza as Limited Aid Trickles In](https://www.yahoo.com/news/videos/millions-struggle-food-gaza-limited-130629175.html)
 - Aug 03 - [Warren Buffett Said Buying 'Distressed' Homes With 30-Year Mortgages And Renting Them Out Might Be The 'Most Attractive' Investment Available](https://finance.yahoo.com/news/warren-buffett-said-buying-distressed-102604857.html)
-- Aug 03 - [Sausage company issues sweeping recall after consumers found foreign objects inside: 'The product is no longer available'](https://www.yahoo.com/news/articles/sausage-company-issues-sweeping-recall-101500611.html)
 - Aug 03 - [Social Security Is Owed Tens of Billions of Dollars, and the Donald Trump Administration Aims to Collect. Will Your Benefit Be Garnished?](https://finance.yahoo.com/news/social-security-owed-tens-billions-074400671.html)
+- Aug 03 - [DUI arrest after fiery crash on I-15 injures several](https://www.yahoo.com/news/articles/dui-arrest-fiery-crash-15-060229116.html)
+- Aug 03 - [Broken altimeter, ignored warnings: Hearings reveal what went wrong in DC crash that killed 67](https://www.yahoo.com/news/articles/broken-altimeter-ignored-warnings-hearings-000846083.html)
 <!-- feed end -->
 
 ---
