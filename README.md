@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Social Security Is Owed Tens of Billions of Dollars, and the Donald Trump Administration Aims to Collect. Will Your Benefit Be Garnished?](https://finance.yahoo.com/news/social-security-owed-tens-billions-074400671.html)
 - Aug 03 - [The Trump administration takes a very Orwellian turn](https://www.yahoo.com/news/articles/trump-administration-takes-very-orwellian-162242581.html)
+- Aug 02 - [TV meteorologist pauses severe weather forecast to text family in viral video](https://www.yahoo.com/news/articles/tv-meteorologist-pauses-severe-weather-211352435.html)
 - Aug 02 - [Abandoned Disney Resort Becomes a Playground for Criminals and Graffiti Artists After Being Left To Crumble: ‘There Are No Laws’](https://www.yahoo.com/lifestyle/articles/abandoned-disney-resort-becomes-playground-210000048.html)
 - Aug 02 - [19 Funny Women Who Tweeted Things So Hilarious I Woke Up My Roommate At 3 A.M. And Now She's Threatening To Move Out](https://www.yahoo.com/entertainment/articles/19-funny-tweets-women-week-190751481.html)
-- Aug 02 - [Alabama farmer sees new interest within days of Trump’s tomato tariff — and says former trade deal ‘never worked’ for US](https://finance.yahoo.com/news/alabama-farmer-sees-interest-within-190000594.html)
-- Aug 02 - [Ukraine says it uncovers major drone procurement corruption scheme](https://www.yahoo.com/news/articles/ukraine-says-uncovers-major-drone-160324330.html)
 <!-- feed end -->
 
 ---
