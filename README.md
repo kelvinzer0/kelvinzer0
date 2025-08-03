@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Men charged in Tennessee case involving 4 dead family members of abandoned infant](https://www.yahoo.com/news/articles/2-men-charged-being-linked-162811924.html)
+- Aug 03 - [The Fed is concerned. This economist explains exactly why.](https://finance.yahoo.com/video/fed-concerned-economist-explains-exactly-180010251.html)
+- Aug 03 - [Former US soldier suspected of killing 4 in Montana remains at large](https://www.yahoo.com/news/articles/former-us-soldier-suspected-killing-175541821.html)
 - Aug 03 - [Trump calls Charlamagne “racist sleazebag” after Fox News Epstein comments](https://www.yahoo.com/news/articles/trump-calls-charlamagne-racist-sleazebag-160724248.html)
-- Aug 03 - [China welcomes 183 Brazil coffee sellers in wake of US tariffs](https://finance.yahoo.com/news/china-welcomes-183-brazil-coffee-144459936.html)
-- Aug 03 - [Kalshi Loss in Maryland Could Pave the Way for Supreme Court Review](https://finance.yahoo.com/news/kalshi-loss-maryland-could-pave-140000505.html)
-- Aug 03 - [Russian volcano in Kamchatka erupts for the first time in 600 years](https://www.yahoo.com/news/videos/russian-volcano-kamchatka-erupts-first-120851872.html)
+- Aug 03 - [BLS commissioner reacts to Trump firing](https://www.yahoo.com/news/articles/bls-commissioner-reacts-trump-firing-154437474.html)
+- Aug 03 - [Ukraine drone attack sparks fire in Russian resort city](https://www.yahoo.com/news/articles/ukraine-drone-attack-sparks-fire-151934437.html)
 <!-- feed end -->
 
 ---
