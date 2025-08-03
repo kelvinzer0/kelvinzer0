@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Texas Democrats seek to block redistricting vote by leaving state](https://www.yahoo.com/news/articles/texas-democrats-seek-block-redistricting-221104200.html)
+- Aug 03 - [Apple CEO drops bombshell about its future](https://finance.yahoo.com/news/apple-ceo-drops-bombshell-future-210300933.html)
+- Aug 03 - [Man Dies After Going to Turkey for a Hair Transplant at a Clinic Frequented by Celebrity Clients](https://www.yahoo.com/news/articles/man-dies-going-turkey-hair-200244332.html)
 - Aug 03 - [Israel minister who led prayers at a controversial holy site has a record of provocative actions](https://www.yahoo.com/news/articles/israel-minister-led-prayers-controversial-184300973.html)
-- Aug 03 - [Former US soldier suspected of killing 4 in Montana remains at large](https://www.yahoo.com/news/articles/former-us-soldier-suspected-killing-175541821.html)
-- Aug 03 - [Boeing St. Louis defense workers set to strike from Monday after rejecting latest offer](https://www.yahoo.com/news/articles/boeings-st-louis-union-workers-175051078.html)
-- Aug 03 - [Dave Ramsey Tells 22-Year-Old With $43K In Stocks Worried About Retirement to Slow Down — 'You're Early in the Process, Focus on Moving Out First'](https://finance.yahoo.com/news/dave-ramsey-tells-22-old-170904698.html)
-- Aug 03 - [ATM ‘tap-in’ scam on social media just led to a Florida woman’s arrest — have you clicked on these ads before?](https://www.yahoo.com/news/articles/atm-tap-scam-social-media-163100004.html)
+- Aug 03 - [The Fed is concerned. This economist explains exactly why.](https://finance.yahoo.com/video/fed-concerned-economist-explains-exactly-180010251.html)
 <!-- feed end -->
 
 ---
