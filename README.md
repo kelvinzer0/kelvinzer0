@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Ukraine drone attack sparks fire in Russian resort city](https://www.yahoo.com/news/articles/ukraine-drone-attack-sparks-fire-151934437.html)
+- Aug 03 - [Men charged in Tennessee case involving 4 dead family members of abandoned infant](https://www.yahoo.com/news/articles/2-men-charged-being-linked-162811924.html)
+- Aug 03 - [Trump calls Charlamagne “racist sleazebag” after Fox News Epstein comments](https://www.yahoo.com/news/articles/trump-calls-charlamagne-racist-sleazebag-160724248.html)
 - Aug 03 - [China welcomes 183 Brazil coffee sellers in wake of US tariffs](https://finance.yahoo.com/news/china-welcomes-183-brazil-coffee-144459936.html)
-- Aug 03 - [US car market bankrupting Americans — and it’ll only get worse. How to save thousands if you want to buy a car](https://finance.yahoo.com/news/us-car-market-bankrupting-americans-142900117.html)
+- Aug 03 - [Kalshi Loss in Maryland Could Pave the Way for Supreme Court Review](https://finance.yahoo.com/news/kalshi-loss-maryland-could-pave-140000505.html)
 - Aug 03 - [Russian volcano in Kamchatka erupts for the first time in 600 years](https://www.yahoo.com/news/videos/russian-volcano-kamchatka-erupts-first-120851872.html)
-- Aug 03 - [Warren Buffett Said Buying 'Distressed' Homes With 30-Year Mortgages And Renting Them Out Might Be The 'Most Attractive' Investment Available](https://finance.yahoo.com/news/warren-buffett-said-buying-distressed-102604857.html)
 <!-- feed end -->
 
 ---
