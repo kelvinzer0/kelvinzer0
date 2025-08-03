@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Millions Struggle to Find Food in Gaza as Limited Aid Trickles In](https://www.yahoo.com/news/videos/millions-struggle-food-gaza-limited-130629175.html)
+- Aug 03 - [Fact Check: Real photo shows Epstein accuser Chauntae Davies giving Bill Clinton shoulder massage in 2002](https://www.yahoo.com/news/articles/fact-check-real-photo-shows-130000750.html)
+- Aug 03 - ['Never seen anything like this': Australians enjoy rare snowfall](https://www.yahoo.com/news/videos/never-seen-anything-australians-enjoy-120629032.html)
+- Aug 03 - [Experts issue warning as 'alien monster' spider spreads around the globe on cargo ships — here's why it's so dangerous](https://www.yahoo.com/news/articles/experts-issue-warning-alien-monster-104500450.html)
 - Aug 03 - [Warren Buffett Said Buying 'Distressed' Homes With 30-Year Mortgages And Renting Them Out Might Be The 'Most Attractive' Investment Available](https://finance.yahoo.com/news/warren-buffett-said-buying-distressed-102604857.html)
-- Aug 03 - [Social Security Is Owed Tens of Billions of Dollars, and the Donald Trump Administration Aims to Collect. Will Your Benefit Be Garnished?](https://finance.yahoo.com/news/social-security-owed-tens-billions-074400671.html)
-- Aug 03 - [DUI arrest after fiery crash on I-15 injures several](https://www.yahoo.com/news/articles/dui-arrest-fiery-crash-15-060229116.html)
-- Aug 03 - [Broken altimeter, ignored warnings: Hearings reveal what went wrong in DC crash that killed 67](https://www.yahoo.com/news/articles/broken-altimeter-ignored-warnings-hearings-000846083.html)
+- Aug 03 - [Where is Satoshi Nakamoto? Statue Honouring the Bitcoin Creator Gets Stolen in Lugano](https://www.yahoo.com/news/articles/where-satoshi-nakamoto-statue-honouring-090342924.html)
 <!-- feed end -->
 
 ---
