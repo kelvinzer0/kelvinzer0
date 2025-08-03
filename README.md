@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 03 - [Russian volcano in Kamchatka erupts for the first time in 600 years](https://www.yahoo.com/news/videos/russian-volcano-kamchatka-erupts-first-120851872.html)
 - Aug 03 - [Chance Of Tropical Development Increases Off Southeast Coast](https://www.yahoo.com/news/videos/chance-tropical-development-increases-off-112609071.html)
+- Aug 03 - [Warren Buffett Said Buying 'Distressed' Homes With 30-Year Mortgages And Renting Them Out Might Be The 'Most Attractive' Investment Available](https://finance.yahoo.com/news/warren-buffett-said-buying-distressed-102604857.html)
+- Aug 03 - [Sausage company issues sweeping recall after consumers found foreign objects inside: 'The product is no longer available'](https://www.yahoo.com/news/articles/sausage-company-issues-sweeping-recall-101500611.html)
 - Aug 03 - [Social Security Is Owed Tens of Billions of Dollars, and the Donald Trump Administration Aims to Collect. Will Your Benefit Be Garnished?](https://finance.yahoo.com/news/social-security-owed-tens-billions-074400671.html)
-- Aug 03 - [The Trump administration takes a very Orwellian turn](https://www.yahoo.com/news/articles/trump-administration-takes-very-orwellian-162242581.html)
-- Aug 02 - [FDA Elevates Recall of 64,800 Lbs. of Butter to Second-Highest Warning Level](https://www.yahoo.com/news/articles/fda-elevates-recall-64-800-212704912.html)
-- Aug 02 - [Abandoned Disney Resort Becomes a Playground for Criminals and Graffiti Artists After Being Left To Crumble: ‘There Are No Laws’](https://www.yahoo.com/lifestyle/articles/abandoned-disney-resort-becomes-playground-210000048.html)
 <!-- feed end -->
 
 ---
