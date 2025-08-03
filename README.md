@@ -30,7 +30,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 03 - [Social Security Is Owed Tens of Billions of Dollars, and the Donald Trump Administration Aims to Collect. Will Your Benefit Be Garnished?](https://finance.yahoo.com/news/social-security-owed-tens-billions-074400671.html)
-- Aug 03 - [The Trump administration takes a very Orwellian turn](https://www.yahoo.com/news/articles/trump-administration-takes-very-orwellian-162242581.html)
+- Aug 02 - [FDA Elevates Recall of 64,800 Lbs. of Butter to Second-Highest Warning Level](https://www.yahoo.com/news/articles/fda-elevates-recall-64-800-212704912.html)
 - Aug 02 - [TV meteorologist pauses severe weather forecast to text family in viral video](https://www.yahoo.com/news/articles/tv-meteorologist-pauses-severe-weather-211352435.html)
 - Aug 02 - [Abandoned Disney Resort Becomes a Playground for Criminals and Graffiti Artists After Being Left To Crumble: ‘There Are No Laws’](https://www.yahoo.com/lifestyle/articles/abandoned-disney-resort-becomes-playground-210000048.html)
 - Aug 02 - [19 Funny Women Who Tweeted Things So Hilarious I Woke Up My Roommate At 3 A.M. And Now She's Threatening To Move Out](https://www.yahoo.com/entertainment/articles/19-funny-tweets-women-week-190751481.html)
