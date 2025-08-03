@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Islamic Republic’s defense shake-up: Tehran revives wartime council not seen since Iran-Iraq War](https://www.yahoo.com/news/articles/islamic-republic-defense-shake-tehran-152536226.html)
-- Aug 03 - [China welcomes 183 Brazil coffee sellers in wake of US tariffs](https://finance.yahoo.com/news/china-welcomes-183-brazil-coffee-144459909.html)
-- Aug 03 - [Man accused of threatening to blow up Finger Lakes Gaming Casino](https://www.yahoo.com/news/articles/man-accused-threatening-blow-finger-141008993.html)
-- Aug 03 - [Is China waking up to Israel's strategic importance? Beijing rethinks Middle East strategy](https://www.yahoo.com/news/articles/china-waking-israels-strategic-importance-134742410.html)
-- Aug 03 - [Hurricane Center tracking Invest 95L off North Carolina coast and a large tropical wave](https://www.yahoo.com/news/articles/hurricane-center-tracking-al95-tropical-130054495.html)
+- Aug 03 - [Ukraine drone attack sparks fire in Russian resort city](https://www.yahoo.com/news/articles/ukraine-drone-attack-sparks-fire-151934437.html)
+- Aug 03 - [China welcomes 183 Brazil coffee sellers in wake of US tariffs](https://finance.yahoo.com/news/china-welcomes-183-brazil-coffee-144459936.html)
+- Aug 03 - [US car market bankrupting Americans — and it’ll only get worse. How to save thousands if you want to buy a car](https://finance.yahoo.com/news/us-car-market-bankrupting-americans-142900117.html)
+- Aug 03 - [Russian volcano in Kamchatka erupts for the first time in 600 years](https://www.yahoo.com/news/videos/russian-volcano-kamchatka-erupts-first-120851872.html)
+- Aug 03 - [Warren Buffett Said Buying 'Distressed' Homes With 30-Year Mortgages And Renting Them Out Might Be The 'Most Attractive' Investment Available](https://finance.yahoo.com/news/warren-buffett-said-buying-distressed-102604857.html)
 <!-- feed end -->
 
 ---
