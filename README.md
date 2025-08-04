@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 03 - [Lawrence police arrest man after woman with gunshot wound shows up at hospital](https://www.yahoo.com/news/videos/lawrence-police-arrest-man-woman-222807680.html)
-- Aug 03 - ['Declaring an emergency': United pilot calls out mayday shortly after takeoff](https://www.yahoo.com/news/articles/declaring-emergency-united-pilot-calls-215758681.html)
-- Aug 03 - [Boeing workers who build fighter jets plan to go on strike](https://www.yahoo.com/news/articles/boeing-workers-build-fighter-jets-204259957.html)
-- Aug 03 - [Man Dies After Going to Turkey for a Hair Transplant at a Clinic Frequented by Celebrity Clients](https://www.yahoo.com/news/articles/man-dies-going-turkey-hair-200244332.html)
-- Aug 03 - [Israel minister who led prayers at a controversial holy site has a record of provocative actions](https://www.yahoo.com/news/articles/israel-minister-led-prayers-controversial-184300973.html)
+- Aug 04 - [8 decades after atomic bombing in Hiroshima, search for missing continues on nearby island](https://www.yahoo.com/news/articles/8-decades-atomic-bombing-hiroshima-010246741.html)
+- Aug 04 - [Asia shares sideswiped by US economic jitters, oil slips](https://finance.yahoo.com/news/asia-shares-sideswiped-us-economic-004028233.html)
+- Aug 04 - [Doctors Without Borders CEO Stunned By ABC's Bizarre Question On Gaza Starvation](https://www.yahoo.com/news/articles/doctors-without-borders-ceo-stunned-002457124.html)
+- Aug 04 - [Dave Ramsey Says, 'You're Not Broke Because You Don't Make Enough. You're Broke Because You Give Your Income To Everyone Else'](https://finance.yahoo.com/news/dave-ramsey-says-youre-not-000133423.html)
+- Aug 03 - ['Hamas has obligation': Hostage forum skeptical on Hamas promise to allow aid to reach hostages](https://www.yahoo.com/news/articles/hamas-obligation-hostage-forum-skeptical-224324186.html)
 <!-- feed end -->
 
 ---
