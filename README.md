@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Bedtime? Study tracks when Americans fall asleep](https://www.yahoo.com/lifestyle/videos/bedtime-study-tracks-americans-fall-090937064.html)
+- Aug 04 - ['WTF': Trump’s ‘Creepy’ Praise Of Karoline Leavitt’s Lips Is Grossing People Out](https://www.yahoo.com/entertainment/articles/wtf-trump-creepy-praise-karoline-090553221.html)
+- Aug 04 - [Trending tickers: Palantir, AMD, Boeing, Opendoor and BP](https://uk.finance.yahoo.com/news/palantir-amd-boeing-opendoor-bp-trending-tickers-083531073.html)
 - Aug 04 - [Texas governor threatens to remove Democrats who left state over Trump-backed redistricting](https://www.yahoo.com/news/articles/texas-governor-threatens-remove-democrats-062208574.html)
 - Aug 04 - [2 stabbed in violent food court altercation inside Southern California mall](https://www.yahoo.com/news/articles/2-stabbed-violent-food-court-042515293.html)
-- Aug 04 - [The White House is about to get even more white.](https://www.yahoo.com/news/videos/white-house-even-more-white-040320641.html)
-- Aug 04 - [Wordle hints today for #1,507: Clues and answer for Monday, August 4](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1507-clues-and-answer-for-monday-august-4-040114423.html)
-- Aug 04 - [South Korea begins removing border propaganda speakers in conciliatory gesture toward North](https://www.yahoo.com/news/articles/south-korea-begins-removing-border-025501624.html)
 <!-- feed end -->
 
 ---
