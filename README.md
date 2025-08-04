@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Texas House issues arrest warrants for Democrats who left state to block congressional redistricting](https://www.yahoo.com/news/articles/texas-house-issues-arrest-warrants-210800901.html)
-- Aug 04 - [Broadcom launches Jericho chip to advance AI data center networks](https://finance.yahoo.com/news/broadcom-launches-jericho-chip-advance-210207942.html)
-- Aug 04 - [Candace Owens claims Trump warned her off specious Brigitte Macron trans claim: ‘I’ve seen her up close’](https://www.yahoo.com/news/articles/candace-owens-claims-trump-warned-204228904.html)
+- Aug 04 - [Sean ‘Diddy’ Combs’ ex Gina Huynh, who dropped out of his case as ‘Victim-3,’ writes letter to judge pushing for his release](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-ex-gina-000440664.html)
+- Aug 04 - [Judge orders Florida, federal officials to produce 'Alligator Alcatraz' agreements](https://www.yahoo.com/news/articles/judge-orders-florida-federal-officials-213016262.html)
 - Aug 04 - [Funeral home owner who sent families fake ashes pleads guilty to fraud](https://www.yahoo.com/news/articles/colorado-funeral-home-owner-accused-202006145.html)
-- Aug 04 - [Trump Finds a Brilliant New Way to Wreck the Tourism Industry](https://www.yahoo.com/news/articles/trump-finds-brilliant-way-wreck-194122145.html)
+- Aug 04 - [Top analyst says the next 5 years could see ‘no growth in workers at all’ and sends a warning about the fate of the U.S. economy](https://finance.yahoo.com/news/top-analyst-says-next-5-194528362.html)
+- Aug 04 - [Police identify suspect in fatal hit-and-run in South-Central El Paso](https://www.yahoo.com/news/articles/police-identify-suspect-fatal-hit-191828229.html)
 <!-- feed end -->
 
 ---
