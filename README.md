@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Texas House issues arrest warrants for Democrats who left state to block congressional redistricting](https://www.yahoo.com/news/articles/texas-house-issues-arrest-warrants-210800901.html)
+- Aug 04 - [Broadcom launches Jericho chip to advance AI data center networks](https://finance.yahoo.com/news/broadcom-launches-jericho-chip-advance-210207942.html)
 - Aug 04 - [Candace Owens claims Trump warned her off specious Brigitte Macron trans claim: ‘I’ve seen her up close’](https://www.yahoo.com/news/articles/candace-owens-claims-trump-warned-204228904.html)
-- Aug 04 - [Colorado funeral home owner accused of sending fake ashes pleads guilty to fraud](https://www.yahoo.com/news/articles/colorado-funeral-home-owner-accused-202006145.html)
-- Aug 04 - [Motorcyclist killed in Highway 1 crash, say Langley RCMP](https://www.yahoo.com/news/articles/motorcyclist-killed-highway-1-crash-193808124.html)
-- Aug 04 - [Tennessee set to execute inmate without turning off his implanted defibrillator](https://www.yahoo.com/news/articles/tennessee-set-execute-inmate-without-190546000.html)
-- Aug 04 - [Man jumps from I-40 bridge into MS river, police say](https://www.yahoo.com/news/articles/man-jumps-40-bridge-ms-184924233.html)
+- Aug 04 - [Funeral home owner who sent families fake ashes pleads guilty to fraud](https://www.yahoo.com/news/articles/colorado-funeral-home-owner-accused-202006145.html)
+- Aug 04 - [Trump Finds a Brilliant New Way to Wreck the Tourism Industry](https://www.yahoo.com/news/articles/trump-finds-brilliant-way-wreck-194122145.html)
 <!-- feed end -->
 
 ---
