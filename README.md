@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [DBS 'gaping hole' let paedophile prey on children](https://www.yahoo.com/news/articles/dbs-gaping-hole-let-paedophile-052223085.html)
+- Aug 04 - [UBS to pay $300 million to resolve US mortgage securities cases](https://finance.yahoo.com/news/ubs-pay-300-million-resolve-053633078.html)
 - Aug 04 - [2 stabbed in violent food court altercation inside Southern California mall](https://www.yahoo.com/news/articles/2-stabbed-violent-food-court-042515293.html)
 - Aug 04 - [The White House is about to get even more white.](https://www.yahoo.com/news/videos/white-house-even-more-white-040320641.html)
-- Aug 04 - [South Korea begins removing border propaganda speakers in conciliatory gesture toward North](https://www.yahoo.com/news/articles/south-korea-begins-removing-border-025501624.html)
 - Aug 04 - [California wildfire causing hazy skies in San Diego; extreme heat warning later this week](https://www.yahoo.com/news/articles/california-wildfire-causing-hazy-skies-021951764.html)
+- Aug 04 - [Sean ‘Diddy’ Combs’ ex Gina Huynh, who dropped out of his case as ‘Victim-3,’ writes letter to judge pushing for his release](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-ex-gina-000440664.html)
 <!-- feed end -->
 
 ---
