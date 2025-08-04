@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [The EPA wants to ditch climate-change rules. That’s bad for humans and automakers](https://www.yahoo.com/news/articles/epa-wants-ditch-climate-change-100032260.html)
-- Aug 04 - [More people are taking early 401(k) withdrawals: Here's why](https://finance.yahoo.com/video/more-people-taking-early-401-100000053.html)
-- Aug 04 - [Trains are canceled and events called off as a major storm hits Scotland](https://www.yahoo.com/news/articles/trains-canceled-events-called-off-093550881.html)
-- Aug 04 - [Chinese woman becomes third person charged under Australia's foreign interference laws](https://www.yahoo.com/news/articles/chinese-woman-becomes-third-person-091603097.html)
-- Aug 04 - [‘It’s just PR’: Skittles, Hershey and Nestle are removing artificial colors](https://www.yahoo.com/news/articles/just-pr-skittles-hershey-nestle-090043651.html)
+- Aug 04 - [Tesla approves share award worth $29 billion to CEO Elon Musk](https://finance.yahoo.com/news/tesla-approves-96-million-share-102426782.html)
+- Aug 04 - [Small boat migrants will be allowed to keep their phones, minister says](https://www.yahoo.com/news/articles/small-boat-migrants-allowed-keep-102418203.html)
+- Aug 04 - [Scientists issue urgent warnings about future of vital US land: 'We don't have a lot of time'](https://www.yahoo.com/news/articles/scientists-issue-urgent-warnings-future-101538003.html)
+- Aug 04 - [Officials issue sudden order to ban all motorbikes from major city — here's what's happening](https://www.yahoo.com/news/articles/officials-issue-sudden-order-ban-100030523.html)
+- Aug 04 - [Kremlin plays down Trump submarine order, urges caution on nuclear rhetoric](https://www.yahoo.com/news/articles/kremlin-urges-caution-nuclear-rhetoric-095558039.html)
 <!-- feed end -->
 
 ---
