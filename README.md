@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Reform UK announces expert on ghosts and UFOs as latest defection to party](https://www.yahoo.com/news/articles/reform-uk-announces-ghost-ufo-131413944.html)
-- Aug 04 - [After a decade of death, Canadian scientists say they've found the sea star killer](https://www.yahoo.com/news/articles/decade-death-canadian-scientists-theyve-150000896.html)
-- Aug 04 - [Pictured: Saudi Arabian student, 20, stabbed to death in Cambridge](https://www.yahoo.com/news/articles/saudi-arabian-student-20-stabbed-094303706.html)
-- Aug 04 - [US Factory Orders Decline by 4.8%](https://finance.yahoo.com/video/us-factory-orders-decline-4-143817340.html)
-- Aug 04 - [Enough Is Enough: San Diego Police Seize, Destroy Street Takeover Cars](https://autos.yahoo.com/articles/enough-enough-san-diego-police-143000930.html)
+- Aug 04 - [Over 3,000 Boeing defense workers are on strike: What to know](https://finance.yahoo.com/video/over-3-000-boeing-defense-161745768.html)
+- Aug 04 - [Hundreds ready to be arrested at mass protest against Palestine Action terror ban](https://www.yahoo.com/news/articles/hundreds-ready-arrested-mass-protest-133844722.html)
+- Aug 04 - [Mamdani braced for US reentry confrontation after deportation calls from GOP](https://www.yahoo.com/news/articles/mamdani-braced-us-reentry-confrontation-155842470.html)
+- Aug 04 - [Married 29 Years, A Nurse Built A Real Estate Portfolio Alone. 'He Goes To Play Golf Whenever He Gets A Chance,' She Says About Her Husband](https://finance.yahoo.com/news/married-29-years-nurse-built-154609654.html)
+- Aug 04 - [State Department may require visa applicants to post bond of up to $15,000 to enter the US](https://www.yahoo.com/news/articles/state-department-may-require-visa-153126584.html)
 <!-- feed end -->
 
 ---
