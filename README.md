@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 04 - [Reform UK announces expert on ghosts and UFOs as latest defection to party](https://www.yahoo.com/news/articles/reform-uk-announces-ghost-ufo-131413944.html)
-- Aug 04 - [Two states are winning in the AI data center construction boom. Check out our map.](https://finance.yahoo.com/news/two-states-winning-ai-data-171336354.html)
-- Aug 04 - [The jobs data revisions that cost a US government statistician her job](https://www.yahoo.com/news/articles/jobs-data-revisions-cost-us-164503944.html)
-- Aug 04 - [Trump Loses It as Elizabeth Warren Exposes His Terrible Economy](https://www.yahoo.com/news/articles/trump-blows-fuse-elizabeth-warren-162210592.html)
-- Aug 04 - [Former Commerce Secretary Wilbur Ross weighs in on Trump firing of BLS commissioner: Opening Bid top takeaway](https://finance.yahoo.com/news/former-commerce-secretary-wilbur-ross-weighs-in-on-trump-firing-of-bls-commissioner-opening-bid-top-takeaway-160453499.html)
+- Aug 04 - ['A fake narrative': Footage of 'bustling' Gaza markets counter Hamas starvation claims](https://www.yahoo.com/news/articles/fake-narrative-footage-bustling-gaza-175046795.html)
+- Aug 04 - [Mitch McConnell's legacy comes under fire in Kentucky race to replace him in the Senate](https://www.yahoo.com/news/articles/mitch-mcconnells-legacy-comes-under-172431921.html)
+- Aug 04 - [These Common U.S. Medications Are Banned Overseas—What to Know Before Packing Meds for Your Next Trip](https://www.yahoo.com/lifestyle/articles/common-u-medications-banned-overseas-171726550.html)
+- Aug 04 - [White House Orders NASA to Destroy Important Satellite](https://www.yahoo.com/news/articles/white-house-orders-nasa-destroy-171440771.html)
 <!-- feed end -->
 
 ---
