@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Candace Owens claims Trump warned her off specious Brigitte Macron trans claim: ‘I’ve seen her up close’](https://www.yahoo.com/news/articles/candace-owens-claims-trump-warned-204228904.html)
+- Aug 04 - [Colorado funeral home owner accused of sending fake ashes pleads guilty to fraud](https://www.yahoo.com/news/articles/colorado-funeral-home-owner-accused-202006145.html)
 - Aug 04 - [Motorcyclist killed in Highway 1 crash, say Langley RCMP](https://www.yahoo.com/news/articles/motorcyclist-killed-highway-1-crash-193808124.html)
-- Aug 04 - [Tommy Robinson arrested in connection to assault](https://www.yahoo.com/news/articles/tommy-robinson-arrested-connection-assault-192421509.html)
 - Aug 04 - [Tennessee set to execute inmate without turning off his implanted defibrillator](https://www.yahoo.com/news/articles/tennessee-set-execute-inmate-without-190546000.html)
-- Aug 04 - [3rd person arrested for allegedly helping a Tennessee fugitive wanted in family's killings](https://www.yahoo.com/news/articles/3rd-person-arrested-allegedly-helping-185109078.html)
-- Aug 04 - [These Common U.S. Medications Are Banned Overseas—What to Know Before Packing Meds for Your Next Trip](https://www.yahoo.com/lifestyle/articles/common-u-medications-banned-overseas-171726550.html)
+- Aug 04 - [Man jumps from I-40 bridge into MS river, police say](https://www.yahoo.com/news/articles/man-jumps-40-bridge-ms-184924233.html)
 <!-- feed end -->
 
 ---
