@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [DBS 'gaping hole' let paedophile prey on children](https://www.yahoo.com/news/articles/dbs-gaping-hole-let-paedophile-052223085.html)
+- Aug 04 - [2 stabbed in violent food court altercation inside Southern California mall](https://www.yahoo.com/news/articles/2-stabbed-violent-food-court-042515293.html)
 - Aug 04 - [The White House is about to get even more white.](https://www.yahoo.com/news/videos/white-house-even-more-white-040320641.html)
-- Aug 04 - [8 decades after atomic bombing in Hiroshima, search for missing continues on nearby island](https://www.yahoo.com/news/articles/8-decades-atomic-bombing-hiroshima-010246741.html)
-- Aug 04 - [Doctors Without Borders CEO Stunned By ABC's Bizarre Question On Gaza Starvation](https://www.yahoo.com/news/articles/doctors-without-borders-ceo-stunned-002457124.html)
-- Aug 04 - [Stock market today: Dow, S&P 500, Nasdaq futures climb with tariffs and jobs data in focus](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-climb-with-tariffs-and-jobs-data-in-focus-001913499.html)
-- Aug 04 - [China pushes back at US demands to stop buying Russian and Iranian oil](https://finance.yahoo.com/news/china-pushes-back-us-demands-001144514.html)
+- Aug 04 - [South Korea begins removing border propaganda speakers in conciliatory gesture toward North](https://www.yahoo.com/news/articles/south-korea-begins-removing-border-025501624.html)
+- Aug 04 - [California wildfire causing hazy skies in San Diego; extreme heat warning later this week](https://www.yahoo.com/news/articles/california-wildfire-causing-hazy-skies-021951764.html)
 <!-- feed end -->
 
 ---
