@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Over 3,000 Boeing defense workers are on strike: What to know](https://finance.yahoo.com/video/over-3-000-boeing-defense-161745768.html)
+- Aug 04 - [The jobs data revisions that cost a US government statistician her job](https://www.yahoo.com/news/articles/jobs-data-revisions-cost-us-164503944.html)
+- Aug 04 - [Winds Fuel ‘Erratic’ California Gifford Fire Causing Evacuations](https://www.yahoo.com/news/videos/winds-fuel-erratic-california-gifford-163449404.html)
+- Aug 04 - ['I am sickened': Frontier man sentenced on various counts of possessing child abuse images](https://www.yahoo.com/news/articles/am-sickened-frontier-man-sentenced-162818679.html)
 - Aug 04 - [Hundreds ready to be arrested at mass protest against Palestine Action terror ban](https://www.yahoo.com/news/articles/hundreds-ready-arrested-mass-protest-133844722.html)
-- Aug 04 - [Mamdani braced for US reentry confrontation after deportation calls from GOP](https://www.yahoo.com/news/articles/mamdani-braced-us-reentry-confrontation-155842470.html)
-- Aug 04 - [Married 29 Years, A Nurse Built A Real Estate Portfolio Alone. 'He Goes To Play Golf Whenever He Gets A Chance,' She Says About Her Husband](https://finance.yahoo.com/news/married-29-years-nurse-built-154609654.html)
-- Aug 04 - [State Department may require visa applicants to post bond of up to $15,000 to enter the US](https://www.yahoo.com/news/articles/state-department-may-require-visa-153126584.html)
+- Aug 04 - [Will Tropical Storm Dexter pose a threat to coastal Georgia? NWS predicts storm will stay away](https://www.yahoo.com/news/articles/tropical-storm-dexter-pose-threat-161331231.html)
 <!-- feed end -->
 
 ---
