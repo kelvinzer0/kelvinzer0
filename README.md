@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Tesla approves share award worth $29 billion to CEO Elon Musk](https://finance.yahoo.com/news/tesla-approves-96-million-share-102426782.html)
-- Aug 04 - [Small boat migrants will be allowed to keep their phones, minister says](https://www.yahoo.com/news/articles/small-boat-migrants-allowed-keep-102418203.html)
-- Aug 04 - [Scientists issue urgent warnings about future of vital US land: 'We don't have a lot of time'](https://www.yahoo.com/news/articles/scientists-issue-urgent-warnings-future-101538003.html)
-- Aug 04 - [Officials issue sudden order to ban all motorbikes from major city — here's what's happening](https://www.yahoo.com/news/articles/officials-issue-sudden-order-ban-100030523.html)
-- Aug 04 - [Kremlin plays down Trump submarine order, urges caution on nuclear rhetoric](https://www.yahoo.com/news/articles/kremlin-urges-caution-nuclear-rhetoric-095558039.html)
+- Aug 04 - [Saudi Arabian student, 20, stabbed to death while on placement in Cambridge](https://www.yahoo.com/news/articles/saudi-arabian-student-20-stabbed-094303706.html)
+- Aug 04 - [Earnings live: Wayfair stock soars on Q2 beat, Tyson raises revenue forecast](https://finance.yahoo.com/news/live/earnings-live-wayfair-stock-soars-on-q2-beat-tyson-raises-revenue-forecast-122208056.html)
+- Aug 04 - [New York governor hits back at Ted Cruz after trolling her for wearing headscarf at NYPD officer’s funeral](https://www.yahoo.com/news/articles/york-governor-hits-back-ted-111108525.html)
+- Aug 04 - [Officials issue warning after unexpected creature shows up in dog park: 'Been known to go out of their way to kick a dog'](https://www.yahoo.com/news/articles/officials-issue-warning-unexpected-creature-111506517.html)
+- Aug 04 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/articles/rfk-jr-stunning-claim-black-110017938.html)
 <!-- feed end -->
 
 ---
