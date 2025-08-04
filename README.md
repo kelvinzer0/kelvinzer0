@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Reform UK announces expert on ghosts and UFOs as latest defection to party](https://www.yahoo.com/news/articles/reform-uk-announces-ghost-ufo-131413944.html)
-- Aug 04 - ['A fake narrative': Footage of 'bustling' Gaza markets counter Hamas starvation claims](https://www.yahoo.com/news/articles/fake-narrative-footage-bustling-gaza-175046795.html)
-- Aug 04 - [Mitch McConnell's legacy comes under fire in Kentucky race to replace him in the Senate](https://www.yahoo.com/news/articles/mitch-mcconnells-legacy-comes-under-172431921.html)
+- Aug 04 - [Motorcyclist killed in Highway 1 crash, say Langley RCMP](https://www.yahoo.com/news/articles/motorcyclist-killed-highway-1-crash-193808124.html)
+- Aug 04 - [Tommy Robinson arrested in connection to assault](https://www.yahoo.com/news/articles/tommy-robinson-arrested-connection-assault-192421509.html)
+- Aug 04 - [Tennessee set to execute inmate without turning off his implanted defibrillator](https://www.yahoo.com/news/articles/tennessee-set-execute-inmate-without-190546000.html)
+- Aug 04 - [3rd person arrested for allegedly helping a Tennessee fugitive wanted in family's killings](https://www.yahoo.com/news/articles/3rd-person-arrested-allegedly-helping-185109078.html)
 - Aug 04 - [These Common U.S. Medications Are Banned Overseas—What to Know Before Packing Meds for Your Next Trip](https://www.yahoo.com/lifestyle/articles/common-u-medications-banned-overseas-171726550.html)
-- Aug 04 - [White House Orders NASA to Destroy Important Satellite](https://www.yahoo.com/news/articles/white-house-orders-nasa-destroy-171440771.html)
 <!-- feed end -->
 
 ---
