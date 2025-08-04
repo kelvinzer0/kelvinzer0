@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [Reform UK announces expert on ghosts and UFOs as latest defection to party](https://www.yahoo.com/news/articles/reform-uk-announces-ghost-ufo-131413944.html)
+- Aug 04 - [Two states are winning in the AI data center construction boom. Check out our map.](https://finance.yahoo.com/news/two-states-winning-ai-data-171336354.html)
 - Aug 04 - [The jobs data revisions that cost a US government statistician her job](https://www.yahoo.com/news/articles/jobs-data-revisions-cost-us-164503944.html)
-- Aug 04 - [Winds Fuel ‘Erratic’ California Gifford Fire Causing Evacuations](https://www.yahoo.com/news/videos/winds-fuel-erratic-california-gifford-163449404.html)
-- Aug 04 - ['I am sickened': Frontier man sentenced on various counts of possessing child abuse images](https://www.yahoo.com/news/articles/am-sickened-frontier-man-sentenced-162818679.html)
-- Aug 04 - [Hundreds ready to be arrested at mass protest against Palestine Action terror ban](https://www.yahoo.com/news/articles/hundreds-ready-arrested-mass-protest-133844722.html)
-- Aug 04 - [Will Tropical Storm Dexter pose a threat to coastal Georgia? NWS predicts storm will stay away](https://www.yahoo.com/news/articles/tropical-storm-dexter-pose-threat-161331231.html)
+- Aug 04 - [Trump Loses It as Elizabeth Warren Exposes His Terrible Economy](https://www.yahoo.com/news/articles/trump-blows-fuse-elizabeth-warren-162210592.html)
+- Aug 04 - [Former Commerce Secretary Wilbur Ross weighs in on Trump firing of BLS commissioner: Opening Bid top takeaway](https://finance.yahoo.com/news/former-commerce-secretary-wilbur-ross-weighs-in-on-trump-firing-of-bls-commissioner-opening-bid-top-takeaway-160453499.html)
 <!-- feed end -->
 
 ---
