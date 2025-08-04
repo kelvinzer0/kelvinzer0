@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [12-year-old Gaza refugee brought to Atlanta as apart of massive medical evacuation](https://www.yahoo.com/news/articles/12-old-gaza-refugee-brought-015938810.html)
-- Aug 04 - [Sean ‘Diddy’ Combs’ ex Gina Huynh, who dropped out of his case as ‘Victim-3,’ writes letter to judge pushing for his release](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-ex-gina-000440664.html)
+- Aug 04 - [The White House is about to get even more white.](https://www.yahoo.com/news/videos/white-house-even-more-white-040320641.html)
 - Aug 04 - [8 decades after atomic bombing in Hiroshima, search for missing continues on nearby island](https://www.yahoo.com/news/articles/8-decades-atomic-bombing-hiroshima-010246741.html)
+- Aug 04 - [Doctors Without Borders CEO Stunned By ABC's Bizarre Question On Gaza Starvation](https://www.yahoo.com/news/articles/doctors-without-borders-ceo-stunned-002457124.html)
 - Aug 04 - [Stock market today: Dow, S&P 500, Nasdaq futures climb with tariffs and jobs data in focus](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-climb-with-tariffs-and-jobs-data-in-focus-001913499.html)
-- Aug 04 - [Dave Ramsey Says, 'You're Not Broke Because You Don't Make Enough. You're Broke Because You Give Your Income To Everyone Else'](https://finance.yahoo.com/news/dave-ramsey-says-youre-not-000133423.html)
+- Aug 04 - [China pushes back at US demands to stop buying Russian and Iranian oil](https://finance.yahoo.com/news/china-pushes-back-us-demands-001144514.html)
 <!-- feed end -->
 
 ---
