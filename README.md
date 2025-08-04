@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Israel euthanizes crocodiles after repeated escapes and inhumane treatment](https://www.yahoo.com/news/articles/israel-euthanizes-crocodiles-repeated-escapes-140325734.html)
-- Aug 04 - [Stock market today: Dow, S&P 500, Nasdaq climb in bounce back from Friday sell-off](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-climb-in-bounce-back-from-friday-sell-off-133143579.html)
-- Aug 04 - [South African farm worker says he was forced to feed women to pigs](https://www.yahoo.com/news/articles/farmer-accused-feeding-women-pigs-092724126.html)
-- Aug 04 - [Tesla awards CEO Musk millions of shares valued at about 29 billion dollars](https://www.yahoo.com/news/articles/tesla-awards-ceo-musk-millions-130457023.html)
-- Aug 04 - [A Guard Told Me There Was An Active Shooter Nearby. It Was The 3 Words He Said Next That Truly Scared Me.](https://www.yahoo.com/news/articles/guard-told-active-shooter-nearby-120628792.html)
+- Aug 04 - [Reform UK announces expert on ghosts and UFOs as latest defection to party](https://www.yahoo.com/news/articles/reform-uk-announces-ghost-ufo-131413944.html)
+- Aug 04 - [After a decade of death, Canadian scientists say they've found the sea star killer](https://www.yahoo.com/news/articles/decade-death-canadian-scientists-theyve-150000896.html)
+- Aug 04 - [Pictured: Saudi Arabian student, 20, stabbed to death in Cambridge](https://www.yahoo.com/news/articles/saudi-arabian-student-20-stabbed-094303706.html)
+- Aug 04 - [US Factory Orders Decline by 4.8%](https://finance.yahoo.com/video/us-factory-orders-decline-4-143817340.html)
+- Aug 04 - [Enough Is Enough: San Diego Police Seize, Destroy Street Takeover Cars](https://autos.yahoo.com/articles/enough-enough-san-diego-police-143000930.html)
 <!-- feed end -->
 
 ---
