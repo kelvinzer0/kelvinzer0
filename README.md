@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 04 - [South African farm worker says he was forced to feed women to pigs](https://www.yahoo.com/news/articles/farmer-accused-feeding-women-pigs-092724126.html)
+- Aug 04 - [UAE summer temperatures surge near record highs after hottest ever spring](https://www.yahoo.com/news/articles/uae-summer-temperatures-surge-near-131038653.html)
+- Aug 04 - [Tesla awards CEO Musk millions of shares valued at about 29 billion dollars](https://www.yahoo.com/news/articles/tesla-awards-ceo-musk-millions-130457023.html)
+- Aug 04 - [What are impact-resistant shingles, and are they worth the investment?](https://local.yahoo.com/roofing/article/what-are-impact-resistant-shingles-130015303.html)
 - Aug 04 - [Saudi Arabian student, 20, stabbed to death while on placement in Cambridge](https://www.yahoo.com/news/articles/saudi-arabian-student-20-stabbed-094303706.html)
-- Aug 04 - [Earnings live: Wayfair stock soars on Q2 beat, Tyson raises revenue forecast](https://finance.yahoo.com/news/live/earnings-live-wayfair-stock-soars-on-q2-beat-tyson-raises-revenue-forecast-122208056.html)
-- Aug 04 - [New York governor hits back at Ted Cruz after trolling her for wearing headscarf at NYPD officer’s funeral](https://www.yahoo.com/news/articles/york-governor-hits-back-ted-111108525.html)
-- Aug 04 - [Officials issue warning after unexpected creature shows up in dog park: 'Been known to go out of their way to kick a dog'](https://www.yahoo.com/news/articles/officials-issue-warning-unexpected-creature-111506517.html)
-- Aug 04 - [RFK Jr.'s Stunning Claim About Black People And Vaccines Sparks Concern From Medical Experts](https://www.yahoo.com/news/articles/rfk-jr-stunning-claim-black-110017938.html)
 <!-- feed end -->
 
 ---
