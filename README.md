@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [Robert Thomson, CEO Of Rupert Murdoch’s News Corp, Waggishly Notes That Donald Trump Is Among Authors Hurt By “Blatant Theft” Of AI: “The Art Of The Deal Has Become The Art Of The Steal”](https://finance.yahoo.com/news/robert-thompson-ceo-rupert-murdoch-213406834.html)
 - Aug 05 - [Federal judge rules Trump administration cannot reallocate billions meant for disaster mitigation](https://www.yahoo.com/news/articles/federal-judge-rules-trump-administration-203027960.html)
-- Aug 05 - ["Another Day Of Reality Eroding Before Our Eyes": People Can't Believe Donald Trump Actually Made This Claim About Lowering Drug Prices](https://www.yahoo.com/news/articles/another-day-reality-eroding-eyes-192404638.html)
+- Aug 05 - [Mom, 58, Used a 'Miracle' GLP to 'Be Thin' for Her Son’s Wedding. She Claims It Made Her So Sick She Almost Missed the Big Day](https://health.yahoo.com/your-body/weight-management/weight-loss/articles/mom-58-used-miracle-glp-194548296.html)
 - Aug 05 - [Man Who Lost 8,000 Bitcoin Now Worth $900 Million Wants To Tokenize Entire Wallet In Bid To Assert Claim On Dumped Fortune](https://finance.yahoo.com/news/man-lost-8-000-bitcoin-183039084.html)
-- Aug 05 - [Trump administration formally axes Elon Musk's 'five things' email](https://www.yahoo.com/news/articles/exclusive-trump-administration-formally-axe-165607950.html)
-- Aug 05 - [Trump says major US banks 'discriminated against me' as White House preps debanking executive order](https://finance.yahoo.com/news/trump-says-major-us-banks-discriminated-against-me-as-white-house-preps-debanking-executive-order-150942081.html)
+- Aug 05 - [Our Best Look At China’s New J-15DT Carrier-Based Electronic Warfare Jet](https://www.yahoo.com/news/articles/best-look-china-j-15dt-173317684.html)
 <!-- feed end -->
 
 ---
