@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [ICE agents detain Purdue University student in New York](https://www.yahoo.com/news/videos/ice-agents-detain-purdue-university-033527288.html)
-- Aug 05 - [Israel’s Netanyahu has decided on full occupation of Gaza, reports say](https://www.yahoo.com/news/articles/israel-netanyahu-decided-full-occupation-031446409.html)
 - Aug 05 - [Border agents directed to stop deportations under Trump's asylum ban after court order, CBS News reports](https://www.yahoo.com/news/articles/border-agents-directed-stop-deportations-020818320.html)
 - Aug 05 - [Texas Deputy Jennifer Escalera Under Fire After Saying She’ll Hand Out Tickets Because She “Didn’t Get Cracked”](https://www.yahoo.com/entertainment/articles/texas-deputy-jennifer-escalera-under-011218541.html)
 - Aug 05 - [Wild pigs found with blue-dyed meat in California. Why officials are issuing a warning](https://www.yahoo.com/news/articles/wild-pigs-found-blue-dyed-003653343.html)
+- Aug 04 - [Company advised by Trump sons said it hoped to benefit from fed money, then took it back](https://finance.yahoo.com/news/company-advised-trump-sons-said-233046566.html)
+- Aug 04 - [Owners of cargo ship that crashed into Baltimore bridge sue company that built vessel](https://www.yahoo.com/news/articles/owners-cargo-ship-crashed-baltimore-223839480.html)
 <!-- feed end -->
 
 ---
