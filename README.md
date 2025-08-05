@@ -29,8 +29,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [US trade deficit narrows to $60.2 billion in June](https://finance.yahoo.com/news/us-trade-deficit-narrows-60-124952910.html)
-- Aug 05 - [I've done the math: I can retire at 66 with $550,000 in the bank — and not a penny more. How do I make it last?](https://finance.yahoo.com/news/ive-done-math-retire-66-123000673.html)
+- Aug 05 - [Trump again threatens to 'very substantially' hike tariffs on India over Russian oil](https://www.yahoo.com/news/articles/india-accuses-eu-us-double-111410805.html)
+- Aug 05 - [Exclusive: Intel struggles with key manufacturing process for next PC chip, sources say](https://finance.yahoo.com/news/exclusive-intel-struggles-key-manufacturing-110219468.html)
 - Aug 05 - [Putin doubts potency of Trump's ultimatum to end the war, sources say](https://www.yahoo.com/news/articles/exclusive-putin-doubts-potency-trumps-104738158.html)
 - Aug 05 - [Teachers Are Sharing The Most Shocking Student Drama They've Witnessed, And My Jaw Is On The Ground](https://www.yahoo.com/lifestyle/articles/teachers-sharing-most-shocking-student-103102633.html)
 - Aug 05 - [Mortgage and refinance interest rates today, August 5, 2025: Rates finally drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-august-5-2025-100023424.html)
