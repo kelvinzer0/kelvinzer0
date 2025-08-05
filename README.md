@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Israel to allow vetted Palestinians to help with aid distribution](https://www.yahoo.com/news/articles/israel-allow-vetted-palestinians-help-081222909.html)
 - Aug 05 - [Hiroshima prepares to mark 80 years since atomic bombing](https://www.yahoo.com/news/videos/hiroshima-prepares-mark-80-years-075006851.html)
-- Aug 05 - [A Korean university student and daughter of a priest was detained by ICE. Faith leaders rallied to secure her release](https://www.yahoo.com/news/articles/korean-university-student-daughter-priest-095855256.html)
+- Aug 05 - ['Mark My Words': George Conway's Chilling Trump Prediction Is 'Just A Matter Of Time'](https://www.yahoo.com/news/articles/mark-words-george-conways-chilling-073136097.html)
 - Aug 05 - [Border agents directed to stop deportations under Trump's asylum ban after court order, CBS News reports](https://www.yahoo.com/news/articles/border-agents-directed-stop-deportations-020818320.html)
 - Aug 05 - [Texas Deputy Jennifer Escalera Under Fire After Saying She’ll Hand Out Tickets Because She “Didn’t Get Cracked”](https://www.yahoo.com/entertainment/articles/texas-deputy-jennifer-escalera-under-011218541.html)
+- Aug 05 - [Wild pigs found with blue-dyed meat in California. Why officials are issuing a warning](https://www.yahoo.com/news/articles/wild-pigs-found-blue-dyed-003653343.html)
 <!-- feed end -->
 
 ---
