@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 04 - [Sean ‘Diddy’ Combs’ ex Gina Huynh, who dropped out of his case as ‘Victim-3,’ writes letter to judge pushing for his release](https://www.yahoo.com/entertainment/articles/sean-diddy-combs-ex-gina-000440664.html)
+- Aug 05 - [Teen shot in Waynesboro in road rage incident](https://www.yahoo.com/news/articles/teen-shot-waynesboro-road-rage-003941526.html)
+- Aug 04 - [Company advised by Trump sons said it hoped to benefit from fed money, then took it back](https://finance.yahoo.com/news/company-advised-trump-sons-said-233046566.html)
 - Aug 04 - [Judge orders Florida, federal officials to produce 'Alligator Alcatraz' agreements](https://www.yahoo.com/news/articles/judge-orders-florida-federal-officials-213016262.html)
 - Aug 04 - [Funeral home owner who sent families fake ashes pleads guilty to fraud](https://www.yahoo.com/news/articles/colorado-funeral-home-owner-accused-202006145.html)
-- Aug 04 - [Top analyst says the next 5 years could see ‘no growth in workers at all’ and sends a warning about the fate of the U.S. economy](https://finance.yahoo.com/news/top-analyst-says-next-5-194528362.html)
-- Aug 04 - [Police identify suspect in fatal hit-and-run in South-Central El Paso](https://www.yahoo.com/news/articles/police-identify-suspect-fatal-hit-191828229.html)
+- Aug 04 - [Highly contagious disease surges in some US states amid report of possible fatal case](https://www.yahoo.com/news/articles/highly-contagious-disease-surges-us-194653989.html)
 <!-- feed end -->
 
 ---
