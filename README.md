@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [India and the Philippines announce partnership to strengthen trade, defense and maritime ties](https://www.yahoo.com/news/articles/india-philippines-announce-partnership-strengthen-105105414.html)
-- Aug 05 - ['Mark My Words': George Conway's Chilling Trump Prediction Is 'Just A Matter Of Time'](https://www.yahoo.com/news/articles/mark-words-george-conways-chilling-073136097.html)
-- Aug 05 - [Chinese government has 'final say' in Dalai Lama reincarnation, Tibetan official says](https://www.yahoo.com/news/articles/chinese-government-final-dalai-lama-053209764.html)
-- Aug 05 - [Border agents directed to stop deportations under Trump's asylum ban after court order, CBS News reports](https://www.yahoo.com/news/articles/border-agents-directed-stop-deportations-020818320.html)
-- Aug 05 - [Texas Deputy Jennifer Escalera Under Fire After Saying She’ll Hand Out Tickets Because She “Didn’t Get Cracked”](https://www.yahoo.com/entertainment/articles/texas-deputy-jennifer-escalera-under-011218541.html)
+- Aug 05 - [I Can't Lie, I'm Excited About Amazon Stock After Its Recent Earnings Report. Here's Why.](https://finance.yahoo.com/news/cant-lie-im-excited-amazon-111900883.html)
+- Aug 05 - [Exclusive-Putin doubts potency of Trump's ultimatum to end the war, sources say](https://www.yahoo.com/news/articles/exclusive-putin-doubts-potency-trumps-104738158.html)
+- Aug 05 - [Democrats Have Found Their Message—and Trump Is Freaking Out](https://www.yahoo.com/news/articles/democrats-found-message-trump-freaking-100000983.html)
+- Aug 05 - [Russia says it no longer will abide by its self-imposed moratorium on intermediate-range missiles](https://www.yahoo.com/news/articles/russia-says-no-longer-abide-095457070.html)
+- Aug 05 - [Russia's Plot to Kill a German Defense CEO](https://finance.yahoo.com/video/russias-plot-kill-german-defense-093133345.html)
 <!-- feed end -->
 
 ---
