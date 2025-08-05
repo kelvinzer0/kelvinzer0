@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 05 - [Mexico reveals plans to address Pemex debt, boost investment](https://finance.yahoo.com/news/mexico-reveals-plans-address-pemex-155725212.html)
+- Aug 05 - [Trump wonders if ‘low IQ’ foe Jasmine Crockett ‘is any relationship to the late, great Davy’ as he rips ‘lost’ Democrats](https://www.yahoo.com/news/articles/trump-wonders-low-iq-foe-154408148.html)
+- Aug 05 - [Trump says major US banks 'discriminated against me' as White House preps debanking executive order](https://finance.yahoo.com/news/trump-says-major-us-banks-discriminated-against-me-as-white-house-preps-debanking-executive-order-150942081.html)
+- Aug 05 - [Duke Dennis Arrested After Supposed Game Of Hide-And-Seek With Kai Cenat](https://www.yahoo.com/entertainment/articles/duke-dennis-arrested-supposed-game-144805672.html)
 - Aug 05 - [Police arrest suspect in killings of 4 Tennessee family members](https://www.yahoo.com/news/articles/police-arrest-suspect-killings-4-143211054.html)
-- Aug 05 - [Cameras around popular hiking trail capture jaw-dropping moment that's leaving experts stumped: 'This is very unusual behavior'](https://www.yahoo.com/news/articles/cameras-around-popular-hiking-trail-115500405.html)
-- Aug 05 - [Homeowner stunned after HOA suddenly demands $50,000 property fix: 'What are my rights?'](https://www.yahoo.com/news/articles/homeowner-stunned-hoa-suddenly-demands-114519786.html)
-- Aug 05 - [Authorities make disturbing bust after cracking down on sale at local market: 'Strictly prohibited'](https://www.yahoo.com/news/articles/authorities-disturbing-bust-cracking-down-114514967.html)
-- Aug 05 - [Exclusive: Intel struggles with key manufacturing process for next PC chip, sources say](https://finance.yahoo.com/news/exclusive-intel-struggles-key-manufacturing-110219468.html)
 <!-- feed end -->
 
 ---
