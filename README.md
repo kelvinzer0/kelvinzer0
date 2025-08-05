@@ -31,7 +31,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Aug 05 - [Border agents directed to stop deportations under Trump's asylum ban after court order, CBS News reports](https://www.yahoo.com/news/articles/border-agents-directed-stop-deportations-020818320.html)
 - Aug 05 - [Texas Deputy Jennifer Escalera Under Fire After Saying She’ll Hand Out Tickets Because She “Didn’t Get Cracked”](https://www.yahoo.com/entertainment/articles/texas-deputy-jennifer-escalera-under-011218541.html)
-- Aug 05 - [San Diego faces lawsuit over 136-unit ADU project proposal](https://www.yahoo.com/news/articles/san-diego-faces-lawsuit-over-003816340.html)
+- Aug 05 - [Right-wing media personality Alex Stein interrupted an NBC News broadcast to share his feelings—and MAGA loved every moment.](https://www.yahoo.com/news/videos/wing-media-personality-alex-stein-005432550.html)
 - Aug 05 - [Wild pigs found with blue-dyed meat in California. Why officials are issuing a warning](https://www.yahoo.com/news/articles/wild-pigs-found-blue-dyed-003653343.html)
 - Aug 04 - [Company advised by Trump sons said it hoped to benefit from fed money, then took it back](https://finance.yahoo.com/news/company-advised-trump-sons-said-233046566.html)
 <!-- feed end -->
