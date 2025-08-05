@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [I Can't Lie, I'm Excited About Amazon Stock After Its Recent Earnings Report. Here's Why.](https://finance.yahoo.com/news/cant-lie-im-excited-amazon-111900883.html)
-- Aug 05 - [Exclusive-Putin doubts potency of Trump's ultimatum to end the war, sources say](https://www.yahoo.com/news/articles/exclusive-putin-doubts-potency-trumps-104738158.html)
-- Aug 05 - [Democrats Have Found Their Message—and Trump Is Freaking Out](https://www.yahoo.com/news/articles/democrats-found-message-trump-freaking-100000983.html)
-- Aug 05 - [Russia says it no longer will abide by its self-imposed moratorium on intermediate-range missiles](https://www.yahoo.com/news/articles/russia-says-no-longer-abide-095457070.html)
-- Aug 05 - [Russia's Plot to Kill a German Defense CEO](https://finance.yahoo.com/video/russias-plot-kill-german-defense-093133345.html)
+- Aug 05 - [US trade deficit narrows to $60.2 billion in June](https://finance.yahoo.com/news/us-trade-deficit-narrows-60-124952910.html)
+- Aug 05 - [I've done the math: I can retire at 66 with $550,000 in the bank — and not a penny more. How do I make it last?](https://finance.yahoo.com/news/ive-done-math-retire-66-123000673.html)
+- Aug 05 - [Putin doubts potency of Trump's ultimatum to end the war, sources say](https://www.yahoo.com/news/articles/exclusive-putin-doubts-potency-trumps-104738158.html)
+- Aug 05 - [Teachers Are Sharing The Most Shocking Student Drama They've Witnessed, And My Jaw Is On The Ground](https://www.yahoo.com/lifestyle/articles/teachers-sharing-most-shocking-student-103102633.html)
+- Aug 05 - [Mortgage and refinance interest rates today, August 5, 2025: Rates finally drop](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-august-5-2025-100023424.html)
 <!-- feed end -->
 
 ---
