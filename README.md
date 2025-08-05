@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Aug. 5 might be one of the shortest days of the year: Here's why](https://www.yahoo.com/news/articles/aug-5-might-one-shortest-173208329.html)
-- Aug 05 - [2-year-old dies following crash on I-64 in Hampton](https://www.yahoo.com/news/articles/2-old-dies-following-hampton-171700814.html)
 - Aug 05 - [Trump administration formally axes Elon Musk's 'five things' email](https://www.yahoo.com/news/articles/exclusive-trump-administration-formally-axe-165607950.html)
+- Aug 05 - [Trump administration allows six more states to bar SNAP benefits for processed food](https://www.yahoo.com/news/articles/trump-administration-allows-six-more-164108374.html)
 - Aug 05 - [Americans Hate Only One Person More Than Benjamin Netanyahu: Poll](https://www.yahoo.com/news/articles/americans-hate-only-one-person-162335662.html)
-- Aug 05 - [Trump says major US banks 'discriminated against me' as White House preps debanking executive order](https://finance.yahoo.com/news/trump-says-major-us-banks-discriminated-against-me-as-white-house-preps-debanking-executive-order-150942081.html)
+- Aug 05 - [Philippines condemns China's rocket launch after suspected debris sparked alarm](https://www.yahoo.com/news/articles/philippines-condemns-chinas-rocket-launch-151502064.html)
+- Aug 05 - [Bear Charges at NHL Seattle Kraken Mascot Filming in Alaska Wilderness — See the Frightening Footage](https://sports.yahoo.com/article/bear-charges-nhl-seattle-kraken-142859312.html)
 <!-- feed end -->
 
 ---
