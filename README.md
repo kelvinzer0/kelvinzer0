@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Mexico reveals plans to address Pemex debt, boost investment](https://finance.yahoo.com/news/mexico-reveals-plans-address-pemex-155725212.html)
-- Aug 05 - [Trump wonders if ‘low IQ’ foe Jasmine Crockett ‘is any relationship to the late, great Davy’ as he rips ‘lost’ Democrats](https://www.yahoo.com/news/articles/trump-wonders-low-iq-foe-154408148.html)
+- Aug 05 - [AOC hit with ethics violation after saying fiancé both is and isn’t her ‘spouse’ in government filings](https://www.yahoo.com/news/articles/republicans-slap-aoc-fresh-ethics-210930949.html)
+- Aug 05 - [High-grade US firms finance new M&A with more equity and cash, less debt](https://finance.yahoo.com/news/high-grade-us-firms-finance-163221280.html)
 - Aug 05 - [Trump says major US banks 'discriminated against me' as White House preps debanking executive order](https://finance.yahoo.com/news/trump-says-major-us-banks-discriminated-against-me-as-white-house-preps-debanking-executive-order-150942081.html)
-- Aug 05 - [Duke Dennis Arrested After Supposed Game Of Hide-And-Seek With Kai Cenat](https://www.yahoo.com/entertainment/articles/duke-dennis-arrested-supposed-game-144805672.html)
+- Aug 05 - [Celebrity Cruises faces issue; Royal Caribbean tightens key rule](https://www.yahoo.com/lifestyle/articles/celebrity-cruises-faces-issue-royal-143800113.html)
 - Aug 05 - [Police arrest suspect in killings of 4 Tennessee family members](https://www.yahoo.com/news/articles/police-arrest-suspect-killings-4-143211054.html)
 <!-- feed end -->
 
