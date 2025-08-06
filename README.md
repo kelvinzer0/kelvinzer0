@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Donald Trump Calls Top Cabinet Member By Wrong Name, While She's Standing Right There](https://www.yahoo.com/news/articles/donald-trump-calls-top-cabinet-100618964.html)
 - Aug 06 - [The key pillar of Russia's war chest is cracking. The timing couldn't be worse.](https://finance.yahoo.com/news/key-pillar-russias-war-chest-073929713.html)
-- Aug 05 - [Death Row Inmate with Heart Device Cries Out During Execution — His Lawyers Say It May Have Shocked Him as He Died](https://www.yahoo.com/news/articles/death-row-inmate-heart-device-223140310.html)
-- Aug 05 - [Robert Thomson, CEO Of Rupert Murdoch’s News Corp, Waggishly Notes That Donald Trump Is Among Authors Hurt By “Blatant Theft” Of AI: “The Art Of The Deal Has Become The Art Of The Steal”](https://finance.yahoo.com/news/robert-thompson-ceo-rupert-murdoch-213406834.html)
+- Aug 06 - ["There Are No Consequences If You're Rich": People Are Sharing The Biggest Scandal From Their High School That Still Lives Rent-Free In Their Minds](https://www.yahoo.com/lifestyle/articles/no-consequences-youre-rich-people-033104628.html)
+- Aug 05 - [The comments came hours after Trump once again floated the idea of a third term.](https://www.yahoo.com/news/videos/comments-came-hours-trump-once-221326436.html)
+- Aug 05 - [Former Idaho football coach, accused of sexual abuse of a minor, arrested again](https://www.yahoo.com/news/articles/former-idaho-football-coach-accused-204839068.html)
 - Aug 05 - [Federal judge rules Trump administration cannot reallocate billions meant for disaster mitigation](https://www.yahoo.com/news/articles/federal-judge-rules-trump-administration-203027960.html)
 <!-- feed end -->
 
