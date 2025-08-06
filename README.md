@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 05 - [Robert Thomson, CEO Of Rupert Murdoch’s News Corp, Waggishly Notes That Donald Trump Is Among Authors Hurt By “Blatant Theft” Of AI: “The Art Of The Deal Has Become The Art Of The Steal”](https://finance.yahoo.com/news/robert-thompson-ceo-rupert-murdoch-213406834.html)
+- Aug 06 - [Wall of water slams Himalayan village, leaving multiple dead and dozens feared trapped or missing](https://www.yahoo.com/news/articles/wall-water-carved-himalayan-village-234822065.html)
+- Aug 06 - [Doge staffer ‘Big Balls’ beaten in brutal attempted carjacking](https://www.yahoo.com/news/articles/doge-staffer-big-balls-beaten-010554795.html)
+- Aug 05 - [Federal judge rules Trump administration cannot reallocate billions meant for disaster mitigation](https://www.yahoo.com/news/articles/federal-judge-rules-trump-administration-203027960.html)
 - Aug 05 - [Mom, 58, Used a 'Miracle' GLP to 'Be Thin' for Her Son’s Wedding. She Claims It Made Her So Sick She Almost Missed the Big Day](https://health.yahoo.com/your-body/weight-management/weight-loss/articles/mom-58-used-miracle-glp-194548296.html)
-- Aug 05 - [Two Chinese nationals in California accused of illegally shipping Nvidia AI chips to China](https://finance.yahoo.com/news/two-chinese-nationals-california-accused-193312577.html)
-- Aug 05 - [Cathie Wood splurges $4.1 million on popular AI stock](https://finance.yahoo.com/news/cathie-wood-splurges-4-1-191300323.html)
-- Aug 05 - [Hezbollah chief says missiles will fall on Israel if it resumes war on Lebanon](https://www.yahoo.com/news/articles/hezbollah-chief-says-missiles-fall-165927394.html)
+- Aug 05 - [Laura Loomer Is Getting a Taste of Her Own Medicine](https://www.yahoo.com/news/articles/laura-loomer-influence-already-backfiring-164129009.html)
 <!-- feed end -->
 
 ---
