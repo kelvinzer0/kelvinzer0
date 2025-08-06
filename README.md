@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Apollo Buys Hyperscale Data Center Developer](https://finance.yahoo.com/video/apollo-buys-hyperscale-data-center-154642294.html)
 - Aug 06 - [Trump Calls Into CNBC to Tout High Poll Numbers, Cites Analyst Who Immediately Refutes Him: ‘2nd Lowest on Record’ | Video](https://www.yahoo.com/news/articles/trump-calls-cnbc-tout-high-144800958.html)
-- Aug 06 - [Mountain Gap MS principal issues statement on 8th-grader hit, killed by car](https://www.yahoo.com/news/articles/mountain-gap-ms-principal-issues-143938170.html)
-- Aug 06 - [US hunter reportedly killed by buffalo during expedition in South Africa](https://www.yahoo.com/news/articles/us-hunter-reportedly-killed-buffalo-140402193.html)
-- Aug 06 - [PHOTO ESSAY: Portraits of survivors of Israel's pager attack on Hezbollah last year](https://www.yahoo.com/news/articles/photo-essay-portraits-survivors-israels-130112290.html)
+- Aug 06 - ["Despicable Humans": People Are Losing It After A Pennsylvania Lawmaker Said That "Not Every Wage Is Designed To Be A Livable Wage"](https://www.yahoo.com/news/articles/despicable-humans-people-losing-pennsylvania-143942534.html)
+- Aug 06 - [Survivors of Israel's pager attack on Hezbollah last year struggle to recover](https://www.yahoo.com/news/articles/survivors-israels-pager-attack-hezbollah-130031816.html)
+- Aug 06 - [This U.S. Destination Was Just Named the No. 1 'City on the Rise' for Its Affordability and Job Market](https://www.yahoo.com/news/articles/u-destination-just-named-no-125300865.html)
+- Aug 06 - [Cloudburst Blamed For Deadly Floods In Northern India](https://www.yahoo.com/news/videos/cloudburst-blamed-deadly-floods-northern-115458909.html)
 <!-- feed end -->
 
 ---
