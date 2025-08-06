@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [France’s biggest wildfire this summer still spreading](https://www.yahoo.com/news/videos/france-biggest-wildfire-summer-still-214554011.html)
+- Aug 06 - [District attorneys says Alabama teen killed by police had grabbed a gun](https://www.yahoo.com/news/articles/district-attorneys-says-alabama-teen-223759040.html)
+- Aug 06 - [If You're Suddenly Gaining Weight Despite Doing Everything 'Right,' Doctors Say This Might Be Why](https://health.yahoo.com/your-body/weight-management/weight-loss/articles/youre-suddenly-gaining-weight-despite-213500604.html)
+- Aug 06 - [Stuck astronaut Butch Wilmore retires from NASA less than 5 months after extended spaceflight](https://www.yahoo.com/news/articles/stuck-astronaut-butch-wilmore-retires-213201760.html)
 - Aug 06 - [Library of Congress Website Deleted Part of the Constitution That Trump Doesn't Like. Now They're Calling It a 'Coding Error'](https://www.yahoo.com/news/articles/library-congress-website-deleted-part-194147764.html)
-- Aug 06 - [Massive central California wildfire keeps growing and becomes state's largest blaze of the year](https://www.yahoo.com/news/articles/massive-central-california-wildfire-keeps-185143921.html)
-- Aug 06 - [Nvidia's ‘most underappreciated’ business is taking off like a 'rocket ship'](https://finance.yahoo.com/news/nvidias-most-underappreciated-business-is-taking-off-like-a-rocket-ship-183615113.html)
-- Aug 06 - [Cincinnati brawl victim wants onlookers who didn’t help prosecuted](https://www.yahoo.com/news/articles/cincinnati-brawl-victim-wants-onlookers-182558747.html)
+- Aug 06 - [See ‘Pathetic’ Trump rebuked by icon Bob Woodward on live TV](https://www.yahoo.com/news/videos/see-pathetic-trump-rebuked-icon-181828436.html)
 <!-- feed end -->
 
 ---
