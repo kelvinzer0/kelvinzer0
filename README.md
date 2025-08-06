@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 06 - [OpenAI in Talks for Share Sale at $500 Billion Valuation](https://finance.yahoo.com/video/openai-talks-share-sale-500-195740550.html)
 - Aug 06 - [Library of Congress Website Deleted Part of the Constitution That Trump Doesn't Like. Now They're Calling It a 'Coding Error'](https://www.yahoo.com/news/articles/library-congress-website-deleted-part-194147764.html)
 - Aug 06 - [Nvidia's ‘most underappreciated’ business is taking off like a 'rocket ship'](https://finance.yahoo.com/news/nvidias-most-underappreciated-business-is-taking-off-like-a-rocket-ship-183615113.html)
-- Aug 06 - [Five soldiers shot at the Army's Fort Stewart in Georgia](https://www.yahoo.com/news/videos/army-georgia-lockdown-report-active-162921277.html)
+- Aug 06 - [Little Rock Downtown Food Truck Festival moving to new location](https://www.yahoo.com/news/articles/little-rock-downtown-food-truck-183456009.html)
 - Aug 06 - [New Paper Finds Something Very Weird About the Shroud of Turin](https://www.yahoo.com/news/articles/paper-finds-something-very-weird-160546309.html)
-- Aug 06 - [Homeland Security removes age limits for ICE recruits to boost hiring for Trump deportations](https://www.yahoo.com/news/articles/homeland-security-removes-age-limits-160052994.html)
 <!-- feed end -->
 
 ---
