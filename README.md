@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [PHOTO ESSAY: Portraits of survivors of Israel's pager attack on Hezbollah last year](https://www.yahoo.com/news/articles/photo-essay-portraits-survivors-israels-130112290.html)
+- Aug 06 - [US hunter reportedly killed by buffalo during expedition in South Africa](https://www.yahoo.com/news/articles/us-hunter-reportedly-killed-buffalo-140402193.html)
 - Aug 06 - [Survivors of Israel's pager attack on Hezbollah last year struggle to recover](https://www.yahoo.com/news/articles/survivors-israels-pager-attack-hezbollah-130031816.html)
+- Aug 06 - [Scientists Just Found a Link Between This Popular Food and Lung Cancer](https://www.yahoo.com/news/articles/scientists-just-found-between-popular-123000229.html)
 - Aug 06 - [She thought it was just another energy drink. It took half her bodyweight and sent her to rehab.](https://www.yahoo.com/news/articles/she-thought-just-another-energy-100557845.html)
 - Aug 06 - [The key pillar of Russia's war chest is cracking. The timing couldn't be worse.](https://finance.yahoo.com/news/key-pillar-russias-war-chest-073929713.html)
-- Aug 06 - [China tackles chikungunya virus outbreak with wide range of measures as thousands fall ill](https://www.yahoo.com/news/articles/china-tackles-chikungunya-virus-outbreak-072711526.html)
 <!-- feed end -->
 
 ---
