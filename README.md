@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [OpenAI in Talks for Share Sale at $500 Billion Valuation](https://finance.yahoo.com/video/openai-talks-share-sale-500-195740550.html)
+- Aug 06 - [France’s biggest wildfire this summer still spreading](https://www.yahoo.com/news/videos/france-biggest-wildfire-summer-still-214554011.html)
 - Aug 06 - [Library of Congress Website Deleted Part of the Constitution That Trump Doesn't Like. Now They're Calling It a 'Coding Error'](https://www.yahoo.com/news/articles/library-congress-website-deleted-part-194147764.html)
+- Aug 06 - [Massive central California wildfire keeps growing and becomes state's largest blaze of the year](https://www.yahoo.com/news/articles/massive-central-california-wildfire-keeps-185143921.html)
 - Aug 06 - [Nvidia's ‘most underappreciated’ business is taking off like a 'rocket ship'](https://finance.yahoo.com/news/nvidias-most-underappreciated-business-is-taking-off-like-a-rocket-ship-183615113.html)
-- Aug 06 - [Little Rock Downtown Food Truck Festival moving to new location](https://www.yahoo.com/news/articles/little-rock-downtown-food-truck-183456009.html)
-- Aug 06 - [New Paper Finds Something Very Weird About the Shroud of Turin](https://www.yahoo.com/news/articles/paper-finds-something-very-weird-160546309.html)
+- Aug 06 - [Cincinnati brawl victim wants onlookers who didn’t help prosecuted](https://www.yahoo.com/news/articles/cincinnati-brawl-victim-wants-onlookers-182558747.html)
 <!-- feed end -->
 
 ---
