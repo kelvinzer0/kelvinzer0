@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Jake Tapper Roasts Donald Trump’s War On Numbers With Taunting New Tagline](https://www.yahoo.com/news/articles/jake-tapper-roasts-donald-trump-080113762.html)
-- Aug 06 - ["There Are No Consequences If You're Rich": People Are Sharing The Biggest Scandal From Their High School That Still Lives Rent-Free In Their Minds](https://www.yahoo.com/lifestyle/articles/no-consequences-youre-rich-people-033104628.html)
-- Aug 05 - [Trump says it is ‘up to Israel’ whether to occupy all of Gaza](https://www.yahoo.com/news/articles/trump-says-israel-whether-occupy-230422966.html)
+- Aug 06 - [Toll Brothers begins construction on multifamily community in North Carolina](https://finance.yahoo.com/news/toll-brothers-begins-construction-multifamily-084158680.html)
 - Aug 05 - [Federal judge rules Trump administration cannot reallocate billions meant for disaster mitigation](https://www.yahoo.com/news/articles/federal-judge-rules-trump-administration-203027960.html)
 - Aug 05 - [Two Chinese nationals in California accused of illegally shipping Nvidia AI chips to China](https://finance.yahoo.com/news/two-chinese-nationals-california-accused-193312577.html)
+- Aug 05 - [Trump Has Once Again Made A Ridiculous Claim On Live TV, And Everyone Is Saying The Same Thing About It](https://www.yahoo.com/news/articles/another-day-reality-eroding-eyes-192404638.html)
+- Aug 05 - [Walmart is selling a 'lightweight' $100 portable charger for just $15, and shoppers say it's 'so convenient'](https://shopping.yahoo.com/general/articles/walmart-selling-lightweight-100-portable-170320033.html)
 <!-- feed end -->
 
 ---
