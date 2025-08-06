@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 06 - [New Paper Finds Something Very Weird About the Shroud of Turin](https://www.yahoo.com/news/articles/paper-finds-something-very-weird-160546309.html)
+- Aug 06 - [Homeland Security removes age limits for ICE recruits to boost hiring for Trump deportations](https://www.yahoo.com/news/articles/homeland-security-removes-age-limits-160052994.html)
 - Aug 06 - [AI is gutting workforces—and an ex-Google exec says CEOs are too busy ‘celebrating’ their efficiency gains to see they’re next](https://www.yahoo.com/news/articles/ai-gutting-workforces-ex-google-150148959.html)
 - Aug 06 - [Trump Calls Into CNBC to Tout High Poll Numbers, Cites Analyst Who Immediately Refutes Him: ‘2nd Lowest on Record’ | Video](https://www.yahoo.com/news/articles/trump-calls-cnbc-tout-high-144800958.html)
 - Aug 06 - [This Republican Is Going Viral For His WILD 10-Word Reasoning For Not Raising The Minimum Wage In Pennsylvania](https://www.yahoo.com/news/articles/despicable-humans-people-losing-pennsylvania-143942534.html)
-- Aug 06 - [North Carolina Homeowner Says 'Neighbor Won't Let Me Sell' Due To Septic Lines On Their Lot — They Refuse To Compromise And A Fix Is $40k](https://finance.yahoo.com/news/north-carolina-homeowner-says-neighbor-141605842.html)
 <!-- feed end -->
 
 ---
