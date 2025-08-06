@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [The key pillar of Russia's war chest is cracking. The timing couldn't be worse.](https://finance.yahoo.com/news/key-pillar-russias-war-chest-073929713.html)
-- Aug 06 - ["There Are No Consequences If You're Rich": People Are Sharing The Biggest Scandal From Their High School That Still Lives Rent-Free In Their Minds](https://www.yahoo.com/lifestyle/articles/no-consequences-youre-rich-people-033104628.html)
-- Aug 05 - [The comments came hours after Trump once again floated the idea of a third term.](https://www.yahoo.com/news/videos/comments-came-hours-trump-once-221326436.html)
-- Aug 05 - [Former Idaho football coach, accused of sexual abuse of a minor, arrested again](https://www.yahoo.com/news/articles/former-idaho-football-coach-accused-204839068.html)
-- Aug 05 - [Federal judge rules Trump administration cannot reallocate billions meant for disaster mitigation](https://www.yahoo.com/news/articles/federal-judge-rules-trump-administration-203027960.html)
+- Aug 06 - [Firefighters at the scene after Russia strikes recreational center in Zaporizhzhia region](https://www.yahoo.com/news/videos/firefighters-scene-russia-strikes-recreational-120422347.html)
+- Aug 06 - [Ex-IDF gen.: Israel already occupies Gaza, refuses to allow new regime in Strip](https://www.yahoo.com/news/articles/ex-idf-gen-israel-already-114538913.html)
+- Aug 06 - [She thought it was just another energy drink. It took half her bodyweight and sent her to rehab.](https://www.yahoo.com/news/articles/she-thought-just-another-energy-100557845.html)
+- Aug 06 - [China tackles chikungunya virus outbreak with wide range of measures as thousands fall ill](https://www.yahoo.com/news/articles/china-tackles-chikungunya-virus-outbreak-072711526.html)
+- Aug 06 - [St. Johns County high school teacher arrested for lewd behavior at local beach](https://www.yahoo.com/news/articles/st-johns-county-high-school-014903345.html)
 <!-- feed end -->
 
 ---
