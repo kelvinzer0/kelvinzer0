@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Wall of water slams Himalayan village, leaving multiple dead and dozens feared trapped or missing](https://www.yahoo.com/news/articles/wall-water-carved-himalayan-village-234822065.html)
-- Aug 06 - [Doge staffer ‘Big Balls’ beaten in brutal attempted carjacking](https://www.yahoo.com/news/articles/doge-staffer-big-balls-beaten-010554795.html)
-- Aug 05 - [Federal judge rules Trump administration cannot reallocate billions meant for disaster mitigation](https://www.yahoo.com/news/articles/federal-judge-rules-trump-administration-203027960.html)
+- Aug 05 - [Death Row Inmate with Heart Device Cries Out During Execution — His Lawyers Say It May Have Shocked Him as He Died](https://www.yahoo.com/news/articles/death-row-inmate-heart-device-223140310.html)
+- Aug 05 - [The comments came hours after Trump once again floated the idea of a third term.](https://www.yahoo.com/news/videos/comments-came-hours-trump-once-221326436.html)
+- Aug 05 - [AMD data center results disappoint, shares slump](https://finance.yahoo.com/news/chipmaker-amd-forecasts-third-quarter-202104473.html)
 - Aug 05 - [Mom, 58, Used a 'Miracle' GLP to 'Be Thin' for Her Son’s Wedding. She Claims It Made Her So Sick She Almost Missed the Big Day](https://health.yahoo.com/your-body/weight-management/weight-loss/articles/mom-58-used-miracle-glp-194548296.html)
-- Aug 05 - [Laura Loomer Is Getting a Taste of Her Own Medicine](https://www.yahoo.com/news/articles/laura-loomer-influence-already-backfiring-164129009.html)
+- Aug 05 - [Cathie Wood splurges $4.1 million on popular AI stock](https://finance.yahoo.com/news/cathie-wood-splurges-4-1-191300323.html)
 <!-- feed end -->
 
 ---
