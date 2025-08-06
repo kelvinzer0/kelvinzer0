@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [Police used DNA to identify boy more than 50 years after his body was found. What happened to him remains a mystery](https://www.yahoo.com/news/articles/police-used-dna-identify-boy-014632730.html)
-- Aug 05 - [Death Row Inmate with Heart Device Cries Out During Execution — His Lawyers Say It May Have Shocked Him as He Died](https://www.yahoo.com/news/articles/death-row-inmate-heart-device-223140310.html)
+- Aug 06 - [Scientists Have Brewed a 'Super Alcohol' Theorized to Exist in Deep Space](https://www.yahoo.com/news/articles/scientists-brewed-super-alcohol-theorized-024637645.html)
+- Aug 06 - [New COVID variant 'Stratus' is spreading in the U.S. and worldwide: What are the symptoms?](https://www.yahoo.com/news/articles/covid-variant-stratus-spreading-u-004931581.html)
+- Aug 05 - [The comments came hours after Trump once again floated the idea of a third term.](https://www.yahoo.com/news/videos/comments-came-hours-trump-once-221326436.html)
 - Aug 05 - [Federal judge rules Trump administration cannot reallocate billions meant for disaster mitigation](https://www.yahoo.com/news/articles/federal-judge-rules-trump-administration-203027960.html)
 - Aug 05 - [Mom, 58, Used a 'Miracle' GLP to 'Be Thin' for Her Son’s Wedding. She Claims It Made Her So Sick She Almost Missed the Big Day](https://health.yahoo.com/your-body/weight-management/weight-loss/articles/mom-58-used-miracle-glp-194548296.html)
-- Aug 05 - [Two Chinese nationals in California accused of illegally shipping Nvidia AI chips to China](https://finance.yahoo.com/news/two-chinese-nationals-california-accused-193312577.html)
 <!-- feed end -->
 
 ---
