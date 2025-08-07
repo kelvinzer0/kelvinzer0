@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Eli Lilly beats earnings for second quarter on strong GLP-1 sales, but stock dives on GLP-1 pill trial results](https://finance.yahoo.com/news/eli-lilly-beats-earnings-for-second-quarter-on-strong-glp-1-sales-but-stock-dives-on-glp-1-pill-trial-results-110130408.html)
-- Aug 07 - [Man who fly-tipped 27 tonnes of waste on rural lane, trapping locals, to face trial](https://www.yahoo.com/news/videos/businessman-stand-trial-over-27-075208991.html)
-- Aug 07 - [Astronaut retires after returning from troubled test flight and extended stay in space](https://www.yahoo.com/news/articles/nasa-butch-wilmore-retires-astronaut-225000725.html)
-- Aug 07 - [The long-feared special forces unit that ‘wiped out’ a Russian battalion](https://www.yahoo.com/news/articles/elite-ukrainian-special-forces-unit-050000460.html)
-- Aug 07 - [The president doubled down on his claim that the issue was a Democratic “hoax” with an added expletive.](https://www.yahoo.com/news/videos/president-doubled-down-claim-issue-000239962.html)
+- Aug 07 - [China tests spacecraft it hopes will put first Chinese on the moon](https://www.yahoo.com/news/articles/china-tests-spacecraft-hopes-put-121755599.html)
+- Aug 07 - [Linda McMahon tried to keep speaking at a conservative conference as the music, including the ‘Curb Your Enthusiasm’ theme, blasted from the sound system.](https://www.yahoo.com/news/videos/linda-mcmahon-tried-keep-speaking-120636378.html)
+- Aug 07 - [Trump calls on 'highly conflicted' Intel CEO to resign over China ties](https://www.yahoo.com/news/articles/trump-calls-intel-ceo-resign-115137575.html)
+- Aug 07 - [Police identify 'innocent bystander' killed in Over-the-Rhine shooting](https://www.yahoo.com/news/articles/police-identify-innocent-bystander-killed-112410275.html)
+- Aug 07 - [The US Air Force wants to buy Cybertrucks for target practice because they may start showing up on the battlefield](https://www.yahoo.com/news/articles/us-air-force-wants-buy-111637617.html)
 <!-- feed end -->
 
 ---
