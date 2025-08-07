@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [China tests spacecraft it hopes will put first Chinese on the moon](https://www.yahoo.com/news/articles/china-tests-spacecraft-hopes-put-121755599.html)
-- Aug 07 - [Linda McMahon tried to keep speaking at a conservative conference as the music, including the ‘Curb Your Enthusiasm’ theme, blasted from the sound system.](https://www.yahoo.com/news/videos/linda-mcmahon-tried-keep-speaking-120636378.html)
-- Aug 07 - [Trump calls on 'highly conflicted' Intel CEO to resign over China ties](https://www.yahoo.com/news/articles/trump-calls-intel-ceo-resign-115137575.html)
-- Aug 07 - [Police identify 'innocent bystander' killed in Over-the-Rhine shooting](https://www.yahoo.com/news/articles/police-identify-innocent-bystander-killed-112410275.html)
+- Aug 07 - [Prosecutors in Thailand issue indictments for dozens in deadly building collapse](https://www.yahoo.com/news/articles/prosecutors-thailand-issue-indictments-dozens-131815712.html)
+- Aug 07 - [The Bugatti Brouillard Is a Horse-Themed One-Off Hypercar](https://autos.yahoo.com/articles/bugatti-brouillard-horse-themed-one-130000359.html)
+- Aug 07 - [Linda McMahon tried to keep speaking at a conservative conference as the music blasted from the sound system.](https://www.yahoo.com/news/videos/linda-mcmahon-tried-keep-speaking-120636378.html)
 - Aug 07 - [The US Air Force wants to buy Cybertrucks for target practice because they may start showing up on the battlefield](https://www.yahoo.com/news/articles/us-air-force-wants-buy-111637617.html)
+- Aug 07 - [Millennials have abandoned these 7 boomer habits that made them the richest generation yet — plus what they do instead](https://finance.yahoo.com/news/millennials-abandoned-7-boomer-habits-110000781.html)
 <!-- feed end -->
 
 ---
