@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 06 - [District attorneys says Alabama teen killed by police had grabbed a gun](https://www.yahoo.com/news/articles/district-attorneys-says-alabama-teen-223759040.html)
+- Aug 07 - [Trump wants more American pick-ups in Tokyo and London. That may be a hard sell](https://finance.yahoo.com/news/trump-wants-more-american-pick-010322230.html)
+- Aug 06 - [Experts warn of worsening crisis that could soon render beloved US region uninsurable: 'Individuals are feeling the impact'](https://www.yahoo.com/news/articles/experts-warn-worsening-crisis-could-234500777.html)
+- Aug 06 - [Bill O’Reilly Says Trump’s ‘Personal Vendetta’ Conspiracy Probe Against Hillary Clinton and Others Has One Big Hurdle | Video](https://www.yahoo.com/news/articles/bill-o-reilly-says-trump-224608426.html)
+- Aug 06 - [Family issues warning as son dies after taking highly addictive over-the-counter supplement: ‘The government doesn’t step in’](https://www.yahoo.com/news/articles/family-issues-warning-son-dies-221623779.html)
 - Aug 06 - [If You're Suddenly Gaining Weight Despite Doing Everything 'Right,' Doctors Say This Might Be Why](https://health.yahoo.com/your-body/weight-management/weight-loss/articles/youre-suddenly-gaining-weight-despite-213500604.html)
-- Aug 06 - [Stuck astronaut Butch Wilmore retires from NASA less than 5 months after extended spaceflight](https://www.yahoo.com/news/articles/stuck-astronaut-butch-wilmore-retires-213201760.html)
-- Aug 06 - [Library of Congress Website Deleted Part of the Constitution That Trump Doesn't Like. Now They're Calling It a 'Coding Error'](https://www.yahoo.com/news/articles/library-congress-website-deleted-part-194147764.html)
-- Aug 06 - [See ‘Pathetic’ Trump rebuked by icon Bob Woodward on live TV](https://www.yahoo.com/news/videos/see-pathetic-trump-rebuked-icon-181828436.html)
 <!-- feed end -->
 
 ---
