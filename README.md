@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Crackdown on cosmetic surgery ‘cowboys’ after botched Brazilian butt lifts](https://www.yahoo.com/news/articles/crackdown-cosmetic-surgery-cowboys-over-213011643.html)
+- Aug 07 - [United Airlines flights resume after it resolves technology glitch](https://www.yahoo.com/news/videos/united-airlines-flights-resume-resolves-082335965.html)
+- Aug 07 - [A roadside bomb targeting police vehicle in northwest Pakistan kills 2 officers and wounds 14](https://www.yahoo.com/news/articles/roadside-bomb-targeting-police-vehicle-081052239.html)
+- Aug 07 - [Adani to build India's biggest privately funded coal power plant in a decade](https://finance.yahoo.com/news/adani-build-indias-biggest-privately-081043427.html)
+- Aug 07 - [Thai tycoon and Chinese company charged over deadly Bangkok building collapse](https://www.yahoo.com/news/articles/thai-tycoon-chinese-company-charged-074436695.html)
 - Aug 07 - [Astronaut retires after returning from troubled test flight and extended stay in space](https://www.yahoo.com/news/articles/nasa-butch-wilmore-retires-astronaut-225000725.html)
-- Aug 07 - [Scientists say it may be possible to protect aging brains from Alzheimer’s with an old remedy — lithium](https://www.yahoo.com/news/articles/scientists-may-possible-protect-aging-025813546.html)
-- Aug 06 - [Bill O’Reilly Says Trump’s ‘Personal Vendetta’ Conspiracy Probe Against Hillary Clinton and Others Has One Big Hurdle | Video](https://www.yahoo.com/news/articles/bill-o-reilly-says-trump-224608426.html)
-- Aug 06 - [Family issues warning as son dies after taking highly addictive over-the-counter supplement: ‘The government doesn’t step in’](https://www.yahoo.com/news/articles/family-issues-warning-son-dies-221623779.html)
 <!-- feed end -->
 
 ---
