@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [The newly minted candidate for governor appeared rattled by the blowback over her attempt to get in on the Sweeney uproar.](https://www.yahoo.com/news/videos/newly-minted-candidate-governor-appeared-150230706.html)
-- Aug 07 - [Iranian executed for Mossad espionage was a nuclear scientist, state media claims](https://www.yahoo.com/news/articles/iranian-executed-mossad-espionage-nuclear-134737289.html)
-- Aug 07 - [Fort Stewart sergeant brought personal gun to base and shot 5 soldiers, officials say](https://www.yahoo.com/news/videos/fort-stewart-sergeant-brought-personal-131441281.html)
-- Aug 07 - [Trump calls for Intel CEO to 'resign immediately'](https://finance.yahoo.com/news/trump-calls-for-intel-ceo-to-resign-immediately-122344189.html)
-- Aug 07 - [Linda McMahon tried to keep speaking at a conservative conference as the music blasted from the sound system.](https://www.yahoo.com/news/videos/linda-mcmahon-tried-keep-speaking-120636378.html)
+- Aug 07 - [Hurricane center keeps tracking 2 Atlantic systems while TS Dexter becoming extratropical](https://www.yahoo.com/news/articles/hurricane-center-keeps-tracking-2-151900125.html)
+- Aug 07 - [Police Share Update After Martha Nolan-O'Slatarra Found Dead on Yacht](https://www.yahoo.com/news/articles/police-share-martha-nolan-oslatarra-151503688.html)
+- Aug 07 - [Alan Dershowitz once again denied pierogi as Martha’s Vineyard residents chant ‘time to go’](https://www.yahoo.com/news/articles/alan-dershowitz-once-again-denied-150427384.html)
+- Aug 07 - [Reactions to Trump demanding Intel CEO's resignation](https://finance.yahoo.com/news/reactions-trump-demanding-intel-ceos-145923010.html)
+- Aug 07 - [The vice president tried to laugh off his cartoon roasting as the show keeps coming after Team Trump.](https://www.yahoo.com/news/videos/season-second-episode-went-kristi-042444640.html)
 <!-- feed end -->
 
 ---
