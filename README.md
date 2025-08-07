@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [The Nevada Democrat pushing against her party's progressive pull](https://www.yahoo.com/news/articles/nevada-democrat-pushing-against-her-201609818.html)
-- Aug 07 - [US Air Force to deny retirement pay to transgender service members being separated from the service](https://www.yahoo.com/news/articles/us-air-force-deny-retirement-193109714.html)
+- Aug 07 - [Trump calls in press for ‘major announcement’ in Oval Office - but just spent 5 minutes bragging about his ‘wins’](https://www.yahoo.com/news/articles/trump-holds-major-announcement-oval-204622990.html)
+- Aug 07 - [Gina Carano, Disney Settle Legal Dispute Over ‘Mandalorian’ Firing: ‘We Look Forward to Identifying Opportunities to Work Together in the Future’](https://www.yahoo.com/entertainment/articles/gina-carano-disney-settle-legal-205057200.html)
+- Aug 07 - [Two die when helicopter strikes power lines and crashes into a barge on the Mississippi River](https://www.yahoo.com/news/videos/two-die-helicopter-strikes-power-203406214.html)
 - Aug 07 - [Fisherman Disappeared Decades Ago, Leaving Only His Empty Boat. Authorities Just Found His DNA in a Boot](https://www.yahoo.com/news/articles/fisherman-disappeared-decades-ago-leaving-174330937.html)
-- Aug 07 - [16 people taken into ICE custody during raids of 2 Pittsburgh-area Mexican restaurants](https://www.yahoo.com/news/articles/law-enforcement-responds-2-mexican-171019038.html)
-- Aug 07 - [A Job Seeker With A Bachelor's Degree 'Got Laughed At' For Asking $17 An Hour. The Employer Said, 'I Was Thinking More Like $9'](https://finance.yahoo.com/news/job-seeker-bachelors-degree-got-170114915.html)
+- Aug 07 - [Bill and Melinda French Gates and Warren Buffett’s Giving Pledge after 15 years: Only 9 of the 256 billionaires actually followed through on giving away half their wealth](https://www.yahoo.com/news/articles/bill-gates-warren-buffett-giving-171121884.html)
 <!-- feed end -->
 
 ---
