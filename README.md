@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [United Airlines flights resume after it resolves technology glitch](https://www.yahoo.com/news/videos/united-airlines-flights-resume-resolves-082335965.html)
-- Aug 07 - [A roadside bomb targeting police vehicle in northwest Pakistan kills 2 officers and wounds 14](https://www.yahoo.com/news/articles/roadside-bomb-targeting-police-vehicle-081052239.html)
-- Aug 07 - [Adani to build India's biggest privately funded coal power plant in a decade](https://finance.yahoo.com/news/adani-build-indias-biggest-privately-081043427.html)
-- Aug 07 - [Thai tycoon and Chinese company charged over deadly Bangkok building collapse](https://www.yahoo.com/news/articles/thai-tycoon-chinese-company-charged-074436695.html)
-- Aug 07 - [Astronaut retires after returning from troubled test flight and extended stay in space](https://www.yahoo.com/news/articles/nasa-butch-wilmore-retires-astronaut-225000725.html)
+- Aug 07 - [Man who fly-tipped 27 tonnes of waste on rural lane, trapping locals, to face trial](https://www.yahoo.com/news/videos/businessman-stand-trial-over-27-075208991.html)
+- Aug 07 - [JD Vance’s team ordered the water levels in Ohio to be raised so he would have ‘ideal kayaking conditions’, report claims](https://www.yahoo.com/news/articles/jd-vance-team-ordered-water-033716981.html)
+- Aug 07 - [Scientists say it may be possible to protect aging brains from Alzheimer’s with an old remedy — lithium](https://www.yahoo.com/news/articles/scientists-may-possible-protect-aging-025813546.html)
+- Aug 07 - [16-Foot Tsunami Waves Detonate on Russian Coast (Watch)](https://www.yahoo.com/news/articles/16-foot-tsunami-waves-detonate-004202925.html)
+- Aug 06 - [Bill O’Reilly Says Trump’s ‘Personal Vendetta’ Conspiracy Probe Against Hillary Clinton and Others Has One Big Hurdle | Video](https://www.yahoo.com/news/articles/bill-o-reilly-says-trump-224608426.html)
 <!-- feed end -->
 
 ---
