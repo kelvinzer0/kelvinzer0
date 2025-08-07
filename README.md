@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Hurricane center keeps tracking 2 Atlantic systems while TS Dexter becoming extratropical](https://www.yahoo.com/news/articles/hurricane-center-keeps-tracking-2-151900125.html)
+- Aug 07 - [Netanyahu confirms Israel plans to occupy Gaza](https://www.yahoo.com/news/articles/israeli-ministers-weigh-plan-occupy-103217604.html)
 - Aug 07 - [Police Share Update After Martha Nolan-O'Slatarra Found Dead on Yacht](https://www.yahoo.com/news/articles/police-share-martha-nolan-oslatarra-151503688.html)
-- Aug 07 - [Alan Dershowitz once again denied pierogi as Martha’s Vineyard residents chant ‘time to go’](https://www.yahoo.com/news/articles/alan-dershowitz-once-again-denied-150427384.html)
-- Aug 07 - [Reactions to Trump demanding Intel CEO's resignation](https://finance.yahoo.com/news/reactions-trump-demanding-intel-ceos-145923010.html)
-- Aug 07 - [The vice president tried to laugh off his cartoon roasting as the show keeps coming after Team Trump.](https://www.yahoo.com/news/videos/season-second-episode-went-kristi-042444640.html)
+- Aug 07 - [Trump tariffs hit India's garment makers as US buyers say move production](https://finance.yahoo.com/news/trump-tariffs-hit-indias-garment-145649808.html)
+- Aug 07 - [Car slams into Amazon delivery truck with driver still inside](https://www.yahoo.com/news/videos/car-slams-amazon-delivery-truck-132040041.html)
+- Aug 07 - [India presses for global 'code of conduct' over pilot poaching](https://finance.yahoo.com/news/india-presses-global-code-conduct-130138798.html)
 <!-- feed end -->
 
 ---
