@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [80-year-old ‘SuperAger’ brain operates like that of a 50-year-old. Here’s why](https://www.yahoo.com/news/articles/80-old-superager-brains-operate-132357916.html)
+- Aug 07 - [Former Tesla Supercomputer Executives Launch Competitor](https://finance.yahoo.com/video/former-tesla-supercomputer-executives-launch-193929494.html)
+- Aug 07 - [Wanted suspect found shot in head on Blue Ridge Parkway near Asheville](https://www.yahoo.com/news/articles/wanted-suspect-found-shot-head-184647676.html)
+- Aug 07 - [Maryland woman paid $2,800 for used car dealer to find her a car, then he vanishes — others say they also fell for scam](https://www.yahoo.com/news/articles/maryland-woman-paid-2-800-182000426.html)
+- Aug 07 - [The Cheapest Electric Vehicle On The Market Shows Why EV Adoption Rate Isn't Higher](https://autos.yahoo.com/articles/cheapest-electric-vehicle-market-shows-181700976.html)
 - Aug 07 - [Fisherman Disappeared Decades Ago, Leaving Only His Empty Boat. Authorities Just Found His DNA in a Boot](https://www.yahoo.com/news/articles/fisherman-disappeared-decades-ago-leaving-174330937.html)
-- Aug 07 - [A Job Seeker With A Bachelor's Degree 'Got Laughed At' For Asking $17 An Hour. The Employer Said, 'I Was Thinking More Like $9'](https://finance.yahoo.com/news/job-seeker-bachelors-degree-got-170114915.html)
-- Aug 07 - [Mississippi off-duty police officer killed in apparent murder-suicide, authorities say](https://www.yahoo.com/news/articles/mississippi-off-duty-police-officer-160753507.html)
-- Aug 07 - [“Transgender” Illegal Migrant Accused Of Child Rape Was Freed Under Democratic Biden Policy](https://www.yahoo.com/news/articles/transgender-illegal-migrant-accused-child-153007293.html)
 <!-- feed end -->
 
 ---
