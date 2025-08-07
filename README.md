@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Netanyahu confirms Israel plans to occupy Gaza](https://www.yahoo.com/news/articles/israeli-ministers-weigh-plan-occupy-103217604.html)
+- Aug 07 - [The treasury secretary brushed off the Yale Budget Lab’s analysis saying how much worse off families will be this year.](https://www.yahoo.com/news/videos/treasury-secretary-brushed-off-yale-161432225.html)
 - Aug 07 - [Police Share Update After Martha Nolan-O'Slatarra Found Dead on Yacht](https://www.yahoo.com/news/articles/police-share-martha-nolan-oslatarra-151503688.html)
 - Aug 07 - [Trump tariffs hit India's garment makers as US buyers say move production](https://finance.yahoo.com/news/trump-tariffs-hit-indias-garment-145649808.html)
-- Aug 07 - [Car slams into Amazon delivery truck with driver still inside](https://www.yahoo.com/news/videos/car-slams-amazon-delivery-truck-132040041.html)
+- Aug 07 - [Soldiers hailed as heroes for tackling armed assailant at Georgia Army base](https://www.yahoo.com/news/articles/soldiers-hailed-heroes-tackling-armed-145512546.html)
 - Aug 07 - [India presses for global 'code of conduct' over pilot poaching](https://finance.yahoo.com/news/india-presses-global-code-conduct-130138798.html)
 <!-- feed end -->
 
