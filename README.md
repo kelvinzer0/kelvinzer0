@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Germans worry their beloved kebab may get more pricy or even scarce because of factory strike](https://www.yahoo.com/news/articles/germans-worry-beloved-kebab-may-060229333.html)
-- Aug 07 - [Scientists say it may be possible to protect aging brains from Alzheimer’s with an old remedy — lithium](https://www.yahoo.com/news/articles/scientists-may-possible-protect-aging-025813546.html)
+- Aug 07 - [Crackdown on cosmetic surgery ‘cowboys’ after botched Brazilian butt lifts](https://www.yahoo.com/news/articles/crackdown-cosmetic-surgery-cowboys-over-213011643.html)
 - Aug 07 - [Astronaut retires after returning from troubled test flight and extended stay in space](https://www.yahoo.com/news/articles/nasa-butch-wilmore-retires-astronaut-225000725.html)
-- Aug 07 - [Honda Shifts Gears on EVs Following Massive Quarterly Loss](https://autos.yahoo.com/articles/honda-shifts-gears-evs-following-021500245.html)
+- Aug 07 - [Scientists say it may be possible to protect aging brains from Alzheimer’s with an old remedy — lithium](https://www.yahoo.com/news/articles/scientists-may-possible-protect-aging-025813546.html)
 - Aug 06 - [Bill O’Reilly Says Trump’s ‘Personal Vendetta’ Conspiracy Probe Against Hillary Clinton and Others Has One Big Hurdle | Video](https://www.yahoo.com/news/articles/bill-o-reilly-says-trump-224608426.html)
+- Aug 06 - [Family issues warning as son dies after taking highly addictive over-the-counter supplement: ‘The government doesn’t step in’](https://www.yahoo.com/news/articles/family-issues-warning-son-dies-221623779.html)
 <!-- feed end -->
 
 ---
