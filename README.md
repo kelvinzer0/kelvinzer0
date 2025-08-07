@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Trump calls in press for ‘major announcement’ in Oval Office - but just spent 5 minutes bragging about his ‘wins’](https://www.yahoo.com/news/articles/trump-holds-major-announcement-oval-204622990.html)
 - Aug 07 - [Gina Carano, Disney Settle Legal Dispute Over ‘Mandalorian’ Firing: ‘We Look Forward to Identifying Opportunities to Work Together in the Future’](https://www.yahoo.com/entertainment/articles/gina-carano-disney-settle-legal-205057200.html)
-- Aug 07 - [Two die when helicopter strikes power lines and crashes into a barge on the Mississippi River](https://www.yahoo.com/news/videos/two-die-helicopter-strikes-power-203406214.html)
+- Aug 07 - [Horizon Police: 18-year-old arrested for harassing man while driving, striking his vehicle](https://www.yahoo.com/news/articles/horizon-police-18-old-arrested-185800355.html)
 - Aug 07 - [Fisherman Disappeared Decades Ago, Leaving Only His Empty Boat. Authorities Just Found His DNA in a Boot](https://www.yahoo.com/news/articles/fisherman-disappeared-decades-ago-leaving-174330937.html)
-- Aug 07 - [Bill and Melinda French Gates and Warren Buffett’s Giving Pledge after 15 years: Only 9 of the 256 billionaires actually followed through on giving away half their wealth](https://www.yahoo.com/news/articles/bill-gates-warren-buffett-giving-171121884.html)
+- Aug 07 - [1 Dead, Thousands Evacuated as Firefighters Battle Raging Wildfire: 'A Catastrophe of Unprecedented Scale'](https://www.yahoo.com/entertainment/videos/1-dead-thousands-evacuated-firefighters-174201800.html)
+- Aug 07 - [A CPA couple started buying property after helping real estate investors save big on taxes. Their clients gave them a 'cheat code' to successful investing.](https://finance.yahoo.com/news/cpa-couple-started-buying-property-173001024.html)
 <!-- feed end -->
 
 ---
