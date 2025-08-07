@@ -30,9 +30,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 07 - [Man who fly-tipped 27 tonnes of waste on rural lane, trapping locals, to face trial](https://www.yahoo.com/news/videos/businessman-stand-trial-over-27-075208991.html)
-- Aug 07 - [JD Vance’s team ordered the water levels in Ohio to be raised so he would have ‘ideal kayaking conditions’, report claims](https://www.yahoo.com/news/articles/jd-vance-team-ordered-water-033716981.html)
-- Aug 07 - [Scientists say it may be possible to protect aging brains from Alzheimer’s with an old remedy — lithium](https://www.yahoo.com/news/articles/scientists-may-possible-protect-aging-025813546.html)
+- Aug 07 - [Billionaire David Tepper Is Selling Nvidia, AMD, and TSMC, and Loading Up On Shares of This Trillion-Dollar Artificial Intelligence (AI) Stock Instead](https://finance.yahoo.com/news/billionaire-david-tepper-selling-nvidia-070600695.html)
 - Aug 07 - [16-Foot Tsunami Waves Detonate on Russian Coast (Watch)](https://www.yahoo.com/news/articles/16-foot-tsunami-waves-detonate-004202925.html)
+- Aug 06 - [This New Study On Potatoes Shocked Experts. Should You Rethink Your Next Meal?](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/study-potatoes-shocked-experts-rethink-233400999.html)
 - Aug 06 - [Bill O’Reilly Says Trump’s ‘Personal Vendetta’ Conspiracy Probe Against Hillary Clinton and Others Has One Big Hurdle | Video](https://www.yahoo.com/news/articles/bill-o-reilly-says-trump-224608426.html)
 <!-- feed end -->
 
