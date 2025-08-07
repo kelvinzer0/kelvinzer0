@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 07 - [Eli Lilly beats earnings for second quarter on strong GLP-1 sales, but stock dives on GLP-1 pill trial results](https://finance.yahoo.com/news/eli-lilly-beats-earnings-for-second-quarter-on-strong-glp-1-sales-but-stock-dives-on-glp-1-pill-trial-results-110130408.html)
 - Aug 07 - [Man who fly-tipped 27 tonnes of waste on rural lane, trapping locals, to face trial](https://www.yahoo.com/news/videos/businessman-stand-trial-over-27-075208991.html)
-- Aug 07 - [Billionaire David Tepper Is Selling Nvidia, AMD, and TSMC, and Loading Up On Shares of This Trillion-Dollar Artificial Intelligence (AI) Stock Instead](https://finance.yahoo.com/news/billionaire-david-tepper-selling-nvidia-070600695.html)
-- Aug 07 - [16-Foot Tsunami Waves Detonate on Russian Coast (Watch)](https://www.yahoo.com/news/articles/16-foot-tsunami-waves-detonate-004202925.html)
-- Aug 06 - [This New Study On Potatoes Shocked Experts. Should You Rethink Your Next Meal?](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/study-potatoes-shocked-experts-rethink-233400999.html)
-- Aug 06 - [Bill O’Reilly Says Trump’s ‘Personal Vendetta’ Conspiracy Probe Against Hillary Clinton and Others Has One Big Hurdle | Video](https://www.yahoo.com/news/articles/bill-o-reilly-says-trump-224608426.html)
+- Aug 07 - [Astronaut retires after returning from troubled test flight and extended stay in space](https://www.yahoo.com/news/articles/nasa-butch-wilmore-retires-astronaut-225000725.html)
+- Aug 07 - [The long-feared special forces unit that ‘wiped out’ a Russian battalion](https://www.yahoo.com/news/articles/elite-ukrainian-special-forces-unit-050000460.html)
+- Aug 07 - [The president doubled down on his claim that the issue was a Democratic “hoax” with an added expletive.](https://www.yahoo.com/news/videos/president-doubled-down-claim-issue-000239962.html)
 <!-- feed end -->
 
 ---
