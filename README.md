@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 08 - [Family stunned after massive animals arrive in their yard: 'They must be used to people'](https://www.yahoo.com/news/articles/family-stunned-massive-animals-arrive-114000171.html)
-- Aug 08 - [Does Trump’s new ‘big beautiful bill’ change the age at which older Americans should start claiming Social Security?](https://finance.yahoo.com/news/does-trump-big-beautiful-bill-111500269.html)
 - Aug 08 - [The president, who avoided the Vietnam War draft, has been given multiple Purple Hearts by his supporters.](https://www.yahoo.com/news/videos/president-avoided-vietnam-war-draft-101856527.html)
-- Aug 08 - [“You’re a raging Democrat… a raging leftist with that kind of questioning!” she blasted.](https://www.yahoo.com/news/videos/raging-democrat-raging-leftist-kind-095108622.html)
+- Aug 08 - [Mortgage and refinance interest rates today, August 8, 2025: It could be a good time to lock in a rate](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-august-8-2025-100004734.html)
 - Aug 08 - [Trump Throws Absolute Fit In Middle-Of-The-Night Meltdown At Ex-GOP Official](https://www.yahoo.com/news/articles/trump-throws-absolute-fit-middle-073628310.html)
+- Aug 08 - [NBA Fans React As Luka Doncic Spends $2 Million On Rare Car With Only 150 Units In The World](https://sports.yahoo.com/article/nba-fans-react-luka-doncic-045335658.html)
 <!-- feed end -->
 
 ---
