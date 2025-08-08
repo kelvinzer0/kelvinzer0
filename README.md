@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [Family stunned after massive animals arrive in their yard: 'They must be used to people'](https://www.yahoo.com/news/articles/family-stunned-massive-animals-arrive-114000171.html)
+- Aug 08 - [Does Trump’s new ‘big beautiful bill’ change the age at which older Americans should start claiming Social Security?](https://finance.yahoo.com/news/does-trump-big-beautiful-bill-111500269.html)
 - Aug 08 - [The president, who avoided the Vietnam War draft, has been given multiple Purple Hearts by his supporters.](https://www.yahoo.com/news/videos/president-avoided-vietnam-war-draft-101856527.html)
-- Aug 08 - [The Voting Rights Act is 60. It’s on ‘life support.’ What happens next?](https://www.yahoo.com/news/articles/voting-rights-act-60-life-094000378.html)
-- Aug 08 - [NBA Fans React As Luka Doncic Spends $2 Million On Rare Car With Only 150 Units In The World](https://sports.yahoo.com/article/nba-fans-react-luka-doncic-045335658.html)
-- Aug 08 - [Simulated Chinese blockade of Taiwan reveals Singapore as lifeline](https://www.yahoo.com/news/articles/simulated-chinese-blockade-taiwan-reveals-020419820.html)
-- Aug 08 - [Woman arrested for allegedly stealing over $1,000 worth of merchandise in Orange County](https://www.yahoo.com/news/articles/woman-arrested-allegedly-stealing-over-015638944.html)
+- Aug 08 - [“You’re a raging Democrat… a raging leftist with that kind of questioning!” she blasted.](https://www.yahoo.com/news/videos/raging-democrat-raging-leftist-kind-095108622.html)
+- Aug 08 - [Trump Throws Absolute Fit In Middle-Of-The-Night Meltdown At Ex-GOP Official](https://www.yahoo.com/news/articles/trump-throws-absolute-fit-middle-073628310.html)
 <!-- feed end -->
 
 ---
