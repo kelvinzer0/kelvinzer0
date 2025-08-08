@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [There’s a hot rock blob under New Hampshire. It could be why the Appalachian Mountains are standing tall](https://www.yahoo.com/news/articles/hot-rock-blob-under-hampshire-145839061.html)
-- Aug 08 - [Video captures scary moment Royal Caribbean water slide breaks, injuring guest](https://www.yahoo.com/news/articles/video-captures-scary-moment-royal-143659686.html)
-- Aug 08 - [Buc-ee’s to build 4th Georgia location after state approves permit](https://www.yahoo.com/news/articles/buc-ee-build-4th-georgia-141914819.html)
-- Aug 08 - [500 Years Later, Scientists Solve Leonardo da Vinci’s Human Heart Mystery](https://www.yahoo.com/news/articles/500-years-later-scientists-solve-130000209.html)
-- Aug 08 - [Arizona man's $27K savings drained after scammers 'turned his phone into a weapon' — what he did next saved most of it](https://www.yahoo.com/lifestyle/articles/arizona-mans-27k-savings-drained-123000749.html)
+- Aug 08 - [People Just Noticed What Donald Trump Did To The Oval Office Door, And They're Not Happy About It](https://www.yahoo.com/entertainment/articles/people-cant-believe-donald-trump-165335652.html)
+- Aug 08 - [Jewish leader slams Germany's suspension of arms exports to Israel](https://www.yahoo.com/news/articles/jewish-leader-slams-germanys-suspension-144446026.html)
+- Aug 08 - [Police release new images of University of Idaho murder scene](https://www.yahoo.com/news/articles/police-release-images-university-idaho-144111770.html)
+- Aug 08 - [Family stunned after massive animals arrive in their yard: 'They must be used to people'](https://www.yahoo.com/news/articles/family-stunned-massive-animals-arrive-114000171.html)
+- Aug 08 - [Onlooker captures scary video as snake causes frenzy in pool full of tourists: 'I've had nightmares that look just like this'](https://www.yahoo.com/news/articles/onlooker-captures-scary-video-snake-111500039.html)
 <!-- feed end -->
 
 ---
