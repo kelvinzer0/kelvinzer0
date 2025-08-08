@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [People Just Noticed What Donald Trump Did To The Oval Office Door, And They're Not Happy About It](https://www.yahoo.com/entertainment/articles/people-cant-believe-donald-trump-165335652.html)
-- Aug 08 - [Jewish leader slams Germany's suspension of arms exports to Israel](https://www.yahoo.com/news/articles/jewish-leader-slams-germanys-suspension-144446026.html)
-- Aug 08 - [Police release new images of University of Idaho murder scene](https://www.yahoo.com/news/articles/police-release-images-university-idaho-144111770.html)
+- Aug 08 - [142,000 millionaires are uprooting in 2025—forget Switzerland, they’re flocking to this eastern European nation](https://finance.yahoo.com/news/142-000-millionaires-uprooting-2025-160732858.html)
+- Aug 08 - [Putin calls Xi, Modi and other foreign leaders ahead of planned meeting with Trump](https://www.yahoo.com/news/articles/putin-calls-xi-modi-other-154014461.html)
+- Aug 08 - [Video captures scary moment Royal Caribbean water slide breaks, injuring guest](https://www.yahoo.com/news/articles/video-captures-scary-moment-royal-143659686.html)
 - Aug 08 - [Family stunned after massive animals arrive in their yard: 'They must be used to people'](https://www.yahoo.com/news/articles/family-stunned-massive-animals-arrive-114000171.html)
-- Aug 08 - [Onlooker captures scary video as snake causes frenzy in pool full of tourists: 'I've had nightmares that look just like this'](https://www.yahoo.com/news/articles/onlooker-captures-scary-video-snake-111500039.html)
+- Aug 08 - [WHO 13 anchor Jannay Towne is leaving the station after 20 years. When's her last day?](https://www.yahoo.com/news/articles/13-anchor-jannay-towne-leaving-110109057.html)
 <!-- feed end -->
 
 ---
