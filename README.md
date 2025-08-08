@@ -33,7 +33,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Aug 08 - [China accuses Philippines of 'playing with fire' on Taiwan](https://www.yahoo.com/news/articles/china-accuses-philippines-playing-fire-034521700.html)
 - Aug 08 - [Simulated Chinese blockade of Taiwan reveals Singapore as lifeline](https://www.yahoo.com/news/articles/simulated-chinese-blockade-taiwan-reveals-020419820.html)
 - Aug 08 - [Video emerges of Sha'Carri Richardson shoving boyfriend at Seattle airport prior to arrest](https://sports.yahoo.com/olympics/article/video-emerges-of-shacarri-richardson-shoving-boyfriend-at-seattle-airport-prior-to-arrest-002810443.html)
-- Aug 08 - [Scorcher! Palm Springs sets heat record Thursday. Here's how hot it got across desert](https://www.yahoo.com/news/articles/scorcher-palm-springs-sets-heat-000449152.html)
+- Aug 07 - [Governor demands swift action following State Farm's controversial moves: 'I am deeply concerned'](https://www.yahoo.com/news/articles/governor-demands-swift-action-following-234500778.html)
 <!-- feed end -->
 
 ---
