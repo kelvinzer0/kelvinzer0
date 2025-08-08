@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Hunger and disease spreading in war-torn Sudan, WHO says](https://www.yahoo.com/news/articles/hunger-disease-spreading-war-torn-150926777.html)
-- Aug 08 - [Germany suspends arms sales to Israel](https://www.yahoo.com/news/articles/germany-suspends-arms-sales-israel-141709830.html)
-- Aug 08 - [Donald Trump Jr posts meme showing his father throwing sex toy onto WNBA court](https://www.yahoo.com/news/articles/donald-trump-jr-posts-meme-135007950.html)
-- Aug 08 - [One of the charts proudly displayed by the president wrongly reported on “medium” family income.](https://www.yahoo.com/news/videos/one-charts-proudly-displayed-president-132235879.html)
-- Aug 08 - [Family stunned after massive animals arrive in their yard: 'They must be used to people'](https://www.yahoo.com/news/articles/family-stunned-massive-animals-arrive-114000171.html)
+- Aug 08 - [Heavy police presence on Shelbyville Road amid bank robbery investigation. What we know](https://www.yahoo.com/news/articles/heavy-police-presence-shelbyville-road-155730015.html)
+- Aug 08 - [Germany suspends weapons exports to Israel](https://www.yahoo.com/news/articles/germany-suspends-weapons-exports-israel-153006108.html)
+- Aug 08 - [Trump’s big bill offers $6K tax break for seniors — but not everyone gets a cut. Here’s how much you may save](https://finance.yahoo.com/news/trump-big-bill-offers-6k-151100484.html)
+- Aug 08 - [Exxon starts production at fourth floating oil vessel in Guyana](https://finance.yahoo.com/news/exxon-starts-production-fourth-floating-143547561.html)
+- Aug 08 - [US-Russia plan truce deal that would cement Putin's gains in Ukraine, Bloomberg reports](https://www.yahoo.com/news/articles/us-russia-plan-truce-deal-143027595.html)
 <!-- feed end -->
 
 ---
