@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Trust in Zelenskyy is diminished even after reversal of law that fueled anti-corruption protests](https://www.yahoo.com/news/articles/trust-zelenskyy-diminished-even-reversal-050229867.html)
+- Aug 08 - [NBA Fans React As Luka Doncic Spends $2 Million On Rare Car With Only 150 Units In The World](https://sports.yahoo.com/article/nba-fans-react-luka-doncic-045335658.html)
+- Aug 08 - [China accuses Philippines of 'playing with fire' on Taiwan](https://www.yahoo.com/news/articles/china-accuses-philippines-playing-fire-034521700.html)
 - Aug 08 - [Simulated Chinese blockade of Taiwan reveals Singapore as lifeline](https://www.yahoo.com/news/articles/simulated-chinese-blockade-taiwan-reveals-020419820.html)
 - Aug 08 - [Video emerges of Sha'Carri Richardson shoving boyfriend at Seattle airport prior to arrest](https://sports.yahoo.com/olympics/article/video-emerges-of-shacarri-richardson-shoving-boyfriend-at-seattle-airport-prior-to-arrest-002810443.html)
-- Aug 07 - [Trump doubles reward to $50 million for arrest of Venezuela's president to face US drug charges](https://www.yahoo.com/news/articles/trump-doubles-reward-50-million-233647819.html)
-- Aug 07 - [Missing Fremont teenager found safe, police say](https://www.yahoo.com/news/articles/missing-fremont-teenager-found-safe-222958132.html)
+- Aug 08 - [Scorcher! Palm Springs sets heat record Thursday. Here's how hot it got across desert](https://www.yahoo.com/news/articles/scorcher-palm-springs-sets-heat-000449152.html)
 <!-- feed end -->
 
 ---
