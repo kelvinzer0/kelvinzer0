@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Heavy police presence on Shelbyville Road amid bank robbery investigation. What we know](https://www.yahoo.com/news/articles/heavy-police-presence-shelbyville-road-155730015.html)
-- Aug 08 - [Germany suspends weapons exports to Israel](https://www.yahoo.com/news/articles/germany-suspends-weapons-exports-israel-153006108.html)
-- Aug 08 - [Trump’s big bill offers $6K tax break for seniors — but not everyone gets a cut. Here’s how much you may save](https://finance.yahoo.com/news/trump-big-bill-offers-6k-151100484.html)
-- Aug 08 - [Exxon starts production at fourth floating oil vessel in Guyana](https://finance.yahoo.com/news/exxon-starts-production-fourth-floating-143547561.html)
-- Aug 08 - [US-Russia plan truce deal that would cement Putin's gains in Ukraine, Bloomberg reports](https://www.yahoo.com/news/articles/us-russia-plan-truce-deal-143027595.html)
+- Aug 08 - [There’s a hot rock blob under New Hampshire. It could be why the Appalachian Mountains are standing tall](https://www.yahoo.com/news/articles/hot-rock-blob-under-hampshire-145839061.html)
+- Aug 08 - [Video captures scary moment Royal Caribbean water slide breaks, injuring guest](https://www.yahoo.com/news/articles/video-captures-scary-moment-royal-143659686.html)
+- Aug 08 - [Buc-ee’s to build 4th Georgia location after state approves permit](https://www.yahoo.com/news/articles/buc-ee-build-4th-georgia-141914819.html)
+- Aug 08 - [500 Years Later, Scientists Solve Leonardo da Vinci’s Human Heart Mystery](https://www.yahoo.com/news/articles/500-years-later-scientists-solve-130000209.html)
+- Aug 08 - [Arizona man's $27K savings drained after scammers 'turned his phone into a weapon' — what he did next saved most of it](https://www.yahoo.com/lifestyle/articles/arizona-mans-27k-savings-drained-123000749.html)
 <!-- feed end -->
 
 ---
