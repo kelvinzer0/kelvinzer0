@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [A leaky White House wants people to know about attempts to rewrite Trump’s relationship with Epstein, O’Donnell said.](https://www.yahoo.com/news/videos/leaky-white-house-wants-people-120936991.html)
+- Aug 08 - [Hunger and disease spreading in war-torn Sudan, WHO says](https://www.yahoo.com/news/articles/hunger-disease-spreading-war-torn-150926777.html)
+- Aug 08 - [Germany suspends arms sales to Israel](https://www.yahoo.com/news/articles/germany-suspends-arms-sales-israel-141709830.html)
+- Aug 08 - [Donald Trump Jr posts meme showing his father throwing sex toy onto WNBA court](https://www.yahoo.com/news/articles/donald-trump-jr-posts-meme-135007950.html)
+- Aug 08 - [One of the charts proudly displayed by the president wrongly reported on “medium” family income.](https://www.yahoo.com/news/videos/one-charts-proudly-displayed-president-132235879.html)
 - Aug 08 - [Family stunned after massive animals arrive in their yard: 'They must be used to people'](https://www.yahoo.com/news/articles/family-stunned-massive-animals-arrive-114000171.html)
-- Aug 08 - [The president, who avoided the Vietnam War draft, has been given multiple Purple Hearts by his supporters.](https://www.yahoo.com/news/videos/president-avoided-vietnam-war-draft-101856527.html)
-- Aug 08 - [China narrows gap with US as Germany’s biggest trading partner](https://finance.yahoo.com/news/china-narrows-gap-us-germany-101615465.html)
-- Aug 08 - [Trump Throws Absolute Fit In Middle-Of-The-Night Meltdown At Ex-GOP Official](https://www.yahoo.com/news/articles/trump-throws-absolute-fit-middle-073628310.html)
 <!-- feed end -->
 
 ---
