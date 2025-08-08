@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 08 - [Stock Market Today: Dow Gains, Nasdaq At New High As Apple Rallies; SoundHound Spikes Up On AI Demand](https://www.investors.com/market-trend/stock-market-today/dow-jones-sp500-nasdaq-trade-desk-ttd-stock/?src=A00220&yptr=yahoo)
-- Aug 08 - [Atlantic tropical storm and hurricane potential, US risk to increase around mid-August](https://www.yahoo.com/news/articles/atlantic-tropical-storm-hurricane-potential-190757124.html)
-- Aug 08 - [People Just Noticed What Donald Trump Did To The Oval Office Door, And They're Not Happy About It](https://www.yahoo.com/entertainment/articles/people-cant-believe-donald-trump-165335652.html)
-- Aug 08 - [142,000 millionaires are uprooting in 2025—forget Switzerland, they’re flocking to this eastern European nation](https://finance.yahoo.com/news/142-000-millionaires-uprooting-2025-160732858.html)
-- Aug 08 - [Putin calls Xi, Modi and other foreign leaders ahead of planned meeting with Trump](https://www.yahoo.com/news/articles/putin-calls-xi-modi-other-154014461.html)
+- Aug 08 - [Luigi Mangione's 120-page healthcare history was accidentally shared by Aetna and his own lawyers, prosecutor says](https://www.yahoo.com/news/articles/luigi-mangiones-120-page-healthcare-200659563.html)
+- Aug 08 - [GOP lawmaker pushes to strip Democrat of committee assignment after saying she’s ‘a proud Guatemalan before I am an American’](https://www.yahoo.com/news/articles/gop-lawmaker-pushes-strip-democrat-191530953.html)
+- Aug 08 - [First-time angler sets new Maryland record with catch in Washington Canyon off Ocean City](https://www.yahoo.com/news/articles/first-time-angler-sets-maryland-173645883.html)
+- Aug 08 - [Those De-Extinct Dire Wolves Were a Warning. Well, the Next Phase Is Coming.](https://www.yahoo.com/news/articles/people-brought-those-dire-wolves-170820660.html)
 <!-- feed end -->
 
 ---
