@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 08 - [A leaky White House wants people to know about attempts to rewrite Trump’s relationship with Epstein, O’Donnell said.](https://www.yahoo.com/news/videos/leaky-white-house-wants-people-120936991.html)
 - Aug 08 - [Family stunned after massive animals arrive in their yard: 'They must be used to people'](https://www.yahoo.com/news/articles/family-stunned-massive-animals-arrive-114000171.html)
 - Aug 08 - [The president, who avoided the Vietnam War draft, has been given multiple Purple Hearts by his supporters.](https://www.yahoo.com/news/videos/president-avoided-vietnam-war-draft-101856527.html)
-- Aug 08 - [Mortgage and refinance interest rates today, August 8, 2025: It could be a good time to lock in a rate](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-friday-august-8-2025-100004734.html)
+- Aug 08 - [China narrows gap with US as Germany’s biggest trading partner](https://finance.yahoo.com/news/china-narrows-gap-us-germany-101615465.html)
 - Aug 08 - [Trump Throws Absolute Fit In Middle-Of-The-Night Meltdown At Ex-GOP Official](https://www.yahoo.com/news/articles/trump-throws-absolute-fit-middle-073628310.html)
-- Aug 08 - [NBA Fans React As Luka Doncic Spends $2 Million On Rare Car With Only 150 Units In The World](https://sports.yahoo.com/article/nba-fans-react-luka-doncic-045335658.html)
 <!-- feed end -->
 
 ---
