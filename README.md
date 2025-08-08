@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 07 - [Gina Carano, Disney Settle Legal Dispute Over ‘Mandalorian’ Firing: ‘We Look Forward to Identifying Opportunities to Work Together in the Future’](https://www.yahoo.com/entertainment/articles/gina-carano-disney-settle-legal-205057200.html)
-- Aug 07 - [Horizon Police: 18-year-old arrested for harassing man while driving, striking his vehicle](https://www.yahoo.com/news/articles/horizon-police-18-old-arrested-185800355.html)
-- Aug 07 - [Fisherman Disappeared Decades Ago, Leaving Only His Empty Boat. Authorities Just Found His DNA in a Boot](https://www.yahoo.com/news/articles/fisherman-disappeared-decades-ago-leaving-174330937.html)
-- Aug 07 - [1 Dead, Thousands Evacuated as Firefighters Battle Raging Wildfire: 'A Catastrophe of Unprecedented Scale'](https://www.yahoo.com/entertainment/videos/1-dead-thousands-evacuated-firefighters-174201800.html)
-- Aug 07 - [A CPA couple started buying property after helping real estate investors save big on taxes. Their clients gave them a 'cheat code' to successful investing.](https://finance.yahoo.com/news/cpa-couple-started-buying-property-173001024.html)
+- Aug 08 - [US brokers a deal between long-hostile Armenia and Azerbaijan](https://www.yahoo.com/news/articles/us-brokers-deal-between-long-010111721.html)
+- Aug 08 - [Officials take bold action to combat fast-spreading underwater threat: 'Very dynamic situation'](https://www.yahoo.com/news/articles/officials-bold-action-combat-fast-010000976.html)
+- Aug 08 - [Video emerges of Sha'Carri Richardson shoving boyfriend at Seattle airport prior to arrest](https://sports.yahoo.com/olympics/article/video-emerges-of-shacarri-richardson-shoving-boyfriend-at-seattle-airport-prior-to-arrest-002810443.html)
+- Aug 08 - [Scorcher! Palm Springs sets heat record Thursday. Here's how hot it got across desert](https://www.yahoo.com/news/articles/scorcher-palm-springs-sets-heat-000449152.html)
+- Aug 07 - [Governor demands swift action following State Farm's controversial moves: 'I am deeply concerned'](https://www.yahoo.com/news/articles/governor-demands-swift-action-following-234500778.html)
 <!-- feed end -->
 
 ---
