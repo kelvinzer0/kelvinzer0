@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [US brokers a deal between long-hostile Armenia and Azerbaijan](https://www.yahoo.com/news/articles/us-brokers-deal-between-long-010111721.html)
-- Aug 08 - [Officials take bold action to combat fast-spreading underwater threat: 'Very dynamic situation'](https://www.yahoo.com/news/articles/officials-bold-action-combat-fast-010000976.html)
-- Aug 08 - [Video emerges of Sha'Carri Richardson shoving boyfriend at Seattle airport prior to arrest](https://sports.yahoo.com/olympics/article/video-emerges-of-shacarri-richardson-shoving-boyfriend-at-seattle-airport-prior-to-arrest-002810443.html)
-- Aug 08 - [Scorcher! Palm Springs sets heat record Thursday. Here's how hot it got across desert](https://www.yahoo.com/news/articles/scorcher-palm-springs-sets-heat-000449152.html)
+- Aug 08 - [China accuses Philippines of 'playing with fire' on Taiwan](https://www.yahoo.com/news/articles/china-accuses-philippines-playing-fire-034521700.html)
 - Aug 07 - [Governor demands swift action following State Farm's controversial moves: 'I am deeply concerned'](https://www.yahoo.com/news/articles/governor-demands-swift-action-following-234500778.html)
+- Aug 07 - [Trump doubles reward to $50 million for arrest of Venezuela's president to face US drug charges](https://www.yahoo.com/news/articles/trump-doubles-reward-50-million-233647819.html)
+- Aug 07 - [What to know about dangerous ‘black tumor’ cancer as Kelly Clarkson’s ex-husband Brandon Blackstock dies at 48](https://www.yahoo.com/lifestyle/articles/know-dangerous-black-tumor-cancer-163806868.html)
+- Aug 07 - [Gina Carano, Disney Settle Legal Dispute Over ‘Mandalorian’ Firing: ‘We Look Forward to Identifying Opportunities to Work Together in the Future’](https://www.yahoo.com/entertainment/articles/gina-carano-disney-settle-legal-205057200.html)
 <!-- feed end -->
 
 ---
