@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Newsom Says He Plans to Redraw California Congressional Map](https://www.yahoo.com/news/videos/newsom-says-plans-redraw-california-134836938.html)
-- Aug 09 - [Tesla buyer stunned after discovering multiple flaws when picking up new purchase: 'I walked away without the car'](https://autos.yahoo.com/articles/tesla-buyer-stunned-discovering-multiple-124000116.html)
-- Aug 09 - [Tesla Shutting Down Its AI Supercomputer As Staff Leaves in Droves to Join Competitor](https://finance.yahoo.com/news/tesla-shutting-down-ai-supercomputer-113050022.html)
-- Aug 09 - [India shot down six Pakistani military aircraft in May fighting, air force chief says](https://www.yahoo.com/news/articles/india-shot-down-5-pakistani-074026620.html)
-- Aug 09 - [Southwest Airlines Receives a Warning After Major Changes](https://finance.yahoo.com/news/southwest-airlines-receives-warning-major-051156887.html)
+- Aug 09 - [Creator of the '4% rule' for retirement withdrawals has fresh advice for today's retirees](https://finance.yahoo.com/news/creator-of-the-4-rule-for-retirement-withdrawals-has-fresh-advice-for-todays-retirees-140035669.html)
+- Aug 09 - [A Scientist Says He’s Solved the Bermuda Triangle, Just Like That](https://www.yahoo.com/news/articles/scientist-says-solved-bermuda-triangle-131700547.html)
+- Aug 09 - [Whitmer told Trump in private that Michigan auto jobs depend on a tariff change of course](https://finance.yahoo.com/news/whitmer-told-trump-private-michigan-130110135.html)
+- Aug 09 - [A New Study Just Linked One Particular Kind of Milk to Better Muscle and Bone Health](https://www.yahoo.com/news/articles/study-just-linked-one-particular-115400603.html)
+- Aug 09 - [India shot down six Pakistani military aircraft in May, air force chief says](https://www.yahoo.com/news/articles/india-shot-down-5-pakistani-074026620.html)
 <!-- feed end -->
 
 ---
