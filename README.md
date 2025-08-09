@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Bedridden woman was trapped as her Massachusetts apartment burned. Then two cousins jumped into action](https://www.yahoo.com/news/articles/bedridden-woman-trapped-her-massachusetts-174721281.html)
-- Aug 09 - [A Scientist Says He’s Solved the Bermuda Triangle, Just Like That](https://www.yahoo.com/news/articles/scientist-says-solved-bermuda-triangle-131700547.html)
-- Aug 09 - [Whitmer told Trump in private that Michigan auto jobs depend on a tariff change of course](https://finance.yahoo.com/news/whitmer-told-trump-private-michigan-130110135.html)
-- Aug 09 - [Tesla buyer stunned after discovering multiple flaws when picking up new purchase: 'I walked away without the car'](https://autos.yahoo.com/articles/tesla-buyer-stunned-discovering-multiple-124000116.html)
-- Aug 09 - [Satoshi's $60B Bitcoin Stash Could Be Crypto's Quantum Canary—And Investors Are Nervous](https://finance.yahoo.com/news/satoshis-60b-bitcoin-stash-could-123119705.html)
+- Aug 09 - [Momentum sagging at UN plastic pollution treaty talks](https://www.yahoo.com/news/videos/momentum-sagging-un-plastic-pollution-190555709.html)
+- Aug 09 - [Iowa man dies after shooting 2 neighbors and setting his house on fire, officials say](https://www.yahoo.com/news/articles/iowa-man-dies-shooting-2-184249614.html)
+- Aug 09 - [Trump-Putin summit in Alaska resembles a slow defeat for Ukraine](https://www.yahoo.com/news/articles/trump-putin-summit-alaska-resembles-182018039.html)
+- Aug 09 - [Trump promises Monday ‘press conference’ at White House will ‘essentially stop violent crime in Washington, DC’](https://www.yahoo.com/news/articles/trump-promises-monday-press-conference-164049783.html)
+- Aug 09 - [Chairlift Collapses at a Resort and Leaves at Least 8 Hurt, Including 1 Person Who Sustained a Spinal Cord Injury](https://www.yahoo.com/news/articles/chairlift-collapses-resort-leaves-least-163144533.html)
 <!-- feed end -->
 
 ---
