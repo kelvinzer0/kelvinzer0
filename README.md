@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Momentum sagging at UN plastic pollution treaty talks](https://www.yahoo.com/news/videos/momentum-sagging-un-plastic-pollution-190555709.html)
+- Aug 09 - [How 0% Interest Deals Can Wreck Your Finances, Even If You Never Miss A Payment](https://finance.yahoo.com/news/0-interest-deals-wreck-finances-200111859.html)
+- Aug 09 - [Marjorie Taylor Greene's Palantir Bet Has Skyrocketed 142% Since She Bought It](https://finance.yahoo.com/news/marjorie-taylor-greenes-palantir-bet-194647386.html)
 - Aug 09 - [Iowa man dies after shooting 2 neighbors and setting his house on fire, officials say](https://www.yahoo.com/news/articles/iowa-man-dies-shooting-2-184249614.html)
-- Aug 09 - [Trump-Putin summit in Alaska resembles a slow defeat for Ukraine](https://www.yahoo.com/news/articles/trump-putin-summit-alaska-resembles-182018039.html)
 - Aug 09 - [Trump promises Monday ‘press conference’ at White House will ‘essentially stop violent crime in Washington, DC’](https://www.yahoo.com/news/articles/trump-promises-monday-press-conference-164049783.html)
 - Aug 09 - [Chairlift Collapses at a Resort and Leaves at Least 8 Hurt, Including 1 Person Who Sustained a Spinal Cord Injury](https://www.yahoo.com/news/articles/chairlift-collapses-resort-leaves-least-163144533.html)
 <!-- feed end -->
