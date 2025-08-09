@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 08 - [Luigi Mangione's 120-page healthcare history was accidentally shared by Aetna and his own lawyers, prosecutor says](https://www.yahoo.com/news/articles/luigi-mangiones-120-page-healthcare-200659563.html)
-- Aug 08 - [GOP lawmaker pushes to strip Democrat of committee assignment after saying she’s ‘a proud Guatemalan before I am an American’](https://www.yahoo.com/news/articles/gop-lawmaker-pushes-strip-democrat-191530953.html)
-- Aug 08 - [People Just Noticed What Donald Trump Did To The Oval Office Door, And They're Not Happy About It](https://www.yahoo.com/entertainment/articles/people-cant-believe-donald-trump-165335652.html)
-- Aug 08 - [B-2 Bombed A Smiley Face Of Craters Into The Ground Because It Ran Out Of Targets](https://www.yahoo.com/news/articles/b-2-bombed-smiley-face-164943236.html)
-- Aug 08 - [142,000 millionaires are uprooting in 2025—forget Switzerland, they’re flocking to this eastern European nation](https://finance.yahoo.com/news/142-000-millionaires-uprooting-2025-160732858.html)
+- Aug 09 - [Nagasaki marks 80th A-bomb anniversary as survivors put hopes of nuke ban in the hands of youth](https://www.yahoo.com/news/articles/nagasaki-marks-80th-bomb-anniversary-013833552.html)
+- Aug 08 - ['Retired pilot' claimed Trump's plane flew to Epstein's island 37 times. Here are the facts](https://www.yahoo.com/news/articles/retired-pilot-claimed-trumps-plane-225800341.html)
+- Aug 08 - [Hegseth reposts video on social media featuring pastors saying women shouldn't be allowed to vote](https://www.yahoo.com/news/articles/hegseth-reposts-video-social-media-221638095.html)
+- Aug 08 - [US licenses Nvidia to export chips to China, official says](https://finance.yahoo.com/news/us-licenses-nvidia-export-chips-221538864.html)
+- Aug 08 - [Lukashenko signals end to his authoritarian run in Belarus](https://www.yahoo.com/news/articles/lukashenko-signals-end-authoritarian-run-210420055.html)
 <!-- feed end -->
 
 ---
