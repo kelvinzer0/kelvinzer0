@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 09 - [Creator of the '4% rule' for retirement withdrawals has fresh advice for today's retirees](https://finance.yahoo.com/news/creator-of-the-4-rule-for-retirement-withdrawals-has-fresh-advice-for-todays-retirees-140035669.html)
+- Aug 09 - [Robot Crab Meets Terrible Fate When Its True Nature Is Discovered by Real Crab](https://www.yahoo.com/news/articles/robot-crab-meets-terrible-fate-133057008.html)
 - Aug 09 - [A Scientist Says He’s Solved the Bermuda Triangle, Just Like That](https://www.yahoo.com/news/articles/scientist-says-solved-bermuda-triangle-131700547.html)
 - Aug 09 - [Whitmer told Trump in private that Michigan auto jobs depend on a tariff change of course](https://finance.yahoo.com/news/whitmer-told-trump-private-michigan-130110135.html)
-- Aug 09 - [A New Study Just Linked One Particular Kind of Milk to Better Muscle and Bone Health](https://www.yahoo.com/news/articles/study-just-linked-one-particular-115400603.html)
-- Aug 09 - [India shot down six Pakistani military aircraft in May, air force chief says](https://www.yahoo.com/news/articles/india-shot-down-5-pakistani-074026620.html)
+- Aug 09 - [Tesla Shutting Down Its AI Supercomputer As Staff Leaves in Droves to Join Competitor](https://finance.yahoo.com/news/tesla-shutting-down-ai-supercomputer-113050022.html)
 <!-- feed end -->
 
 ---
