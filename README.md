@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [Powerful AP photos show the scars of a survivor of the Nagasaki atomic bombing](https://www.yahoo.com/news/articles/powerful-ap-photos-show-scars-033407557.html)
+- Aug 09 - [Rats! More than 100,000 acres of almond orchards across Central California are infested](https://www.yahoo.com/news/articles/rats-more-100-000-acres-011611560.html)
 - Aug 09 - [United Airlines Grounds All U.S. Flights Until Further Notice](https://www.yahoo.com/news/articles/united-airlines-grounds-u-flights-011553244.html)
 - Aug 08 - ['Retired pilot' claimed Trump's plane flew to Epstein's island 37 times. Here are the facts](https://www.yahoo.com/news/articles/retired-pilot-claimed-trumps-plane-225800341.html)
-- Aug 08 - [US licenses Nvidia to export chips to China, official says](https://finance.yahoo.com/news/us-licenses-nvidia-export-chips-221538938.html)
-- Aug 08 - [Trump executive order gives politicians control over all federal grants, alarming researchers](https://www.yahoo.com/news/articles/trump-executive-order-gives-politicians-210618324.html)
-- Aug 08 - [Canada joins allies in lowering price cap on Russian oil](https://finance.yahoo.com/news/canada-joins-allies-lowering-price-210355308.html)
+- Aug 08 - [Hegseth reposts video on social media featuring pastors saying women shouldn't be allowed to vote](https://www.yahoo.com/news/articles/hegseth-reposts-video-social-media-221638095.html)
 <!-- feed end -->
 
 ---
