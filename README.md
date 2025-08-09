@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [The One Fruit a Neurologist Is Begging People Over 50 To Eat More Of](https://health.yahoo.com/wellness/healthy-aging/longevity/articles/one-fruit-neurologist-begging-people-212500527.html)
 - Aug 09 - [Iowa man dies after shooting 2 neighbors and setting his house on fire, officials say](https://www.yahoo.com/news/articles/iowa-man-dies-shooting-2-184249614.html)
 - Aug 09 - [Trump promises Monday ‘press conference’ at White House will ‘essentially stop violent crime in Washington, DC’](https://www.yahoo.com/news/articles/trump-promises-monday-press-conference-164049783.html)
 - Aug 09 - [7 Foods You Should Eat for Better Skin as You Age, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/7-foods-eat-better-skin-143000112.html)
-- Aug 09 - [Bryan Norcross: Large African disturbance has plenty of runway to develop by late next week](https://www.yahoo.com/news/articles/bryan-norcross-large-african-disturbance-142121820.html)
-- Aug 09 - [A Scientist Says He’s Solved the Bermuda Triangle, Just Like That](https://www.yahoo.com/news/articles/scientist-says-solved-bermuda-triangle-131700547.html)
+- Aug 09 - [Creator of the '4% rule' for retirement withdrawals has fresh advice for today's retirees](https://finance.yahoo.com/news/creator-of-the-4-rule-for-retirement-withdrawals-has-fresh-advice-for-todays-retirees-140035669.html)
 <!-- feed end -->
 
 ---
