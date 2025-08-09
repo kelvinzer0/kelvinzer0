@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Powerful AP photos show the scars of a survivor of the Nagasaki atomic bombing](https://www.yahoo.com/news/articles/powerful-ap-photos-show-scars-033407557.html)
+- Aug 09 - [India shot down six Pakistani military aircraft in May fighting, air force chief says](https://www.yahoo.com/news/articles/india-shot-down-5-pakistani-074026620.html)
 - Aug 09 - [United Airlines Grounds All U.S. Flights Until Further Notice](https://www.yahoo.com/news/articles/united-airlines-grounds-u-flights-011553244.html)
-- Aug 08 - [Hegseth reposts video on social media featuring pastors saying women shouldn't be allowed to vote](https://www.yahoo.com/news/articles/hegseth-reposts-video-social-media-221638095.html)
+- Aug 09 - [Stocks just broke through a key level that indicates a sell-off. Here's how much the S&P 500 will fall before you should buy, according to one strategist](https://finance.yahoo.com/news/stocks-just-broke-key-level-003805532.html)
 - Aug 08 - [US licenses Nvidia to export chips to China, official says](https://finance.yahoo.com/news/us-licenses-nvidia-export-chips-221538864.html)
 - Aug 08 - [Trump executive order gives politicians control over all federal grants, alarming researchers](https://www.yahoo.com/news/articles/trump-executive-order-gives-politicians-210618324.html)
 <!-- feed end -->
