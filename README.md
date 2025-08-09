@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [Oatmeal or Smoothie? Nutrition Experts Pick the Best Breakfast for Staying Energized](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/oatmeal-smoothie-nutrition-experts-pick-100200741.html)
+- Aug 09 - [Tesla owner stunned after witnessing shocking act in broad daylight: 'Can't believe he actually did it in front of me'](https://www.yahoo.com/news/articles/tesla-owner-stunned-witnessing-shocking-101500353.html)
 - Aug 09 - [India shot down six Pakistani military aircraft in May fighting, air force chief says](https://www.yahoo.com/news/articles/india-shot-down-5-pakistani-074026620.html)
+- Aug 09 - [Powerful AP photos show the scars of a survivor of the Nagasaki atomic bombing](https://www.yahoo.com/news/articles/powerful-ap-photos-show-scars-033407557.html)
 - Aug 09 - [United Airlines Grounds All U.S. Flights Until Further Notice](https://www.yahoo.com/news/articles/united-airlines-grounds-u-flights-011553244.html)
-- Aug 08 - ['Retired pilot' claimed Trump's plane flew to Epstein's island 37 times. Here are the facts](https://www.yahoo.com/news/articles/retired-pilot-claimed-trumps-plane-225800341.html)
-- Aug 08 - [Owner of Trump-themed burger chain arrested by ICE, facing deportation](https://www.yahoo.com/news/articles/owner-trump-themed-burger-chain-213757469.html)
+- Aug 09 - [Stocks just broke through a key level that indicates a sell-off. Here's how much the S&P 500 will fall before you should buy, according to one strategist](https://finance.yahoo.com/news/stocks-just-broke-key-level-003805532.html)
 <!-- feed end -->
 
 ---
