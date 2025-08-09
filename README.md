@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 09 - [Restored Nagasaki bell rings in 80 years since A-bomb](https://www.yahoo.com/news/videos/restored-nagasaki-bell-rings-80-162800469.html)
+- Aug 09 - [Florida man arrested after allegedly shooting woman at Grand Chute hotel](https://www.yahoo.com/news/articles/florida-man-arrested-allegedly-shooting-141632296.html)
 - Aug 09 - [Creator of the '4% rule' for retirement withdrawals has fresh advice for today's retirees](https://finance.yahoo.com/news/creator-of-the-4-rule-for-retirement-withdrawals-has-fresh-advice-for-todays-retirees-140035669.html)
-- Aug 09 - [Robot Crab Meets Terrible Fate When Its True Nature Is Discovered by Real Crab](https://www.yahoo.com/news/articles/robot-crab-meets-terrible-fate-133057008.html)
 - Aug 09 - [A Scientist Says He’s Solved the Bermuda Triangle, Just Like That](https://www.yahoo.com/news/articles/scientist-says-solved-bermuda-triangle-131700547.html)
-- Aug 09 - [Whitmer told Trump in private that Michigan auto jobs depend on a tariff change of course](https://finance.yahoo.com/news/whitmer-told-trump-private-michigan-130110135.html)
-- Aug 09 - [Tesla Shutting Down Its AI Supercomputer As Staff Leaves in Droves to Join Competitor](https://finance.yahoo.com/news/tesla-shutting-down-ai-supercomputer-113050022.html)
+- Aug 09 - [Tesla buyer stunned after discovering multiple flaws when picking up new purchase: 'I walked away without the car'](https://autos.yahoo.com/articles/tesla-buyer-stunned-discovering-multiple-124000116.html)
 <!-- feed end -->
 
 ---
