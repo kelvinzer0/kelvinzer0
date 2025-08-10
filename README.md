@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - [California Man Pleads Guilty to Repeatedly Shooting at Police Helicopter as It Flew Around His Home After His Birthday Party](https://www.yahoo.com/news/articles/california-man-pleads-guilty-repeatedly-224027412.html)
+- Aug 09 - ['They'll Jack Up The Price And Blame It On Tariffs,' Mark Cuban Warned 4 Months Ago. The Price Hikes Are Here—He Was Right](https://finance.yahoo.com/news/theyll-jack-price-blame-tariffs-232107545.html)
 - Aug 09 - [LSU freshman JT Lindsey arrested after allegedly harboring 2 murder suspects in his dorm](https://sports.yahoo.com/college-football/breaking-news/article/lsu-freshman-jt-lindsey-arrested-after-allegedly-harboring-2-murder-suspects-in-his-dorm-223649708.html)
-- Aug 09 - [The One Fruit a Neurologist Is Begging People Over 50 To Eat More Of](https://health.yahoo.com/wellness/healthy-aging/longevity/articles/one-fruit-neurologist-begging-people-212500527.html)
+- Aug 09 - [Connecticut town manager loses $210k-a-year job after officials discover her side hustle — 2,000 miles away in Wyoming](https://finance.yahoo.com/news/connecticut-town-manager-pulls-down-211634941.html)
 - Aug 09 - [Iowa man dies after shooting 2 neighbors and setting his house on fire, officials say](https://www.yahoo.com/news/articles/iowa-man-dies-shooting-2-184249614.html)
-- Aug 09 - [Trump promises Monday ‘press conference’ at White House will ‘essentially stop violent crime in Washington, DC’](https://www.yahoo.com/news/articles/trump-promises-monday-press-conference-164049783.html)
+- Aug 09 - [Arthur Hayes ‘Had to Buy It All Back’ After Selling $8.3M Worth of ETH](https://finance.yahoo.com/news/arthur-hayes-had-buy-back-154255972.html)
 <!-- feed end -->
 
 ---
