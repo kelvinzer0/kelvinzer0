@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Do Experts Think Trump’s Plan To Bring Grocery Prices Down Will Work?](https://finance.yahoo.com/news/trump-explains-plans-bring-grocery-121208100.html)
+- Aug 10 - [2 Stocks Down 12% and 62% to Buy Right Now](https://finance.yahoo.com/news/2-stocks-down-12-62-133000915.html)
+- Aug 10 - [NATO Secretary General Rutte says Trump-Putin summit is about 'testing Putin'](https://www.yahoo.com/news/articles/nato-secretary-general-rutte-says-131600320.html)
 - Aug 10 - [A Tropical System Could Likely Form This Week](https://www.yahoo.com/news/videos/tropical-system-could-likely-form-124519131.html)
-- Aug 10 - [After researchers unmasked a prolific SMS scammer, a new operation has emerged in its wake](https://finance.yahoo.com/news/researchers-unmasked-prolific-sms-scammer-120000550.html)
-- Aug 10 - [Boy Discovers Wreck of 275-Year-Old Ship, Once Deployed During the American Revolution, While Out on a Beach Jog](https://www.yahoo.com/news/articles/boy-discovers-wreck-275-old-120000026.html)
-- Aug 10 - [Foreign offenders to be deported sooner](https://www.yahoo.com/news/videos/foreign-offenders-deported-sooner-084114245.html)
-- Aug 09 - [MTG Goes on Fiery Tirade Against ‘Psychopath’ Fox News Host](https://www.yahoo.com/news/articles/mtg-goes-fiery-tirade-against-230950102.html)
+- Aug 10 - [Jaw-dropping video captures moment international bullet train rips past station: 'Nothing short of superhuman'](https://www.yahoo.com/news/articles/jaw-dropping-video-captures-moment-122000432.html)
 <!-- feed end -->
 
 ---
