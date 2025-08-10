@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [Here Are Billionaire Bill Ackman's 5 Biggest Stock Holdings](https://finance.yahoo.com/news/billionaire-bill-ackmans-5-biggest-120000057.html)
+- Aug 10 - [2 Surefire Stocks to Invest $1,000 in for the Long Haul](https://finance.yahoo.com/news/2-surefire-stocks-invest-1-110000109.html)
+- Aug 10 - [The One Trump Flaw Most Americans Can’t Tolerate](https://www.yahoo.com/news/articles/one-trump-flaw-most-americans-100000341.html)
 - Aug 10 - [Foreign offenders to be deported sooner](https://www.yahoo.com/news/videos/foreign-offenders-deported-sooner-084114245.html)
-- Aug 10 - ['I was working as a teacher when I launched the UK's fastest-growing jam brand'](https://uk.finance.yahoo.com/news/jam-fearne-rosie-fruit-health-sugar-050053476.html)
 - Aug 10 - [Chinese diplomat Liu Jianchao taken in for questioning, WSJ reports](https://www.yahoo.com/news/articles/chinese-diplomat-liu-jianchao-taken-040900855.html)
-- Aug 09 - ['They'll Jack Up The Price And Blame It On Tariffs,' Mark Cuban Warned 4 Months Ago. The Price Hikes Are Here—He Was Right](https://finance.yahoo.com/news/theyll-jack-price-blame-tariffs-232107545.html)
-- Aug 09 - [LSU freshman JT Lindsey arrested after allegedly harboring 2 murder suspects in his dorm](https://sports.yahoo.com/college-football/breaking-news/article/lsu-freshman-jt-lindsey-arrested-after-allegedly-harboring-2-murder-suspects-in-his-dorm-223649708.html)
 <!-- feed end -->
 
 ---
