@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 10 - [A Furious MAGA Voter's Post Breaking Down The "Ridiculous" Cost Of Their Diabetes Medicine Due To Donald Trump's Tariffs Is Going Viral](https://www.yahoo.com/news/articles/furious-maga-voters-post-breaking-152100307.html)
 - Aug 10 - [Friday’s attack on the CDC offices was targeted and deliberate, CDC leaders tell staffers](https://www.yahoo.com/news/articles/cdc-leaders-call-shooting-targeted-091806912.html)
 - Aug 10 - [Plane Passenger Purchases Window Seat So She Can Look at the View. But Woman Behind Her Has Other Idea (Exclusive)](https://www.yahoo.com/lifestyle/articles/plane-passenger-purchases-window-seat-150000379.html)
 - Aug 10 - [Rain totals in some Milwaukee County spots top 10 inches as of early Sunday](https://www.yahoo.com/news/articles/rain-totals-milwaukee-county-spots-144520872.html)
-- Aug 10 - [Scientist shuts down widespread myth about worsening global crisis: 'The fact that you're not accepting'](https://www.yahoo.com/news/articles/scientist-shuts-down-widespread-myth-140000443.html)
-- Aug 10 - [The One Supplement You Should Never, Ever Take If You Have High Blood Pressure](https://health.yahoo.com/conditions/cardiovascular-health/articles/one-supplement-never-ever-high-132500807.html)
+- Aug 10 - [Bill Maher, Dr. Phil weigh in on Trump’s redistricting fight: ‘Bulls—’](https://www.yahoo.com/news/articles/bill-maher-dr-phil-weigh-130320254.html)
 <!-- feed end -->
 
 ---
