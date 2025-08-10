@@ -29,8 +29,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 09 - ['They'll Jack Up The Price And Blame It On Tariffs,' Mark Cuban Warned 4 Months Ago. The Price Hikes Are Here—He Was Right](https://finance.yahoo.com/news/theyll-jack-price-blame-tariffs-232107545.html)
-- Aug 09 - [Sam Altman says the AI talent war is a bet that a ‘medium-sized handful of people’ will make superintelligence breakthroughs](https://finance.yahoo.com/news/sam-altman-says-ai-talent-231956181.html)
+- Aug 10 - [Chinese state media says Nvidia H20 chips not safe for China](https://finance.yahoo.com/news/chinese-state-media-says-nvidia-060818615.html)
+- Aug 10 - ['I was working as a teacher when I launched the UK's fastest-growing jam brand'](https://uk.finance.yahoo.com/news/jam-fearne-rosie-fruit-health-sugar-050053476.html)
 - Aug 09 - [LSU freshman JT Lindsey arrested after allegedly harboring 2 murder suspects in his dorm](https://sports.yahoo.com/college-football/breaking-news/article/lsu-freshman-jt-lindsey-arrested-after-allegedly-harboring-2-murder-suspects-in-his-dorm-223649708.html)
 - Aug 09 - [Connecticut town manager loses $210k-a-year job after officials discover her side hustle — 2,000 miles away in Wyoming](https://finance.yahoo.com/news/connecticut-town-manager-pulls-down-211634941.html)
 - Aug 09 - [Trump’s Vile Take on Teenager’s Rape Goes Viral as Epstein Woes Deepen](https://www.yahoo.com/news/articles/trump-vile-teenager-rape-goes-202714336.html)
