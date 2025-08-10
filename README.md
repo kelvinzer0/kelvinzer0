@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Police: Man shoots fiancé to death at her Jensen Beach business](https://www.yahoo.com/news/articles/police-man-shoots-fianc-death-193140161.html)
+- Aug 10 - [Warnings spread on TikTok about ‘Feel Free’ drinks that contain kratom, which has opioid-like effects](https://www.yahoo.com/news/articles/warnings-spread-tiktok-feel-free-181813055.html)
+- Aug 10 - [Nvidia, AMD to pay 15% of China chip sale revenues to US, FT reports](https://tech.yahoo.com/business/articles/nvidia-amd-pay-15-china-205505961.html)
+- Aug 10 - [Actor with colorectal cancer shares simple sign that he ignored: ‘I had no idea’](https://www.yahoo.com/news/articles/actor-colorectal-cancer-shares-simple-183756534.html)
+- Aug 10 - [Tennessee women's basketball's Ruby Whitehorn arrested on multiple charges](https://sports.yahoo.com/article/tennessee-womens-basketballs-ruby-whitehorn-180050747.html)
 - Aug 10 - [Fire breaks out on Edinburgh landmark Arthur's Seat](https://www.yahoo.com/news/articles/fire-breaks-edinburgh-landmark-arthurs-175013327.html)
-- Aug 10 - [Mexico sets minimum export prices for fresh tomatoes](https://finance.yahoo.com/news/mexico-sets-minimum-export-prices-174120444.html)
-- Aug 10 - [Two Major Airlines Share Huge Warning to Domestic Travelers](https://finance.yahoo.com/news/two-major-airlines-share-huge-171621223.html)
-- Aug 10 - [Trump wants to evict homeless from Washington and send them 'far from the capital'](https://www.yahoo.com/news/articles/trump-wants-evict-homeless-washington-170946970.html)
 <!-- feed end -->
 
 ---
