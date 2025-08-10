@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Here Are Billionaire Bill Ackman's 5 Biggest Stock Holdings](https://finance.yahoo.com/news/billionaire-bill-ackmans-5-biggest-120000057.html)
-- Aug 10 - [2 Surefire Stocks to Invest $1,000 in for the Long Haul](https://finance.yahoo.com/news/2-surefire-stocks-invest-1-110000109.html)
-- Aug 10 - [The One Trump Flaw Most Americans Can’t Tolerate](https://www.yahoo.com/news/articles/one-trump-flaw-most-americans-100000341.html)
+- Aug 10 - [A Tropical System Could Likely Form This Week](https://www.yahoo.com/news/videos/tropical-system-could-likely-form-124519131.html)
+- Aug 10 - [After researchers unmasked a prolific SMS scammer, a new operation has emerged in its wake](https://finance.yahoo.com/news/researchers-unmasked-prolific-sms-scammer-120000550.html)
+- Aug 10 - [Boy Discovers Wreck of 275-Year-Old Ship, Once Deployed During the American Revolution, While Out on a Beach Jog](https://www.yahoo.com/news/articles/boy-discovers-wreck-275-old-120000026.html)
 - Aug 10 - [Foreign offenders to be deported sooner](https://www.yahoo.com/news/videos/foreign-offenders-deported-sooner-084114245.html)
-- Aug 10 - [Chinese diplomat Liu Jianchao taken in for questioning, WSJ reports](https://www.yahoo.com/news/articles/chinese-diplomat-liu-jianchao-taken-040900855.html)
+- Aug 09 - [MTG Goes on Fiery Tirade Against ‘Psychopath’ Fox News Host](https://www.yahoo.com/news/articles/mtg-goes-fiery-tirade-against-230950102.html)
 <!-- feed end -->
 
 ---
