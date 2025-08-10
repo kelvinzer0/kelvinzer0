@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 09 - ['They'll Jack Up The Price And Blame It On Tariffs,' Mark Cuban Warned 4 Months Ago. The Price Hikes Are Here—He Was Right](https://finance.yahoo.com/news/theyll-jack-price-blame-tariffs-232107545.html)
+- Aug 09 - [Sam Altman says the AI talent war is a bet that a ‘medium-sized handful of people’ will make superintelligence breakthroughs](https://finance.yahoo.com/news/sam-altman-says-ai-talent-231956181.html)
 - Aug 09 - [LSU freshman JT Lindsey arrested after allegedly harboring 2 murder suspects in his dorm](https://sports.yahoo.com/college-football/breaking-news/article/lsu-freshman-jt-lindsey-arrested-after-allegedly-harboring-2-murder-suspects-in-his-dorm-223649708.html)
-- Aug 09 - [Hundreds cheer Arizona Sen. Ruben Gallego as Democrats take offensive against Trump's tax bill](https://www.yahoo.com/news/articles/hundreds-cheer-arizona-sen-ruben-213650016.html)
 - Aug 09 - [Connecticut town manager loses $210k-a-year job after officials discover her side hustle — 2,000 miles away in Wyoming](https://finance.yahoo.com/news/connecticut-town-manager-pulls-down-211634941.html)
-- Aug 09 - [The One Fruit a Neurologist Is Begging People Over 50 To Eat More Of](https://health.yahoo.com/wellness/healthy-aging/longevity/articles/one-fruit-neurologist-begging-people-212500527.html)
+- Aug 09 - [Trump’s Vile Take on Teenager’s Rape Goes Viral as Epstein Woes Deepen](https://www.yahoo.com/news/articles/trump-vile-teenager-rape-goes-202714336.html)
 <!-- feed end -->
 
 ---
