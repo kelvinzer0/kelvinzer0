@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Major supermarket issues urgent ‘do not eat’ warning for popular snack due to ‘health risk’](https://www.yahoo.com/news/articles/major-supermarket-issues-urgent-not-092158231.html)
 - Aug 10 - [Foreign offenders to be deported sooner](https://www.yahoo.com/news/videos/foreign-offenders-deported-sooner-084114245.html)
+- Aug 10 - ['I was working as a teacher when I launched the UK's fastest-growing jam brand'](https://uk.finance.yahoo.com/news/jam-fearne-rosie-fruit-health-sugar-050053476.html)
 - Aug 10 - [Chinese diplomat Liu Jianchao taken in for questioning, WSJ reports](https://www.yahoo.com/news/articles/chinese-diplomat-liu-jianchao-taken-040900855.html)
-- Aug 10 - [Heat continues to move through New Mexico](https://www.yahoo.com/news/articles/heat-continues-move-mexico-032815445.html)
+- Aug 09 - ['They'll Jack Up The Price And Blame It On Tariffs,' Mark Cuban Warned 4 Months Ago. The Price Hikes Are Here—He Was Right](https://finance.yahoo.com/news/theyll-jack-price-blame-tariffs-232107545.html)
 - Aug 09 - [LSU freshman JT Lindsey arrested after allegedly harboring 2 murder suspects in his dorm](https://sports.yahoo.com/college-football/breaking-news/article/lsu-freshman-jt-lindsey-arrested-after-allegedly-harboring-2-murder-suspects-in-his-dorm-223649708.html)
 <!-- feed end -->
 
