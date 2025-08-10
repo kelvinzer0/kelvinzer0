@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Family and fans mourn 'Palestinian Pele' killed in Gaza](https://www.yahoo.com/news/videos/family-fans-mourn-palestinian-pele-201357717.html)
-- Aug 10 - [Trump demands homeless ‘immediately’ move out of Washington DC to make nation’s capital ‘more beautiful’](https://www.yahoo.com/news/articles/trump-demands-homeless-immediately-move-174637432.html)
-- Aug 10 - [Tennessee women's basketball's Ruby Whitehorn arrested on multiple charges](https://sports.yahoo.com/article/tennessee-womens-basketballs-ruby-whitehorn-180050747.html)
+- Aug 10 - [Police: Man shoots fiancé to death at her Jensen Beach business](https://www.yahoo.com/news/articles/police-man-shoots-fianc-death-193140161.html)
 - Aug 10 - [Fire breaks out on Edinburgh landmark Arthur's Seat](https://www.yahoo.com/news/articles/fire-breaks-edinburgh-landmark-arthurs-175013327.html)
-- Aug 10 - [More than half of industries are already shedding workers, a ‘telling’ sign that’s accompanied past recessions, top economist says](https://finance.yahoo.com/news/more-half-industries-already-shedding-171804971.html)
+- Aug 10 - [Mexico sets minimum export prices for fresh tomatoes](https://finance.yahoo.com/news/mexico-sets-minimum-export-prices-174120444.html)
+- Aug 10 - [Two Major Airlines Share Huge Warning to Domestic Travelers](https://finance.yahoo.com/news/two-major-airlines-share-huge-171621223.html)
+- Aug 10 - [Trump wants to evict homeless from Washington and send them 'far from the capital'](https://www.yahoo.com/news/articles/trump-wants-evict-homeless-washington-170946970.html)
 <!-- feed end -->
 
 ---
