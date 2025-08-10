@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 10 - [Fire breaks out on Edinburgh landmark Arthur's Seat](https://www.yahoo.com/news/articles/fire-breaks-edinburgh-landmark-arthurs-175013327.html)
+- Aug 10 - [Mexico sets minimum export prices for fresh tomatoes](https://finance.yahoo.com/news/mexico-sets-minimum-export-prices-174120444.html)
 - Aug 10 - [Trump moves Obama, Bush portraits to hidden stairwell](https://www.yahoo.com/news/articles/trump-moves-obama-bush-portraits-140726037.html)
+- Aug 10 - [Two Major Airlines Share Huge Warning to Domestic Travelers](https://finance.yahoo.com/news/two-major-airlines-share-huge-171621223.html)
 - Aug 10 - [Trump wants to evict homeless from Washington and send them 'far from the capital'](https://www.yahoo.com/news/articles/trump-wants-evict-homeless-washington-170946970.html)
-- Aug 10 - [Plane Passenger Purchases Window Seat So She Can Look at the View. But Woman Behind Her Has Other Idea (Exclusive)](https://www.yahoo.com/lifestyle/articles/plane-passenger-purchases-window-seat-150000379.html)
-- Aug 10 - [Scientist shuts down widespread myth about worsening global crisis: 'The fact that you're not accepting'](https://www.yahoo.com/news/articles/scientist-shuts-down-widespread-myth-140000443.html)
 <!-- feed end -->
 
 ---
