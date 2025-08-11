@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Construction leads to congestion throughout Palm Beach, officials say](https://www.yahoo.com/news/articles/construction-leads-congestion-throughout-palm-192409457.html)
 - Aug 11 - [Tropical Storm Erin to become hurricane. Where it's going, Sarasota, Bradenton impact](https://www.yahoo.com/news/articles/tropical-storm-erin-become-hurricane-190916290.html)
 - Aug 11 - [Why Niger is investigating the $5 million sale of the largest Mars rock found on Earth](https://www.yahoo.com/news/articles/why-niger-investigating-5-million-183957150.html)
-- Aug 11 - [Video shows moment of explosion at US Steel plant in Pennsylvania](https://www.yahoo.com/news/videos/video-shows-moment-explosion-us-183036562.html)
 - Aug 11 - [Scientists say they cruised the ocean in a deep-sea submersible and came across an undiscovered ecosystem](https://www.yahoo.com/news/articles/scientists-cruised-ocean-deep-sea-182658013.html)
+- Aug 11 - [July CPI report expected to show inflation accelerated amid tariff pressures](https://finance.yahoo.com/news/july-cpi-report-expected-to-show-inflation-accelerated-amid-tariff-pressures-173606177.html)
+- Aug 11 - [400-pound black bear roaming Massachusetts neighborhood, police warn](https://www.yahoo.com/news/articles/400-pound-black-bear-roaming-171118791.html)
 <!-- feed end -->
 
 ---
