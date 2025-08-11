@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Officials issue warning after discovering first-of-its-kind infestation at mine site: 'Significant and devastating'](https://www.yahoo.com/news/articles/officials-issue-warning-discovering-first-221500027.html)
+- Aug 10 - [Authorities make shocking discovery during routine inspection at US border: 'He intended to sell it to a friend'](https://www.yahoo.com/news/articles/authorities-shocking-discovery-during-routine-224500387.html)
 - Aug 10 - [Yacht-sized passenger boat runs aground in high surf off Hawaii beach](https://www.yahoo.com/news/articles/yacht-sized-passenger-boat-runs-215901683.html)
+- Aug 10 - [Man's attempt to tow car goes terribly wrong in Washington state](https://www.yahoo.com/news/videos/mans-attempt-tow-car-goes-213925571.html)
 - Aug 10 - [Colorado prison evacuated as growing wildfire becomes one of the largest in state history](https://www.yahoo.com/news/articles/colorado-prison-evacuated-growing-wildfire-205633094.html)
-- Aug 10 - [Nvidia, AMD to pay 15% of China chip sale revenues to US, FT reports](https://tech.yahoo.com/business/articles/nvidia-amd-pay-15-china-205505961.html)
-- Aug 10 - [‘Every parent’s worst nightmare’: Tragic end to search for missing North Carolina teen who sent chilling final text to mom](https://www.yahoo.com/news/articles/every-parent-worst-nightmare-tragic-201934199.html)
+- Aug 10 - [Delta plane wing clips empty aircraft during pushback from gate in Atlanta](https://www.yahoo.com/news/articles/delta-plane-wing-clips-empty-191516805.html)
 <!-- feed end -->
 
 ---
