@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Tropical Storm Erin to become hurricane. Where it's going, Sarasota, Bradenton impact](https://www.yahoo.com/news/articles/tropical-storm-erin-become-hurricane-190916290.html)
-- Aug 11 - [Why Niger is investigating the $5 million sale of the largest Mars rock found on Earth](https://www.yahoo.com/news/articles/why-niger-investigating-5-million-183957150.html)
-- Aug 11 - [Scientists say they cruised the ocean in a deep-sea submersible and came across an undiscovered ecosystem](https://www.yahoo.com/news/articles/scientists-cruised-ocean-deep-sea-182658013.html)
-- Aug 11 - [July CPI report expected to show inflation accelerated amid tariff pressures](https://finance.yahoo.com/news/july-cpi-report-expected-to-show-inflation-accelerated-amid-tariff-pressures-173606177.html)
-- Aug 11 - [400-pound black bear roaming Massachusetts neighborhood, police warn](https://www.yahoo.com/news/articles/400-pound-black-bear-roaming-171118791.html)
+- Aug 11 - [Homeowners struggle with soaring insurance costs amid concerning nationwide trends: 'Uninsurable future'](https://www.yahoo.com/news/articles/homeowners-struggle-soaring-insurance-costs-213000497.html)
+- Aug 11 - [Police say three people have been killed in a shooting outside a Target store in Texas](https://www.yahoo.com/news/videos/police-three-people-killed-shooting-211609779.html)
+- Aug 11 - [Man Caught Vaping in Airplane Bathroom in Viral Video Speaks Out](https://www.yahoo.com/news/videos/man-caught-vaping-airplane-bathroom-210518353.html)
+- Aug 11 - [The next 'Big One' on the San Andreas fault might not be the earthquake we expect, researchers say](https://www.yahoo.com/news/articles/next-big-one-san-andreas-201935403.html)
+- Aug 11 - [Hand soap recalled over bacterial contamination that could cause sepsis. Here’s a list of the affected products.](https://www.yahoo.com/news/us/article/hand-soap-recalled-over-bacterial-contamination-that-could-cause-sepsis-heres-a-list-of-the-affected-products-193618990.html)
 <!-- feed end -->
 
 ---
