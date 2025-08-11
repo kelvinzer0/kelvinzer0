@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Lawsuit over Epstein files could expose Trump administration’s handling of the matter](https://www.yahoo.com/news/articles/lawsuit-over-epstein-files-could-165541488.html)
-- Aug 11 - [Shark Tank: What Happened To The MTailor App?](https://finance.yahoo.com/news/shark-tank-happened-mtailor-app-161700859.html)
-- Aug 11 - [Oops! FBI Chief Undermines Trump’s Main Reason for Taking Over D.C.](https://www.yahoo.com/news/articles/oops-fbi-chief-undermines-trump-155713457.html)
-- Aug 11 - [GitHub CEO says Microsoft's memo about evaluating AI use is 'totally fair game'](https://tech.yahoo.com/ai/articles/github-ceo-says-microsofts-memo-155037574.html)
+- Aug 11 - [From Bitcoin to AI: Why Maelstrom’s Akshat Vaidya Says Crypto’s Next Wave Is Already Here](https://finance.yahoo.com/news/bitcoin-ai-why-maelstrom-akshat-180412165.html)
+- Aug 11 - [Perseids meteor shower 2025 will peak Tuesday night: When and where to watch the year's brightest shower](https://www.yahoo.com/news/science/article/perseids-meteor-shower-2025-will-peak-tuesday-night-when-and-where-to-watch-the-years-brightest-shower-170732470.html)
+- Aug 11 - [Ford's CEO just threw down the gauntlet at BYD and Tesla with its own $30,000 EV truck](https://finance.yahoo.com/news/fords-ceo-just-threw-down-162556685.html)
 - Aug 11 - [A Fit, Healthy 22-Year-Old's Back Pain Was Blamed on New Office Job. Months Later, She Was Diagnosed with Blood Cancer](https://www.yahoo.com/news/articles/fit-healthy-22-olds-back-154833555.html)
+- Aug 11 - [OpenAI’s CEO Sam Altman says in 10 years’ time college graduates will be working ‘some completely new, exciting, super well-paid’ job in space](https://tech.yahoo.com/ai/articles/openai-ceo-sam-altman-says-151944949.html)
 <!-- feed end -->
 
 ---
