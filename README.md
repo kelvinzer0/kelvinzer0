@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Tropical Storm Erin Forms In The Atlantic — Here's The Latest](https://www.yahoo.com/news/articles/tropical-storm-erin-forms-atlantic-150000911.html)
-- Aug 11 - [Ford's new line of affordable vehicles to start at about $30,000](https://finance.yahoo.com/news/fords-line-affordable-vehicles-start-143643611.html)
-- Aug 11 - [Chinese ships slam into one another during a South China Sea chase, Philippine Coast Guard video shows](https://www.yahoo.com/news/articles/chinese-ships-slam-one-another-143138890.html)
-- Aug 11 - [Scientists Announce a Physical Warp Drive Is Now Possible. Seriously.](https://www.yahoo.com/news/articles/scientists-announce-physical-warp-drive-141700157.html)
-- Aug 11 - [Donald Trump Lashes Out At Paul Krugman As “Deranged Bum”; “Now This Is Flattering,” Economist Responds](https://www.yahoo.com/news/articles/donald-trump-lashes-paul-krugman-135755550.html)
+- Aug 11 - [Lawsuit over Epstein files could expose Trump administration’s handling of the matter](https://www.yahoo.com/news/articles/lawsuit-over-epstein-files-could-165541488.html)
+- Aug 11 - [Shark Tank: What Happened To The MTailor App?](https://finance.yahoo.com/news/shark-tank-happened-mtailor-app-161700859.html)
+- Aug 11 - [Oops! FBI Chief Undermines Trump’s Main Reason for Taking Over D.C.](https://www.yahoo.com/news/articles/oops-fbi-chief-undermines-trump-155713457.html)
+- Aug 11 - [GitHub CEO says Microsoft's memo about evaluating AI use is 'totally fair game'](https://tech.yahoo.com/ai/articles/github-ceo-says-microsofts-memo-155037574.html)
+- Aug 11 - [A Fit, Healthy 22-Year-Old's Back Pain Was Blamed on New Office Job. Months Later, She Was Diagnosed with Blood Cancer](https://www.yahoo.com/news/articles/fit-healthy-22-olds-back-154833555.html)
 <!-- feed end -->
 
 ---
