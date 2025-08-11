@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Video appears to show the moment a Palestinian activist is killed as an Israeli settler opens fire](https://www.yahoo.com/news/articles/video-appears-show-moment-palestinian-133334540.html)
+- Aug 11 - [Finland charges top officers of Russia-linked vessel that damaged undersea cables](https://www.yahoo.com/news/articles/finland-charges-top-officers-russia-130539801.html)
 - Aug 11 - [UFC agrees to groundbreaking $7.7 billion deal with Paramount and CBS, ditching pay-per-view model](https://sports.yahoo.com/mma/breaking-news/article/ufc-agrees-to-groundbreaking-77-billion-deal-with-paramount-and-cbs-ditching-pay-per-view-model-123522139.html)
 - Aug 11 - [I was sent $3K from a random number. The stranger said it was a mistake — then accused me of stealing. Is this a scam](https://www.yahoo.com/lifestyle/articles/sent-3k-random-number-stranger-123000086.html)
 - Aug 11 - [The vice president thinks it was a “mistake” for the Tesla CEO to split with the president, and hopes he’ll be back in time for midterms.](https://www.yahoo.com/news/videos/vice-president-thinks-mistake-tesla-121115414.html)
-- Aug 11 - [Air India to suspend Delhi-Washington services from September](https://finance.yahoo.com/news/air-india-suspend-services-washington-115109498.html)
-- Aug 11 - [Trump's big bill is powering his mass deportations. Congress is starting to ask questions](https://www.yahoo.com/news/articles/trumps-big-bill-powering-mass-111514464.html)
 <!-- feed end -->
 
 ---
