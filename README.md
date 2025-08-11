@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Homeowners struggle with soaring insurance costs amid concerning nationwide trends: 'Uninsurable future'](https://www.yahoo.com/news/articles/homeowners-struggle-soaring-insurance-costs-213000497.html)
-- Aug 11 - [Police say three people have been killed in a shooting outside a Target store in Texas](https://www.yahoo.com/news/videos/police-three-people-killed-shooting-211609779.html)
+- Aug 11 - [Mountain lion attacks 11-year-old girl at home in Malibu, California](https://www.yahoo.com/news/articles/mountain-lion-attacks-11-old-223228362.html)
+- Aug 11 - [China and the US clash at the UN over the Panama Canal, a focus of Trump's attention](https://www.yahoo.com/news/articles/china-us-clash-un-over-221013733.html)
+- Aug 11 - [Hegseth’s Rant on D.C. Takeover Turned Into Evidence Against Trump](https://www.yahoo.com/news/articles/hegseth-rant-d-c-takeover-211816172.html)
+- Aug 11 - [Donald Trump Nixes Idea Of Larger White House Briefing Room, Tells Reporters “I Don’t Want You To Be Comfortable”](https://www.yahoo.com/news/articles/donald-trump-nixes-idea-larger-211607858.html)
 - Aug 11 - [Man Caught Vaping in Airplane Bathroom in Viral Video Speaks Out](https://www.yahoo.com/news/videos/man-caught-vaping-airplane-bathroom-210518353.html)
-- Aug 11 - [The next 'Big One' on the San Andreas fault might not be the earthquake we expect, researchers say](https://www.yahoo.com/news/articles/next-big-one-san-andreas-201935403.html)
-- Aug 11 - [Hand soap recalled over bacterial contamination that could cause sepsis. Here’s a list of the affected products.](https://www.yahoo.com/news/us/article/hand-soap-recalled-over-bacterial-contamination-that-could-cause-sepsis-heres-a-list-of-the-affected-products-193618990.html)
 <!-- feed end -->
 
 ---
