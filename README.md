@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Construction leads to congestion throughout Palm Beach, officials say](https://www.yahoo.com/news/articles/construction-leads-congestion-throughout-palm-192409457.html)
+- Aug 11 - [Tropical Storm Erin to become hurricane. Where it's going, Sarasota, Bradenton impact](https://www.yahoo.com/news/articles/tropical-storm-erin-become-hurricane-190916290.html)
 - Aug 11 - [Why Niger is investigating the $5 million sale of the largest Mars rock found on Earth](https://www.yahoo.com/news/articles/why-niger-investigating-5-million-183957150.html)
-- Aug 11 - [Ford Sees Its $30,000 EV Pickup Coming in 2027 as a Revolutionary Electric Truck](https://autos.yahoo.com/articles/ford-sees-30-000-ev-180200799.html)
-- Aug 11 - [This isn’t the death of the American Republic. It’s the birth of colour-blind democracy](https://www.yahoo.com/news/articles/isn-t-death-american-republic-173814436.html)
-- Aug 11 - [July CPI report expected to show inflation accelerated amid tariff pressures](https://finance.yahoo.com/news/july-cpi-report-expected-to-show-inflation-accelerated-amid-tariff-pressures-173606177.html)
-- Aug 11 - [I'm a millionaire dad who started investing for my 3 kids when they were born. Here's my advice for other parents.](https://finance.yahoo.com/news/im-millionaire-dad-started-investing-170502537.html)
+- Aug 11 - [Video shows moment of explosion at US Steel plant in Pennsylvania](https://www.yahoo.com/news/videos/video-shows-moment-explosion-us-183036562.html)
+- Aug 11 - [Scientists say they cruised the ocean in a deep-sea submersible and came across an undiscovered ecosystem](https://www.yahoo.com/news/articles/scientists-cruised-ocean-deep-sea-182658013.html)
 <!-- feed end -->
 
 ---
