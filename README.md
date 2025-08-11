@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Video appears to show the moment a Palestinian activist is killed as an Israeli settler opens fire](https://www.yahoo.com/news/articles/video-appears-show-moment-palestinian-133334540.html)
+- Aug 11 - [Ford's new line of affordable vehicles to start at about $30,000](https://finance.yahoo.com/news/fords-line-affordable-vehicles-start-143643611.html)
+- Aug 11 - [Ford Is Taking on Expensive EVs and the Toyota RAV4 with Its New 'Model T'—a $30K Mid-Size EV Truck](https://autos.yahoo.com/articles/30-000-ev-pickup-truck-143300614.html)
+- Aug 11 - [Donald Trump Lashes Out At Paul Krugman As “Deranged Bum”; “Now This Is Flattering,” Economist Responds](https://www.yahoo.com/news/articles/donald-trump-lashes-paul-krugman-135755550.html)
+- Aug 11 - [Lithium stocks soar after world's largest EV battery maker shutters mine in China](https://finance.yahoo.com/news/lithium-stocks-soar-after-worlds-largest-ev-battery-maker-shutters-mine-in-china-133521609.html)
 - Aug 11 - [Finland charges top officers of Russia-linked vessel that damaged undersea cables](https://www.yahoo.com/news/articles/finland-charges-top-officers-russia-130539801.html)
-- Aug 11 - [UFC agrees to groundbreaking $7.7 billion deal with Paramount and CBS, ditching pay-per-view model](https://sports.yahoo.com/mma/breaking-news/article/ufc-agrees-to-groundbreaking-77-billion-deal-with-paramount-and-cbs-ditching-pay-per-view-model-123522139.html)
-- Aug 11 - [I was sent $3K from a random number. The stranger said it was a mistake — then accused me of stealing. Is this a scam](https://www.yahoo.com/lifestyle/articles/sent-3k-random-number-stranger-123000086.html)
-- Aug 11 - [The vice president thinks it was a “mistake” for the Tesla CEO to split with the president, and hopes he’ll be back in time for midterms.](https://www.yahoo.com/news/videos/vice-president-thinks-mistake-tesla-121115414.html)
 <!-- feed end -->
 
 ---
