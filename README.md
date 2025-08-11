@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Here's who gets Social Security payments this week](https://www.yahoo.com/news/articles/heres-gets-social-security-payments-090837203.html)
-- Aug 11 - [Dutch Bros Shares Soar on Outlook. Is It Too Late to Buy the Stock?](https://finance.yahoo.com/news/dutch-bros-shares-soar-outlook-083500998.html)
-- Aug 11 - [Massive mudslide kills 7 volunteers repairing flood damage in northern Pakistan](https://www.yahoo.com/news/articles/massive-mudslide-kills-7-volunteers-082800336.html)
-- Aug 11 - [In India, Trump's tariffs spark calls to boycott American goods](https://finance.yahoo.com/news/india-trumps-tariffs-spark-calls-075205668.html)
-- Aug 11 - [Mideast Funds Adopt Wall Street Pay Model](https://finance.yahoo.com/video/mideast-funds-adopt-wall-street-064604894.html)
+- Aug 11 - [Rahul Gandhi among opposition leaders detained during protest against India election panel](https://www.yahoo.com/news/articles/rahul-gandhi-among-opposition-leaders-101157518.html)
+- Aug 11 - ['Childhood verbal abuse can have similar impact as physical abuse’](https://www.yahoo.com/news/articles/childhood-verbal-abuse-similar-impact-092821018.html)
+- Aug 11 - [Hicks: Grim recessionary facts since erratic U.S. economic policies took hold](https://finance.yahoo.com/news/hicks-grim-recessionary-facts-since-084558758.html)
+- Aug 11 - [People Are Sharing The "Biggest Historical Lies" Most People Still Believe, And I'm 99% Sure You Believe At Least One](https://www.yahoo.com/news/articles/19-biggest-historical-lies-people-033104036.html)
+- Aug 11 - [Philippines' Marcos says China 'misinterpreted' his comments on Taiwan](https://www.yahoo.com/news/articles/philippines-marcos-says-china-misinterpreted-031245753.html)
 <!-- feed end -->
 
 ---
