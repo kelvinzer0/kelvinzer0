@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [19 Of The Biggest Historical Lies People Somehow Still Believe Despite All Evidence To The Contrary](https://www.yahoo.com/news/articles/19-biggest-historical-lies-people-033104036.html)
-- Aug 11 - [I-TEAM: Residents speak out after mayor’s wife indicted for incident at a home](https://www.yahoo.com/news/articles/team-residents-speak-mayor-wife-173132987.html)
+- Aug 11 - [Indian alloy steel producers file anti-dumping plea against Chinese steel, executive says](https://finance.yahoo.com/news/indian-alloy-steel-producers-file-050302789.html)
+- Aug 11 - [Philippines' Marcos says China 'misinterpreted' his comments on Taiwan](https://www.yahoo.com/news/articles/philippines-marcos-says-china-misinterpreted-031245753.html)
+- Aug 10 - [Food safety officials issue warning against popular yogurt brand sold at supermarkets: 'Could present a risk to consumers'](https://www.yahoo.com/news/articles/food-safety-officials-issue-warning-233500423.html)
 - Aug 10 - [Study on Mice Suggests Nose-Picking Has a Surprising Link With Alzheimer's](https://www.yahoo.com/news/articles/study-mice-suggests-nose-picking-223800716.html)
 - Aug 10 - [75-foot passenger vessel runs aground near harbor in Honolulu, US coast guard says](https://www.yahoo.com/news/videos/75-foot-passenger-vessel-runs-214443707.html)
-- Aug 10 - [Israel kills Al Jazeera journalist it says was Hamas leader](https://www.yahoo.com/news/articles/israel-says-killed-al-jazeera-210911203.html)
 <!-- feed end -->
 
 ---
