@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 11 - [Tropical Storm Erin Forms In The Atlantic — Here's The Latest](https://www.yahoo.com/news/articles/tropical-storm-erin-forms-atlantic-150000911.html)
 - Aug 11 - [Ford's new line of affordable vehicles to start at about $30,000](https://finance.yahoo.com/news/fords-line-affordable-vehicles-start-143643611.html)
-- Aug 11 - [Ford Is Taking on Expensive EVs and the Toyota RAV4 with Its New 'Model T'—a $30K Mid-Size EV Truck](https://autos.yahoo.com/articles/30-000-ev-pickup-truck-143300614.html)
+- Aug 11 - [Chinese ships slam into one another during a South China Sea chase, Philippine Coast Guard video shows](https://www.yahoo.com/news/articles/chinese-ships-slam-one-another-143138890.html)
+- Aug 11 - [Scientists Announce a Physical Warp Drive Is Now Possible. Seriously.](https://www.yahoo.com/news/articles/scientists-announce-physical-warp-drive-141700157.html)
 - Aug 11 - [Donald Trump Lashes Out At Paul Krugman As “Deranged Bum”; “Now This Is Flattering,” Economist Responds](https://www.yahoo.com/news/articles/donald-trump-lashes-paul-krugman-135755550.html)
-- Aug 11 - [Lithium stocks soar after world's largest EV battery maker shutters mine in China](https://finance.yahoo.com/news/lithium-stocks-soar-after-worlds-largest-ev-battery-maker-shutters-mine-in-china-133521609.html)
-- Aug 11 - [Finland charges top officers of Russia-linked vessel that damaged undersea cables](https://www.yahoo.com/news/articles/finland-charges-top-officers-russia-130539801.html)
 <!-- feed end -->
 
 ---
