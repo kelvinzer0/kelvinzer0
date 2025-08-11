@@ -30,7 +30,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 11 - [Mideast Funds Adopt Wall Street Pay Model](https://finance.yahoo.com/video/mideast-funds-adopt-wall-street-064604894.html)
-- Aug 11 - [Exclusive-Fistful of dollars and rice for Vietnam farmers displaced for $1.5 billion Trump golf club](https://finance.yahoo.com/news/exclusive-fistful-dollars-rice-vietnam-010515400.html)
+- Aug 11 - [Philippines' Marcos says China 'misinterpreted' his comments on Taiwan](https://www.yahoo.com/news/articles/philippines-marcos-says-china-misinterpreted-031245753.html)
 - Aug 10 - [Food safety officials issue warning against popular yogurt brand sold at supermarkets: 'Could present a risk to consumers'](https://www.yahoo.com/news/articles/food-safety-officials-issue-warning-233500423.html)
 - Aug 10 - [Study on Mice Suggests Nose-Picking Has a Surprising Link With Alzheimer's](https://www.yahoo.com/news/articles/study-mice-suggests-nose-picking-223800716.html)
 - Aug 10 - [Yacht-sized passenger boat runs aground in high surf off Hawaii beach](https://www.yahoo.com/news/articles/yacht-sized-passenger-boat-runs-215901683.html)
