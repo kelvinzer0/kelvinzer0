@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Indian alloy steel producers file anti-dumping plea against Chinese steel, executive says](https://finance.yahoo.com/news/indian-alloy-steel-producers-file-050302789.html)
 - Aug 11 - [Philippines' Marcos says China 'misinterpreted' his comments on Taiwan](https://www.yahoo.com/news/articles/philippines-marcos-says-china-misinterpreted-031245753.html)
-- Aug 10 - [Food safety officials issue warning against popular yogurt brand sold at supermarkets: 'Could present a risk to consumers'](https://www.yahoo.com/news/articles/food-safety-officials-issue-warning-233500423.html)
+- Aug 11 - [Imperial Germany’s turn-of-the-century plan to invade the United States](https://www.yahoo.com/news/articles/imperial-germany-turn-century-plan-001207333.html)
 - Aug 10 - [Study on Mice Suggests Nose-Picking Has a Surprising Link With Alzheimer's](https://www.yahoo.com/news/articles/study-mice-suggests-nose-picking-223800716.html)
-- Aug 10 - [75-foot passenger vessel runs aground near harbor in Honolulu, US coast guard says](https://www.yahoo.com/news/videos/75-foot-passenger-vessel-runs-214443707.html)
+- Aug 10 - [Yacht-sized passenger boat runs aground in high surf off Hawaii beach](https://www.yahoo.com/news/articles/yacht-sized-passenger-boat-runs-215901683.html)
+- Aug 10 - [Man's attempt to tow car goes terribly wrong in Washington state](https://www.yahoo.com/news/videos/mans-attempt-tow-car-goes-213925571.html)
 <!-- feed end -->
 
 ---
