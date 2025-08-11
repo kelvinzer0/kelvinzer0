@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 10 - [Authorities make shocking discovery during routine inspection at US border: 'He intended to sell it to a friend'](https://www.yahoo.com/news/articles/authorities-shocking-discovery-during-routine-224500387.html)
-- Aug 10 - [Yacht-sized passenger boat runs aground in high surf off Hawaii beach](https://www.yahoo.com/news/articles/yacht-sized-passenger-boat-runs-215901683.html)
-- Aug 10 - [Man's attempt to tow car goes terribly wrong in Washington state](https://www.yahoo.com/news/videos/mans-attempt-tow-car-goes-213925571.html)
-- Aug 10 - [Colorado prison evacuated as growing wildfire becomes one of the largest in state history](https://www.yahoo.com/news/articles/colorado-prison-evacuated-growing-wildfire-205633094.html)
-- Aug 10 - [Delta plane wing clips empty aircraft during pushback from gate in Atlanta](https://www.yahoo.com/news/articles/delta-plane-wing-clips-empty-191516805.html)
+- Aug 11 - [19 Of The Biggest Historical Lies People Somehow Still Believe Despite All Evidence To The Contrary](https://www.yahoo.com/news/articles/19-biggest-historical-lies-people-033104036.html)
+- Aug 11 - [I-TEAM: Residents speak out after mayor’s wife indicted for incident at a home](https://www.yahoo.com/news/articles/team-residents-speak-mayor-wife-173132987.html)
+- Aug 10 - [Study on Mice Suggests Nose-Picking Has a Surprising Link With Alzheimer's](https://www.yahoo.com/news/articles/study-mice-suggests-nose-picking-223800716.html)
+- Aug 10 - [75-foot passenger vessel runs aground near harbor in Honolulu, US coast guard says](https://www.yahoo.com/news/videos/75-foot-passenger-vessel-runs-214443707.html)
+- Aug 10 - [Israel kills Al Jazeera journalist it says was Hamas leader](https://www.yahoo.com/news/articles/israel-says-killed-al-jazeera-210911203.html)
 <!-- feed end -->
 
 ---
