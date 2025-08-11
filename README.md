@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Rahul Gandhi among opposition leaders detained during protest against India election panel](https://www.yahoo.com/news/articles/rahul-gandhi-among-opposition-leaders-101157518.html)
-- Aug 11 - ['Childhood verbal abuse can have similar impact as physical abuse’](https://www.yahoo.com/news/articles/childhood-verbal-abuse-similar-impact-092821018.html)
+- Aug 11 - [India calls for boycott of American goods over Trump tariffs](https://finance.yahoo.com/video/india-calls-boycott-american-goods-105031614.html)
+- Aug 11 - [FIRST ON CNN: Testing finds caffeinated coffee is clean of contaminants. Well, almost](https://www.yahoo.com/news/articles/first-cnn-testing-finds-caffeinated-100043695.html)
+- Aug 11 - [This 4.3%-Yielding Dividend Stock Could Double Its Payout In 8 Years](https://finance.yahoo.com/news/4-3-yielding-dividend-stock-095300966.html)
+- Aug 11 - [Residents in CT ‘small-town farm community’ push back on massive new warehouse plan. Here’s why](https://www.yahoo.com/news/articles/residents-ct-small-town-farm-091500646.html)
 - Aug 11 - [Hicks: Grim recessionary facts since erratic U.S. economic policies took hold](https://finance.yahoo.com/news/hicks-grim-recessionary-facts-since-084558758.html)
-- Aug 11 - [People Are Sharing The "Biggest Historical Lies" Most People Still Believe, And I'm 99% Sure You Believe At Least One](https://www.yahoo.com/news/articles/19-biggest-historical-lies-people-033104036.html)
-- Aug 11 - [Philippines' Marcos says China 'misinterpreted' his comments on Taiwan](https://www.yahoo.com/news/articles/philippines-marcos-says-china-misinterpreted-031245753.html)
 <!-- feed end -->
 
 ---
