@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [From Bitcoin to AI: Why Maelstrom’s Akshat Vaidya Says Crypto’s Next Wave Is Already Here](https://finance.yahoo.com/news/bitcoin-ai-why-maelstrom-akshat-180412165.html)
-- Aug 11 - [Perseids meteor shower 2025 will peak Tuesday night: When and where to watch the year's brightest shower](https://www.yahoo.com/news/science/article/perseids-meteor-shower-2025-will-peak-tuesday-night-when-and-where-to-watch-the-years-brightest-shower-170732470.html)
-- Aug 11 - [Ford's CEO just threw down the gauntlet at BYD and Tesla with its own $30,000 EV truck](https://finance.yahoo.com/news/fords-ceo-just-threw-down-162556685.html)
-- Aug 11 - [A Fit, Healthy 22-Year-Old's Back Pain Was Blamed on New Office Job. Months Later, She Was Diagnosed with Blood Cancer](https://www.yahoo.com/news/articles/fit-healthy-22-olds-back-154833555.html)
-- Aug 11 - [OpenAI’s CEO Sam Altman says in 10 years’ time college graduates will be working ‘some completely new, exciting, super well-paid’ job in space](https://tech.yahoo.com/ai/articles/openai-ceo-sam-altman-says-151944949.html)
+- Aug 11 - [Why Niger is investigating the $5 million sale of the largest Mars rock found on Earth](https://www.yahoo.com/news/articles/why-niger-investigating-5-million-183957150.html)
+- Aug 11 - [Ford Sees Its $30,000 EV Pickup Coming in 2027 as a Revolutionary Electric Truck](https://autos.yahoo.com/articles/ford-sees-30-000-ev-180200799.html)
+- Aug 11 - [This isn’t the death of the American Republic. It’s the birth of colour-blind democracy](https://www.yahoo.com/news/articles/isn-t-death-american-republic-173814436.html)
+- Aug 11 - [July CPI report expected to show inflation accelerated amid tariff pressures](https://finance.yahoo.com/news/july-cpi-report-expected-to-show-inflation-accelerated-amid-tariff-pressures-173606177.html)
+- Aug 11 - [I'm a millionaire dad who started investing for my 3 kids when they were born. Here's my advice for other parents.](https://finance.yahoo.com/news/im-millionaire-dad-started-investing-170502537.html)
 <!-- feed end -->
 
 ---
