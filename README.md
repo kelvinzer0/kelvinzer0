@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Beloved Restaurant Announces It's Closing After 20 Years](https://www.yahoo.com/news/articles/beloved-restaurant-announces-closing-20-143819408.html)
-- Aug 12 - [Apple has a new AI problem—this time from Elon Musk, who’s threatening ‘legal action’ if it doesn’t knock ChatGPT off the top of its App Store](https://finance.yahoo.com/news/apple-ai-problem-time-elon-140529635.html)
-- Aug 12 - [Self-made multimillionaire behind $4 billion Skims empire says she was ‘using AI like a 42-year-old woman’—until Mark Cuban gave her a wake-up call](https://finance.yahoo.com/news/self-made-multimillionaire-behind-4-135426592.html)
-- Aug 12 - [Jimmy Kimmel Says ‘I Did Get Italian Citizenship’ Because Trump’s Presidency ‘Is as Bad as You Thought It Was Gonna Be. It’s So Much Worse’](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-says-did-italian-124336947.html)
-- Aug 12 - [Elon Musk Reacts To Rivian, Lucid Accruing Cash Burn Of $88 Billion As Tesla Remains Only Free Cash Flow Generating Company: 'Harder Than It Looks'](https://finance.yahoo.com/news/elon-musk-reacts-rivian-lucid-104605972.html)
+- Aug 12 - [State auditors investigate Orlando City’s financials](https://www.yahoo.com/news/articles/state-auditors-investigate-orlando-city-170659641.html)
+- Aug 12 - [This Frustrated Real Estate Agent's Rant About The Real Cause Of The Housing Crisis Is So Spot On](https://www.yahoo.com/lifestyle/articles/frustrated-real-estate-agents-rant-162947204.html)
+- Aug 12 - [Why The US' Biggest BBQ Chain Is Struggling](https://www.yahoo.com/news/articles/why-us-biggest-bbq-chain-160300936.html)
+- Aug 12 - [Trump blasts Goldman over tariff forecasts, tells David Solomon to 'focus on being a DJ'](https://finance.yahoo.com/news/trump-blasts-goldman-over-tariff-forecasts-tells-david-solomon-to-focus-on-being-a-dj-152952355.html)
+- Aug 12 - [Milwaukee-area restaurant, bar closures due to flooding include Cafe Hollander and Mothership](https://www.yahoo.com/entertainment/articles/milwaukee-area-restaurant-bar-closures-145509640.html)
 <!-- feed end -->
 
 ---
