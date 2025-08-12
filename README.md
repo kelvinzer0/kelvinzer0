@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 12 - [Inflation rises by most in six months, stoking tariff-driven price concerns](https://finance.yahoo.com/news/inflation-rises-by-most-in-six-months-stoking-tariff-driven-price-concerns-123415069.html)
-- Aug 12 - [How to pay zero taxes in America on $100,000 of retirement income — and it has nothing to do with Trump’s new bill](https://finance.yahoo.com/news/pay-zero-taxes-america-100-121500466.html)
-- Aug 12 - [Reeves highlights NI investment on Belfast visit](https://www.yahoo.com/news/videos/reeves-highlights-ni-investment-belfast-120404944.html)
+- Aug 12 - [TKO delivers a 'knockout' with UFC and WWE deals as Wall Street sees more upside ahead](https://finance.yahoo.com/news/tko-delivers-a-knockout-with-ufc-and-wwe-deals-as-wall-street-sees-more-upside-ahead-130026007.html)
+- Aug 12 - [Jimmy Kimmel Says ‘I Did Get Italian Citizenship’ Because Trump’s Presidency ‘Is as Bad as You Thought It Was Gonna Be. It’s So Much Worse’](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-says-did-italian-124336947.html)
+- Aug 12 - [Three Top Dividend Stocks To Consider For Your Portfolio](https://finance.yahoo.com/news/three-top-dividend-stocks-consider-113151418.html)
 - Aug 12 - [Defense Secretary Pete Hegseth belongs to an archconservative church network. Here's what to know](https://www.yahoo.com/news/articles/defense-secretary-pete-hegseth-belongs-111350696.html)
-- Aug 12 - [Missouri woman offered $18 refund after Amazon delivery partner damages garage, car — how she won what she was owed](https://www.yahoo.com/lifestyle/articles/missouri-woman-offered-18-refund-101500990.html)
 <!-- feed end -->
 
 ---
