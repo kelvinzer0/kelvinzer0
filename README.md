@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 11 - [Mountain lion attacks 11-year-old girl at home in Malibu, California](https://www.yahoo.com/news/articles/mountain-lion-attacks-11-old-223228362.html)
-- Aug 11 - [China and the US clash at the UN over the Panama Canal, a focus of Trump's attention](https://www.yahoo.com/news/articles/china-us-clash-un-over-221013733.html)
-- Aug 11 - [Hegseth’s Rant on D.C. Takeover Turned Into Evidence Against Trump](https://www.yahoo.com/news/articles/hegseth-rant-d-c-takeover-211816172.html)
-- Aug 11 - [Donald Trump Nixes Idea Of Larger White House Briefing Room, Tells Reporters “I Don’t Want You To Be Comfortable”](https://www.yahoo.com/news/articles/donald-trump-nixes-idea-larger-211607858.html)
-- Aug 11 - [Man Caught Vaping in Airplane Bathroom in Viral Video Speaks Out](https://www.yahoo.com/news/videos/man-caught-vaping-airplane-bathroom-210518353.html)
+- Aug 12 - [If You'd Invested $1,000 in Pfizer (PFE) Stock 3 Years Ago, Here's How Much You'd Have Today](https://finance.yahoo.com/news/youd-invested-1-000-pfizer-011600232.html)
+- Aug 12 - [Plane crashes into parked aircraft while landing at Montana airport, sparking fire](https://www.yahoo.com/news/videos/plane-crashes-parked-aircraft-while-011329577.html)
+- Aug 12 - [US teen influencer has been stranded in the Chilean Antarctic since landing without permission](https://www.yahoo.com/news/articles/us-teen-influencer-stranded-chilean-000521782.html)
+- Aug 11 - [Scientists discover surprising cause of massive flood that unleashed more than 20 billion gallons of water: 'It was so unexpected'](https://www.yahoo.com/news/articles/scientists-discover-surprising-cause-massive-233000718.html)
+- Aug 11 - [‘What gives you the right?’: Tapper pushes back on Abbott over calls to remove Dem lawmaker](https://www.yahoo.com/news/videos/gives-tapper-pushes-back-abbott-224600546.html)
 <!-- feed end -->
 
 ---
