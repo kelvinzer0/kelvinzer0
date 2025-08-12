@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [India's soyoil imports set for record high, palm oil at five-year low](https://finance.yahoo.com/news/indias-soyoil-imports-set-record-104946679.html)
-- Aug 12 - [Elon Musk Reacts To Rivian, Lucid Accruing Cash Burn Of $88 Billion As Tesla Remains Only Free Cash Flow Generating Company: 'Harder Than It Looks'](https://finance.yahoo.com/news/elon-musk-reacts-rivian-lucid-104605972.html)
-- Aug 12 - [Jobs data triggered Trump, but Fed officials saw it not as rigged, but as reason to cut](https://finance.yahoo.com/news/jobs-data-triggered-trump-fed-101418156.html)
-- Aug 12 - [An Appleton residential care apartment complex is getting an upgrade, including a new rooftop patio](https://www.yahoo.com/news/articles/appleton-residential-care-apartment-complex-100235020.html)
-- Aug 12 - [General Motors sparks buzz after bringing back popular model with game-changing upgrades: 'This is going to be a great vehicle'](https://autos.yahoo.com/articles/general-motors-sparks-buzz-bringing-091500135.html)
+- Aug 12 - [Inflation rises by most in six months, stoking tariff-driven price concerns](https://finance.yahoo.com/news/inflation-rises-by-most-in-six-months-stoking-tariff-driven-price-concerns-123415069.html)
+- Aug 12 - [How to pay zero taxes in America on $100,000 of retirement income — and it has nothing to do with Trump’s new bill](https://finance.yahoo.com/news/pay-zero-taxes-america-100-121500466.html)
+- Aug 12 - [Reeves highlights NI investment on Belfast visit](https://www.yahoo.com/news/videos/reeves-highlights-ni-investment-belfast-120404944.html)
+- Aug 12 - [Defense Secretary Pete Hegseth belongs to an archconservative church network. Here's what to know](https://www.yahoo.com/news/articles/defense-secretary-pete-hegseth-belongs-111350696.html)
+- Aug 12 - [Missouri woman offered $18 refund after Amazon delivery partner damages garage, car — how she won what she was owed](https://www.yahoo.com/lifestyle/articles/missouri-woman-offered-18-refund-101500990.html)
 <!-- feed end -->
 
 ---
