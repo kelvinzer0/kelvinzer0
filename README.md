@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [‘This is all lies’: White House press secretary grilled after Trump nominee floats suspending decades-old practice](https://www.yahoo.com/news/articles/lies-white-house-press-secretary-192718221.html)
+- Aug 12 - [Ice dam at Alaska’s Mendenhall Glacier releases floodwater toward downstream homes](https://www.yahoo.com/news/articles/ice-dam-alaska-mendenhall-glacier-183712755.html)
+- Aug 12 - [The DIY cage armor in Ukraine keeps getting weirder, wilder — and more 'Mad Max'](https://www.yahoo.com/news/articles/diy-cage-armor-ukraine-keeps-180528693.html)
 - Aug 12 - [Gavin Newsom's ALL CAPS Tweet Mocking Donald Trump Is Way Funnier Than It Should Be](https://www.yahoo.com/news/articles/gavin-newsoms-caps-tweet-mocking-180001281.html)
-- Aug 12 - [Hackers breach and expose a major North Korean spying operation](https://finance.yahoo.com/news/hackers-breach-expose-major-north-173434822.html)
-- Aug 12 - [This Frustrated Real Estate Agent's Rant About The Real Cause Of The Housing Crisis Is So Spot On](https://www.yahoo.com/lifestyle/articles/frustrated-real-estate-agents-rant-162947204.html)
-- Aug 12 - [CPI report: Core inflation rises by most in six months, stoking tariff-driven price concerns](https://finance.yahoo.com/news/cpi-report-core-inflation-rises-by-most-in-six-months-stoking-tariff-driven-price-concerns-153654897.html)
-- Aug 12 - [Chinese student attending Purdue University scammed out of more than $220K](https://www.yahoo.com/news/articles/chinese-student-attending-purdue-university-150632027.html)
+- Aug 12 - [Philippines blames China for South China Sea collision in disputed waters](https://www.yahoo.com/news/articles/philippines-blames-china-south-china-150643709.html)
 <!-- feed end -->
 
 ---
