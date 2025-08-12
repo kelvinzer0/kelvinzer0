@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [New Zealand politician removed from parliament following comments in Palestinian debate](https://www.yahoo.com/news/articles/zealand-politician-removed-parliament-following-054011345.html)
+- Aug 12 - [Homeowner shares 'bill' they received from energy company after installing solar panels: 'Check to see if solar is a good fit'](https://www.yahoo.com/lifestyle/articles/homeowner-shares-bill-received-energy-074500970.html)
+- Aug 12 - [Hamas hostage videos silenced Israeli media's talk of Gaza aid crisis](https://www.yahoo.com/news/articles/analysis-hamas-hostage-videos-silenced-041508776.html)
+- Aug 12 - [Hackers post 43 gigabytes of St. Paul data after city refuses to pay ransom](https://www.yahoo.com/news/articles/hackers-post-43-gigabytes-st-034552844.html)
 - Aug 12 - [A $2,500 interceptor drone built to destroy Iranian Shaheds was recorded flying at the speed of a bullet train](https://www.yahoo.com/news/articles/2-500-interceptor-drone-built-034112120.html)
 - Aug 12 - [Dodgers star Shohei Ohtani and agent accused of sabotaging $240M Hawaii real estate project](https://www.yahoo.com/news/articles/dodgers-star-shohei-ohtani-agent-023834155.html)
-- Aug 12 - [US teen influencer has been stranded in the Chilean Antarctic since landing without permission](https://www.yahoo.com/news/articles/us-teen-influencer-stranded-chilean-000521782.html)
-- Aug 12 - [Video shows breathtaking encounter between fisherman and pack of great white sharks: 'There were like six or seven fins'](https://www.yahoo.com/news/articles/video-shows-breathtaking-encounter-between-000500589.html)
 <!-- feed end -->
 
 ---
