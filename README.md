@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Boeing's July aircraft deliveries tumble 20% from June, trailing Airbus](https://finance.yahoo.com/news/boeings-july-aircraft-deliveries-tumble-150225946.html)
-- Aug 12 - [Democrat Rep Jasmine Crockett Praises John Cornyn, Admits He Is Only Pretending To Be MAGA](https://www.yahoo.com/news/articles/democrat-rep-jasmine-crockett-praises-150035565.html)
-- Aug 12 - [Violent guerrillas are taking Colombia's children. Unarmed Indigenous groups are confronting them](https://www.yahoo.com/news/articles/violent-guerrillas-taking-colombias-children-130058582.html)
-- Aug 12 - [Jimmy Kimmel Says ‘I Did Get Italian Citizenship’ Because Trump’s Presidency ‘Is as Bad as You Thought It Was Gonna Be. It’s So Much Worse’](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-says-did-italian-124336947.html)
-- Aug 12 - [Elon Musk Reacts To Rivian, Lucid Accruing Cash Burn Of $88 Billion As Tesla Remains Only Free Cash Flow Generating Company: 'Harder Than It Looks'](https://finance.yahoo.com/news/elon-musk-reacts-rivian-lucid-104605972.html)
+- Aug 12 - [China cuts ties with Czech President Petr Pavel over his meeting with the Dalai Lama](https://www.yahoo.com/news/articles/china-cuts-ties-czech-president-153318147.html)
+- Aug 12 - [Trump blasts Goldman over tariff forecasts, tells David Solomon to 'focus on being a DJ'](https://finance.yahoo.com/news/trump-blasts-goldman-over-tariff-forecasts-tells-david-solomon-to-focus-on-being-a-dj-152952355.html)
+- Aug 12 - [The Daily T: Are Trump and Putin about to carve up Europe?](https://www.yahoo.com/news/articles/daily-t-trump-putin-carve-151401713.html)
+- Aug 12 - [Chinese student attending Purdue University scammed out of more than $220K](https://www.yahoo.com/news/articles/chinese-student-attending-purdue-university-150632027.html)
+- Aug 12 - [Kodak cautions on business operations but remains confident it can meet debt obligations](https://finance.yahoo.com/news/kodak-cautions-theres-substantial-doubt-134355550.html)
 <!-- feed end -->
 
 ---
