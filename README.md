@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Harmful algae blooms in Canandaigua Lake: What to expect in late summer](https://www.yahoo.com/news/articles/harmful-algae-blooms-canandaigua-lake-091723227.html)
-- Aug 12 - [Hamas hostage videos silenced Israeli media's talk of Gaza aid crisis](https://www.yahoo.com/news/articles/analysis-hamas-hostage-videos-silenced-041508776.html)
-- Aug 12 - [Dodgers star Shohei Ohtani and agent accused of sabotaging $240M Hawaii real estate project](https://www.yahoo.com/news/articles/dodgers-star-shohei-ohtani-agent-023834155.html)
-- Aug 12 - ['Wild!': CNN Data Chief Says This Trump Story Is 'Quickly Turning Into A Dud'](https://www.yahoo.com/news/articles/wild-cnn-data-chief-says-001903116.html)
-- Aug 12 - [US teen influencer has been stranded in the Chilean Antarctic since landing without permission](https://www.yahoo.com/news/articles/us-teen-influencer-stranded-chilean-000521782.html)
+- Aug 12 - [India's soyoil imports set for record high, palm oil at five-year low](https://finance.yahoo.com/news/indias-soyoil-imports-set-record-104946679.html)
+- Aug 12 - [Elon Musk Reacts To Rivian, Lucid Accruing Cash Burn Of $88 Billion As Tesla Remains Only Free Cash Flow Generating Company: 'Harder Than It Looks'](https://finance.yahoo.com/news/elon-musk-reacts-rivian-lucid-104605972.html)
+- Aug 12 - [Jobs data triggered Trump, but Fed officials saw it not as rigged, but as reason to cut](https://finance.yahoo.com/news/jobs-data-triggered-trump-fed-101418156.html)
+- Aug 12 - [An Appleton residential care apartment complex is getting an upgrade, including a new rooftop patio](https://www.yahoo.com/news/articles/appleton-residential-care-apartment-complex-100235020.html)
+- Aug 12 - [General Motors sparks buzz after bringing back popular model with game-changing upgrades: 'This is going to be a great vehicle'](https://autos.yahoo.com/articles/general-motors-sparks-buzz-bringing-091500135.html)
 <!-- feed end -->
 
 ---
