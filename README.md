@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Best 0% purchase credit cards](https://uk.finance.yahoo.com/news/purchase-credit-card-deals-141712104.html)
+- Aug 12 - [Boeing's July aircraft deliveries tumble 20% from June, trailing Airbus](https://finance.yahoo.com/news/boeings-july-aircraft-deliveries-tumble-150225946.html)
+- Aug 12 - [Democrat Rep Jasmine Crockett Praises John Cornyn, Admits He Is Only Pretending To Be MAGA](https://www.yahoo.com/news/articles/democrat-rep-jasmine-crockett-praises-150035565.html)
+- Aug 12 - [Violent guerrillas are taking Colombia's children. Unarmed Indigenous groups are confronting them](https://www.yahoo.com/news/articles/violent-guerrillas-taking-colombias-children-130058582.html)
 - Aug 12 - [Jimmy Kimmel Says ‘I Did Get Italian Citizenship’ Because Trump’s Presidency ‘Is as Bad as You Thought It Was Gonna Be. It’s So Much Worse’](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-says-did-italian-124336947.html)
-- Aug 12 - [General Motors sparks buzz after bringing back popular model with game-changing upgrades: 'This is going to be a great vehicle'](https://autos.yahoo.com/articles/general-motors-sparks-buzz-bringing-091500135.html)
-- Aug 12 - [Russia makes sudden advance in Ukraine before Trump-Putin summit, maps show](https://www.yahoo.com/news/articles/russian-forces-sudden-thrust-eastern-084252057.html)
-- Aug 12 - [Ford recalls over 103,000 US vehicles over damaged axle bolts, NHTSA says](https://autos.yahoo.com/articles/ford-recall-over-103-000-072140031.html)
+- Aug 12 - [Elon Musk Reacts To Rivian, Lucid Accruing Cash Burn Of $88 Billion As Tesla Remains Only Free Cash Flow Generating Company: 'Harder Than It Looks'](https://finance.yahoo.com/news/elon-musk-reacts-rivian-lucid-104605972.html)
 <!-- feed end -->
 
 ---
