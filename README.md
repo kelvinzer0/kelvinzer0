@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 12 - [Anthony Scaramucci Says Wall Street Fooling Itself On Trump Leaving In 2028: Who Builds A $200 Million Ballroom And 'Moves Out' In 3.5 Years](https://finance.yahoo.com/news/anthony-scaramucci-says-wall-street-203102217.html)
+- Aug 12 - [Michigan jury awards nearly $60M to man who said his rights were violated by prosecutor](https://www.yahoo.com/news/articles/michigan-jury-awards-nearly-60m-201152672.html)
+- Aug 12 - [College Graduate Thought She Was Paying Off Her Loans, Until She Discovered a 17% Interest Rate (Exclusive)](https://www.yahoo.com/lifestyle/articles/college-graduate-thought-she-paying-200209805.html)
 - Aug 12 - [‘This is all lies’: White House press secretary grilled after Trump nominee floats suspending decades-old practice](https://www.yahoo.com/news/articles/lies-white-house-press-secretary-192718221.html)
-- Aug 12 - [Ice dam at Alaska’s Mendenhall Glacier releases floodwater toward downstream homes](https://www.yahoo.com/news/articles/ice-dam-alaska-mendenhall-glacier-183712755.html)
-- Aug 12 - [The DIY cage armor in Ukraine keeps getting weirder, wilder — and more 'Mad Max'](https://www.yahoo.com/news/articles/diy-cage-armor-ukraine-keeps-180528693.html)
-- Aug 12 - [Gavin Newsom's ALL CAPS Tweet Mocking Donald Trump Is Way Funnier Than It Should Be](https://www.yahoo.com/news/articles/gavin-newsoms-caps-tweet-mocking-180001281.html)
-- Aug 12 - [Philippines blames China for South China Sea collision in disputed waters](https://www.yahoo.com/news/articles/philippines-blames-china-south-china-150643709.html)
+- Aug 12 - [Officials issue strict new ban against common gas station practice: 'Potentially dangerous situation'](https://www.yahoo.com/news/articles/officials-issue-strict-ban-against-184500774.html)
 <!-- feed end -->
 
 ---
