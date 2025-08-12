@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [If You'd Invested $1,000 in Pfizer (PFE) Stock 3 Years Ago, Here's How Much You'd Have Today](https://finance.yahoo.com/news/youd-invested-1-000-pfizer-011600232.html)
-- Aug 12 - [Plane crashes into parked aircraft while landing at Montana airport, sparking fire](https://www.yahoo.com/news/videos/plane-crashes-parked-aircraft-while-011329577.html)
-- Aug 12 - [US teen influencer has been stranded in the Chilean Antarctic since landing without permission](https://www.yahoo.com/news/articles/us-teen-influencer-stranded-chilean-000521782.html)
-- Aug 11 - [Scientists discover surprising cause of massive flood that unleashed more than 20 billion gallons of water: 'It was so unexpected'](https://www.yahoo.com/news/articles/scientists-discover-surprising-cause-massive-233000718.html)
+- Aug 12 - [Dodgers star Shohei Ohtani and agent accused of sabotaging $240M Hawaii real estate project](https://www.yahoo.com/news/articles/dodgers-star-shohei-ohtani-agent-023834155.html)
+- Aug 12 - [International group accuses major nations of withholding more than $400 million in life-saving funds: 'Every delay means ... more lives lost'](https://www.yahoo.com/news/articles/international-group-accuses-major-nations-021500718.html)
+- Aug 12 - [Video shows breathtaking encounter between fisherman and pack of great white sharks: 'There were like six or seven fins'](https://www.yahoo.com/news/articles/video-shows-breathtaking-encounter-between-000500589.html)
 - Aug 11 - [‘What gives you the right?’: Tapper pushes back on Abbott over calls to remove Dem lawmaker](https://www.yahoo.com/news/videos/gives-tapper-pushes-back-abbott-224600546.html)
+- Aug 11 - [Man found in sewer drain after large search forces shelter-in-place in Montgomery County](https://www.yahoo.com/news/articles/shelter-place-issued-part-montgomery-132732351.html)
 <!-- feed end -->
 
 ---
