@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 12 - [Inflation rises by most in six months, stoking tariff-driven price concerns](https://finance.yahoo.com/news/inflation-rises-by-most-in-six-months-stoking-tariff-driven-price-concerns-123415069.html)
-- Aug 12 - [TKO delivers a 'knockout' with UFC and WWE deals as Wall Street sees more upside ahead](https://finance.yahoo.com/news/tko-delivers-a-knockout-with-ufc-and-wwe-deals-as-wall-street-sees-more-upside-ahead-130026007.html)
+- Aug 12 - [Best 0% purchase credit cards](https://uk.finance.yahoo.com/news/purchase-credit-card-deals-141712104.html)
 - Aug 12 - [Jimmy Kimmel Says ‘I Did Get Italian Citizenship’ Because Trump’s Presidency ‘Is as Bad as You Thought It Was Gonna Be. It’s So Much Worse’](https://www.yahoo.com/entertainment/articles/jimmy-kimmel-says-did-italian-124336947.html)
-- Aug 12 - [Three Top Dividend Stocks To Consider For Your Portfolio](https://finance.yahoo.com/news/three-top-dividend-stocks-consider-113151418.html)
-- Aug 12 - [Defense Secretary Pete Hegseth belongs to an archconservative church network. Here's what to know](https://www.yahoo.com/news/articles/defense-secretary-pete-hegseth-belongs-111350696.html)
+- Aug 12 - [General Motors sparks buzz after bringing back popular model with game-changing upgrades: 'This is going to be a great vehicle'](https://autos.yahoo.com/articles/general-motors-sparks-buzz-bringing-091500135.html)
+- Aug 12 - [Russia makes sudden advance in Ukraine before Trump-Putin summit, maps show](https://www.yahoo.com/news/articles/russian-forces-sudden-thrust-eastern-084252057.html)
+- Aug 12 - [Ford recalls over 103,000 US vehicles over damaged axle bolts, NHTSA says](https://autos.yahoo.com/articles/ford-recall-over-103-000-072140031.html)
 <!-- feed end -->
 
 ---
