@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 12 - [Dodgers star Shohei Ohtani and agent accused of sabotaging $240M Hawaii real estate project](https://www.yahoo.com/news/articles/dodgers-star-shohei-ohtani-agent-023834155.html)
-- Aug 12 - [Video shows breathtaking encounter between fisherman and pack of great white sharks: 'There were like six or seven fins'](https://www.yahoo.com/news/articles/video-shows-breathtaking-encounter-between-000500589.html)
+- Aug 12 - [US teen influencer has been stranded in the Chilean Antarctic since landing without permission](https://www.yahoo.com/news/articles/us-teen-influencer-stranded-chilean-000521782.html)
+- Aug 11 - [Scientists discover surprising cause of massive flood that unleashed more than 20 billion gallons of water: 'It was so unexpected'](https://www.yahoo.com/news/articles/scientists-discover-surprising-cause-massive-233000718.html)
 - Aug 11 - [‘What gives you the right?’: Tapper pushes back on Abbott over calls to remove Dem lawmaker](https://www.yahoo.com/news/videos/gives-tapper-pushes-back-abbott-224600546.html)
 - Aug 11 - [Plane crashes into parked aircraft while landing at Montana airport, sparking fire](https://www.yahoo.com/news/articles/plane-crashes-other-aircraft-while-220736788.html)
-- Aug 11 - [Man Caught Vaping in Airplane Bathroom in Viral Video Speaks Out](https://www.yahoo.com/news/videos/man-caught-vaping-airplane-bathroom-210518353.html)
 <!-- feed end -->
 
 ---
