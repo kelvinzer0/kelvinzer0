@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Real Estate Investor Says Friends Reacted With Resentment And Envy After He Bought A Fourplex. They Wonder If Other Investors Face The Same](https://finance.yahoo.com/news/real-estate-investor-says-friends-131611439.html)
+- Aug 13 - [Passenger Dragged Off Plane by Authorities After Allegedly Fighting with Cabin Crew Over Turning Off Her Cellphone](https://www.yahoo.com/news/articles/passenger-dragged-off-plane-authorities-143758060.html)
+- Aug 13 - [Elon Musk's Starlink 30199 satellite put on incredible night sky display](https://www.yahoo.com/news/videos/elon-musks-starlink-30199-satellite-142637507.html)
+- Aug 13 - [UK foreign minister faces fine after JD Vance fishing trip licence error](https://www.yahoo.com/news/articles/uk-foreign-minister-faces-fine-140828894.html)
+- Aug 13 - [Florida Python Challenge winner nabbed 60 snakes and she's just 4'11"](https://www.yahoo.com/news/articles/florida-python-challenge-winner-nabbed-135245442.html)
 - Aug 13 - [Is This Giant Bear Real?](https://www.yahoo.com/news/videos/giant-bear-real-120052227.html)
-- Aug 13 - [Canadian farmers reel as China blocks top canola seed market](https://finance.yahoo.com/news/canadian-farmers-reel-china-blocks-100256153.html)
-- Aug 13 - [Mortgage and refinance interest rates today, August 13, 2025: Rates waver in response to inflation data](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-wednesday-august-13-2025-100043901.html)
-- Aug 13 - [Solitary cell with mattress on the floor for South Korea's once powerful ex-first lady](https://www.yahoo.com/news/articles/solitary-cell-mattress-floor-south-055421014.html)
 <!-- feed end -->
 
 ---
