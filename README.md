@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Poland charges group with sabotage on behalf of foreign intelligence](https://www.yahoo.com/news/articles/poland-charges-group-sabotage-behalf-090821958.html)
-- Aug 13 - [At least 3 dead and thousands displaced as wildfires rage across southern Europe](https://www.yahoo.com/news/articles/least-3-dead-thousands-displaced-090347229.html)
+- Aug 13 - [Britain's first railway therapy dog starts work helping anxious passengers](https://www.yahoo.com/news/videos/britains-first-railway-therapy-dog-094311196.html)
 - Aug 13 - [Pam McVety: The EPA’s big beautiful falsehoods](https://www.yahoo.com/news/articles/pam-mcvety-epa-big-beautiful-090232968.html)
-- Aug 13 - [Japanese pop idol Kenshin Kamimura convicted of indecent assault but avoids jail in Hong Kong](https://www.yahoo.com/entertainment/articles/japanese-pop-idol-kenshin-kamimura-085714776.html)
-- Aug 13 - [Minister announces named police officer in every area](https://www.yahoo.com/news/videos/minister-announces-named-police-officer-085333617.html)
+- Aug 13 - [Trump can't accept bad news. Here's how that hurts the First Amendment | Opinion](https://www.yahoo.com/news/articles/trump-cant-accept-bad-news-082551604.html)
+- Aug 13 - [New stimulus checks seem unlikely, but Trump proposes rebates from tariff revenue](https://finance.yahoo.com/news/stimulus-checks-seem-unlikely-trump-080035245.html)
+- Aug 13 - [Tui cheers profit jump despite pressure from heat waves and Middle East conflict](https://finance.yahoo.com/news/tui-cheers-profit-jump-despite-071526648.html)
 <!-- feed end -->
 
 ---
