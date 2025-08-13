@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Long-time Nvidia Bull Shrugs Off China H20 Chip Concerns](https://finance.yahoo.com/video/long-time-nvidia-bull-shrugs-043838475.html)
-- Aug 13 - [New Zealand prime minister says Israel's Netanyahu has 'lost the plot'](https://www.yahoo.com/news/articles/zealand-prime-minister-says-israels-041056812.html)
 - Aug 13 - [Idaho Killer Bryan Kohberger Already Being 'Tormented' In Prison By Inmates: 'It's Driving Him Crazy'](https://www.yahoo.com/news/articles/idaho-killer-bryan-kohberger-already-001506748.html)
 - Aug 13 - [Your Daily Work Horoscope for August 13, 2025](https://www.yahoo.com/lifestyle/articles/daily-horoscope-august-13-2025-000000278.html)
 - Aug 12 - [Alaska capital Juneau urged to evacuate as 'glacial outburst' flood looms](https://www.yahoo.com/news/articles/alaska-capital-juneau-urged-evacuate-231624483.html)
+- Aug 12 - [Airman arrested in fatal shooting that led Global Strike Command to pause using Sig Sauer's M18s](https://www.yahoo.com/news/articles/airman-arrested-fatal-shooting-led-215708324.html)
+- Aug 12 - ["As A Christian, This Is Disgusting": People Are Appalled That Secretary Of Defense Pete Hegseth Shared A Video Of Church Leaders Saying Women Shouldn't Have The Right To Vote](https://www.yahoo.com/news/articles/christian-disgusting-people-appalled-secretary-204134067.html)
 <!-- feed end -->
 
 ---
