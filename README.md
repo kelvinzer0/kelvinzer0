@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [‘Zombie’ rabbits with black horns and mouth tentacles are invading Colorado backyards](https://www.yahoo.com/news/articles/colorado-residents-alarmed-rabbits-black-151411404.html)
 - Aug 13 - [Passenger Dragged Off Plane by Authorities After Allegedly Fighting with Cabin Crew Over Turning Off Her Cellphone](https://www.yahoo.com/news/articles/passenger-dragged-off-plane-authorities-143758060.html)
-- Aug 13 - [Elon Musk's Starlink 30199 satellite put on incredible night sky display](https://www.yahoo.com/news/videos/elon-musks-starlink-30199-satellite-142637507.html)
-- Aug 13 - [UK foreign minister faces fine after JD Vance fishing trip licence error](https://www.yahoo.com/news/articles/uk-foreign-minister-faces-fine-140828894.html)
-- Aug 13 - [Florida Python Challenge winner nabbed 60 snakes and she's just 4'11"](https://www.yahoo.com/news/articles/florida-python-challenge-winner-nabbed-135245442.html)
-- Aug 13 - [Is This Giant Bear Real?](https://www.yahoo.com/news/videos/giant-bear-real-120052227.html)
+- Aug 13 - [Trump’s ‘no tax on overtime’ is now US law — but some Americans don’t even qualify. Here’s the catch](https://finance.yahoo.com/news/trump-no-tax-overtime-now-133000616.html)
+- Aug 13 - [US 30-year mortgage rate dropped last week, refi applications surged](https://finance.yahoo.com/news/us-30-mortgage-rate-dropped-110413525.html)
+- Aug 13 - [Kroger’s CEO mysteriously resigned. An unrelated lawsuit involving Jewel could reveal why](https://finance.yahoo.com/news/kroger-ceo-mysteriously-resigned-unrelated-110000487.html)
 <!-- feed end -->
 
 ---
