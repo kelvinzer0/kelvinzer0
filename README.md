@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Amarillo police asking public to avoid area of crash at Puckett and Bell](https://www.yahoo.com/news/articles/amarillo-police-asking-public-avoid-173434604.html)
-- Aug 13 - [Dave Ramsey Gets Called Out By A Pastor For Giving 'Hypocritical' Advice On Mortgages — He Admits Fair Point But Hard To Get People To Save Up 10 Years](https://finance.yahoo.com/news/dave-ramsey-gets-called-pastor-173105161.html)
-- Aug 13 - [Trump administration's lawsuit against all of Maryland's federal judges meets skepticism in court](https://www.yahoo.com/news/articles/trump-administrations-lawsuit-against-marylands-170912367.html)
+- Aug 13 - [Armed robbers in latest Philadelphia-area Brinks truck heist took $700,000 or more, police say](https://www.yahoo.com/news/articles/armed-robbers-latest-philadelphia-area-185911574.html)
+- Aug 13 - [A Dark Mirror Universe May Be Hiding Right Next Door, Scientists Say](https://www.yahoo.com/news/articles/dark-mirror-universe-may-hiding-183000164.html)
+- Aug 13 - [Scientists May Soon Find a Missing Piece That Could Fracture String Theory](https://www.yahoo.com/news/articles/scientists-may-soon-missing-piece-180000137.html)
+- Aug 13 - [AT&T $177 million settlement: You could receive up to $7,500](https://www.yahoo.com/news/articles/t-177-million-settlement-could-175507134.html)
 - Aug 13 - [Germany and allies to send major military aid package to Ukraine using new NATO supply line](https://www.yahoo.com/news/articles/germany-allies-send-major-military-163917638.html)
-- Aug 13 - [Ethereum surges to near record as investors bet on 'biggest macro trade' of the next decade](https://finance.yahoo.com/news/ethereum-surges-to-near-record-as-investors-bet-on-biggest-macro-trade-of-the-next-decade-162035539.html)
 <!-- feed end -->
 
 ---
