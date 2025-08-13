@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Amarillo police asking public to avoid area of crash at Puckett and Bell](https://www.yahoo.com/news/articles/amarillo-police-asking-public-avoid-173434604.html)
+- Aug 13 - [Dave Ramsey Gets Called Out By A Pastor For Giving 'Hypocritical' Advice On Mortgages — He Admits Fair Point But Hard To Get People To Save Up 10 Years](https://finance.yahoo.com/news/dave-ramsey-gets-called-pastor-173105161.html)
+- Aug 13 - [Trump administration's lawsuit against all of Maryland's federal judges meets skepticism in court](https://www.yahoo.com/news/articles/trump-administrations-lawsuit-against-marylands-170912367.html)
 - Aug 13 - [Germany and allies to send major military aid package to Ukraine using new NATO supply line](https://www.yahoo.com/news/articles/germany-allies-send-major-military-163917638.html)
 - Aug 13 - [Ethereum surges to near record as investors bet on 'biggest macro trade' of the next decade](https://finance.yahoo.com/news/ethereum-surges-to-near-record-as-investors-bet-on-biggest-macro-trade-of-the-next-decade-162035539.html)
-- Aug 13 - [‘Zombie’ rabbits with black horns and mouth tentacles are invading Colorado backyards](https://www.yahoo.com/news/articles/colorado-residents-alarmed-rabbits-black-151411404.html)
-- Aug 13 - [San Antonio Buyer Got Sick of Looking At A Lockbox Left For 2 Months and Tossed It In the Trash — Now the Seller's Agent Is Mad And Wants $200](https://finance.yahoo.com/news/san-antonio-buyer-got-sick-151603841.html)
-- Aug 13 - [Baby Girl Survives Truck Plunge into 50-Foot Ravine Thanks to Mom's 'Final Act' of Wrapping Her in Pillows](https://www.yahoo.com/entertainment/videos/baby-girl-survives-truck-plunge-151601609.html)
 <!-- feed end -->
 
 ---
