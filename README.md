@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Trump Announced This Year's 5 Kennedy Center Honorees, And Some Of These Picks Are Kind Of Shocking](https://www.yahoo.com/entertainment/articles/trump-announced-years-5-kennedy-213601053.html)
 - Aug 13 - [The podcaster told MAGA Rep. Anna Paulina Luna that the protests in Los Angeles and other cities in June were a “visceral reaction” to ICE raids.](https://www.yahoo.com/news/videos/podcaster-told-maga-rep-anna-210228857.html)
 - Aug 13 - [Bodycam shows Powerball winner being arrested a day after collecting $167M prize](https://www.yahoo.com/news/articles/bodycam-shows-powerball-winner-being-203206250.html)
 - Aug 13 - [US judge blocks Trump religious exemption to birth control coverage](https://www.yahoo.com/news/articles/us-judge-blocks-trump-religious-194743413.html)
 - Aug 13 - [Armed robbers in latest Philadelphia-area Brinks truck heist took $700,000 or more, police say](https://www.yahoo.com/news/articles/armed-robbers-latest-philadelphia-area-185911574.html)
-- Aug 13 - [A Dark Mirror Universe May Be Hiding Right Next Door, Scientists Say](https://www.yahoo.com/news/articles/dark-mirror-universe-may-hiding-183000164.html)
 <!-- feed end -->
 
 ---
