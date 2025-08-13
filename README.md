@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Analysis-Dubai developers bring construction in-house as demand surges](https://finance.yahoo.com/news/analysis-dubai-developers-bring-construction-070221178.html)
+- Aug 13 - [Catch ’em all but dump the fries. Pokémon fans leave McDonald’s Japan in massive food waste drama](https://www.yahoo.com/news/articles/catch-em-dump-fries-pok-050945587.html)
 - Aug 13 - [Solitary cell with mattress on the floor for South Korea's once powerful ex-first lady](https://www.yahoo.com/news/articles/solitary-cell-mattress-floor-south-055421014.html)
 - Aug 13 - [Idaho Killer Bryan Kohberger Already Being 'Tormented' In Prison By Inmates: 'It's Driving Him Crazy'](https://www.yahoo.com/news/articles/idaho-killer-bryan-kohberger-already-001506748.html)
 - Aug 13 - [Your Daily Work Horoscope for August 13, 2025](https://www.yahoo.com/lifestyle/articles/daily-horoscope-august-13-2025-000000278.html)
-- Aug 12 - [Alaska capital Juneau urged to evacuate as 'glacial outburst' flood looms](https://www.yahoo.com/news/articles/alaska-capital-juneau-urged-evacuate-231624483.html)
+- Aug 12 - [Gifford Fire sent up a towering smoke plume on Tuesday. What happened?](https://www.yahoo.com/news/articles/gifford-fire-sent-towering-smoke-235442591.html)
 <!-- feed end -->
 
 ---
