@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Real Estate Investor Says Friends Reacted With Resentment And Envy After He Bought A Fourplex. They Wonder If Other Investors Face The Same](https://finance.yahoo.com/news/real-estate-investor-says-friends-131611439.html)
 - Aug 13 - [Is This Giant Bear Real?](https://www.yahoo.com/news/videos/giant-bear-real-120052227.html)
 - Aug 13 - [Canadian farmers reel as China blocks top canola seed market](https://finance.yahoo.com/news/canadian-farmers-reel-china-blocks-100256153.html)
 - Aug 13 - [Mortgage and refinance interest rates today, August 13, 2025: Rates waver in response to inflation data](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-wednesday-august-13-2025-100043901.html)
-- Aug 13 - [Prediction: 2 Stocks That Will Be Worth More Than Tesla 3 Years From Now](https://finance.yahoo.com/news/prediction-2-stocks-worth-more-084000464.html)
-- Aug 13 - [Tui cheers profit jump despite pressure from heat waves and Middle East conflict](https://finance.yahoo.com/news/tui-cheers-profit-jump-despite-071526648.html)
+- Aug 13 - [Solitary cell with mattress on the floor for South Korea's once powerful ex-first lady](https://www.yahoo.com/news/articles/solitary-cell-mattress-floor-south-055421014.html)
 <!-- feed end -->
 
 ---
