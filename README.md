@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [‘Zombie’ rabbits with black horns and mouth tentacles are invading Colorado backyards](https://www.yahoo.com/news/articles/colorado-residents-alarmed-rabbits-black-151411404.html)
+- Aug 13 - [Tropical Storm Erin path shifts, but still forecast to grow into major hurricane, NHC says](https://www.yahoo.com/news/articles/tropical-storm-erin-path-shifts-164200341.html)
+- Aug 13 - [Methamphetamine, firearms seized during search in York Co.: deputies](https://www.yahoo.com/news/articles/methamphetamine-firearms-seized-during-search-152104741.html)
+- Aug 13 - [Baby Girl Survives Truck Plunge into 50-Foot Ravine Thanks to Mom's 'Final Act' of Wrapping Her in Pillows](https://www.yahoo.com/entertainment/videos/baby-girl-survives-truck-plunge-151601609.html)
 - Aug 13 - [Passenger Dragged Off Plane by Authorities After Allegedly Fighting with Cabin Crew Over Turning Off Her Cellphone](https://www.yahoo.com/news/articles/passenger-dragged-off-plane-authorities-143758060.html)
-- Aug 13 - [Trump’s ‘no tax on overtime’ is now US law — but some Americans don’t even qualify. Here’s the catch](https://finance.yahoo.com/news/trump-no-tax-overtime-now-133000616.html)
-- Aug 13 - [US 30-year mortgage rate dropped last week, refi applications surged](https://finance.yahoo.com/news/us-30-mortgage-rate-dropped-110413525.html)
-- Aug 13 - [Kroger’s CEO mysteriously resigned. An unrelated lawsuit involving Jewel could reveal why](https://finance.yahoo.com/news/kroger-ceo-mysteriously-resigned-unrelated-110000487.html)
+- Aug 13 - [I Walked Through Trump’s D.C. Hellscape. It’s Now Clear What Exactly the Feds Are Doing Here.](https://www.yahoo.com/news/articles/walked-trump-d-c-hellscape-143530717.html)
 <!-- feed end -->
 
 ---
