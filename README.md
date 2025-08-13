@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Southern Taiwan shuts down ahead of arrival of Typhoon Podul](https://www.yahoo.com/news/articles/southern-taiwan-shuts-down-ahead-004643969.html)
+- Aug 12 - [Alaska capital Juneau urged to evacuate as 'glacial outburst' flood looms](https://www.yahoo.com/news/articles/alaska-capital-juneau-urged-evacuate-231624483.html)
+- Aug 12 - [Airman arrested in fatal shooting that led Global Strike Command to pause using Sig Sauer's M18s](https://www.yahoo.com/news/articles/airman-arrested-fatal-shooting-led-215708324.html)
 - Aug 12 - ["As A Christian, This Is Disgusting": People Are Appalled That Secretary Of Defense Pete Hegseth Shared A Video Of Church Leaders Saying Women Shouldn't Have The Right To Vote](https://www.yahoo.com/news/articles/christian-disgusting-people-appalled-secretary-204134067.html)
-- Aug 12 - [Michigan jury awards nearly $60M to man who said his rights were violated by prosecutor](https://www.yahoo.com/news/articles/michigan-jury-awards-nearly-60m-201152672.html)
-- Aug 12 - [‘This is all lies’: White House press secretary grilled after Trump nominee floats suspending decades-old practice](https://www.yahoo.com/news/articles/lies-white-house-press-secretary-192718221.html)
-- Aug 12 - [Jersey Shore town will close beaches after lifeguards leave following drowning, mayor says](https://www.yahoo.com/news/articles/jersey-shore-town-close-beaches-185134824.html)
-- Aug 12 - [Trump is bringing in enough revenue from tariffs to have a serious impact on the $37 trillion national debt, budget watchdog says](https://finance.yahoo.com/news/trump-bringing-much-revenue-tariffs-182932609.html)
+- Aug 12 - [Dealers Offer Deep Discounts as Over 1,700 Chevrolet Corvette Z06s Sit Unsold](https://autos.yahoo.com/articles/dealers-offer-deep-discounts-over-201542092.html)
 <!-- feed end -->
 
 ---
