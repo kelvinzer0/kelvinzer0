@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [The podcaster told MAGA Rep. Anna Paulina Luna that the protests in Los Angeles and other cities in June were a “visceral reaction” to ICE raids.](https://www.yahoo.com/news/videos/podcaster-told-maga-rep-anna-210228857.html)
+- Aug 13 - [Bodycam shows Powerball winner being arrested a day after collecting $167M prize](https://www.yahoo.com/news/articles/bodycam-shows-powerball-winner-being-203206250.html)
+- Aug 13 - [US judge blocks Trump religious exemption to birth control coverage](https://www.yahoo.com/news/articles/us-judge-blocks-trump-religious-194743413.html)
 - Aug 13 - [Armed robbers in latest Philadelphia-area Brinks truck heist took $700,000 or more, police say](https://www.yahoo.com/news/articles/armed-robbers-latest-philadelphia-area-185911574.html)
-- Aug 13 - [AT&T $177 million settlement: You could receive up to $7,500](https://www.yahoo.com/news/articles/t-177-million-settlement-could-175507134.html)
-- Aug 13 - [Switzerland warns its companies that no, they can’t dodge Trump’s tariffs by routing goods through the tiny neighboring country of Liechtenstein](https://finance.yahoo.com/news/switzerland-warns-companies-no-t-165720069.html)
-- Aug 13 - [Germany and allies to send major military aid package to Ukraine using new NATO supply line](https://www.yahoo.com/news/articles/germany-allies-send-major-military-163917638.html)
-- Aug 13 - [Ethereum surges to near record as investors bet on 'biggest macro trade' of the next decade](https://finance.yahoo.com/news/ethereum-surges-to-near-record-as-investors-bet-on-biggest-macro-trade-of-the-next-decade-162035539.html)
+- Aug 13 - [A Dark Mirror Universe May Be Hiding Right Next Door, Scientists Say](https://www.yahoo.com/news/articles/dark-mirror-universe-may-hiding-183000164.html)
 <!-- feed end -->
 
 ---
