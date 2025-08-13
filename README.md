@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 13 - [Shark-like prehistoric whale with razor-sharp teeth discovered off Australia](https://www.yahoo.com/news/articles/prehistoric-whale-razor-sharp-teeth-093842338.html)
 - Aug 13 - [Britain's first railway therapy dog starts work helping anxious passengers](https://www.yahoo.com/news/videos/britains-first-railway-therapy-dog-094311196.html)
-- Aug 13 - [Pam McVety: The EPA’s big beautiful falsehoods](https://www.yahoo.com/news/articles/pam-mcvety-epa-big-beautiful-090232968.html)
-- Aug 13 - [Trump can't accept bad news. Here's how that hurts the First Amendment | Opinion](https://www.yahoo.com/news/articles/trump-cant-accept-bad-news-082551604.html)
-- Aug 13 - [New stimulus checks seem unlikely, but Trump proposes rebates from tariff revenue](https://finance.yahoo.com/news/stimulus-checks-seem-unlikely-trump-080035245.html)
 - Aug 13 - [Tui cheers profit jump despite pressure from heat waves and Middle East conflict](https://finance.yahoo.com/news/tui-cheers-profit-jump-despite-071526648.html)
+- Aug 13 - [Solitary cell with mattress on the floor for South Korea's once powerful ex-first lady](https://www.yahoo.com/news/articles/solitary-cell-mattress-floor-south-055421014.html)
+- Aug 12 - [Alaska capital Juneau urged to evacuate as 'glacial outburst' flood looms](https://www.yahoo.com/news/articles/alaska-capital-juneau-urged-evacuate-231624483.html)
 <!-- feed end -->
 
 ---
