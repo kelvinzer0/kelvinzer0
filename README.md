@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Shark-like prehistoric whale with razor-sharp teeth discovered off Australia](https://www.yahoo.com/news/articles/prehistoric-whale-razor-sharp-teeth-093842338.html)
-- Aug 13 - [Britain's first railway therapy dog starts work helping anxious passengers](https://www.yahoo.com/news/videos/britains-first-railway-therapy-dog-094311196.html)
+- Aug 13 - [At least 25 killed by Israeli gunfire as Netanyahu says he will 'allow' Palestinians to leave](https://www.yahoo.com/news/articles/least-25-killed-israeli-gunfire-123310491.html)
+- Aug 13 - [Russian soldiers disguised in civilian clothes infiltrating front-line city](https://www.yahoo.com/news/articles/russian-soldiers-disguised-civilian-clothes-110646041.html)
+- Aug 13 - [Canadian farmers reel as China blocks top canola seed market](https://finance.yahoo.com/news/canadian-farmers-reel-china-blocks-100256153.html)
+- Aug 13 - [Exclusive-India set to allow its private firms to mine and import uranium to help nuclear expansion](https://finance.yahoo.com/news/exclusive-india-set-allow-private-100206975.html)
 - Aug 13 - [Tui cheers profit jump despite pressure from heat waves and Middle East conflict](https://finance.yahoo.com/news/tui-cheers-profit-jump-despite-071526648.html)
-- Aug 13 - [Solitary cell with mattress on the floor for South Korea's once powerful ex-first lady](https://www.yahoo.com/news/articles/solitary-cell-mattress-floor-south-055421014.html)
-- Aug 12 - [Alaska capital Juneau urged to evacuate as 'glacial outburst' flood looms](https://www.yahoo.com/news/articles/alaska-capital-juneau-urged-evacuate-231624483.html)
 <!-- feed end -->
 
 ---
