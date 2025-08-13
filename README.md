@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Catch ’em all but dump the fries. Pokémon fans leave McDonald’s Japan in massive food waste drama](https://www.yahoo.com/news/articles/catch-em-dump-fries-pok-050945587.html)
-- Aug 13 - [Solitary cell with mattress on the floor for South Korea's once powerful ex-first lady](https://www.yahoo.com/news/articles/solitary-cell-mattress-floor-south-055421014.html)
-- Aug 13 - [Idaho Killer Bryan Kohberger Already Being 'Tormented' In Prison By Inmates: 'It's Driving Him Crazy'](https://www.yahoo.com/news/articles/idaho-killer-bryan-kohberger-already-001506748.html)
-- Aug 13 - [Your Daily Work Horoscope for August 13, 2025](https://www.yahoo.com/lifestyle/articles/daily-horoscope-august-13-2025-000000278.html)
-- Aug 12 - [Gifford Fire sent up a towering smoke plume on Tuesday. What happened?](https://www.yahoo.com/news/articles/gifford-fire-sent-towering-smoke-235442591.html)
+- Aug 13 - [Poland charges group with sabotage on behalf of foreign intelligence](https://www.yahoo.com/news/articles/poland-charges-group-sabotage-behalf-090821958.html)
+- Aug 13 - [At least 3 dead and thousands displaced as wildfires rage across southern Europe](https://www.yahoo.com/news/articles/least-3-dead-thousands-displaced-090347229.html)
+- Aug 13 - [Pam McVety: The EPA’s big beautiful falsehoods](https://www.yahoo.com/news/articles/pam-mcvety-epa-big-beautiful-090232968.html)
+- Aug 13 - [Japanese pop idol Kenshin Kamimura convicted of indecent assault but avoids jail in Hong Kong](https://www.yahoo.com/entertainment/articles/japanese-pop-idol-kenshin-kamimura-085714776.html)
+- Aug 13 - [Minister announces named police officer in every area](https://www.yahoo.com/news/videos/minister-announces-named-police-officer-085333617.html)
 <!-- feed end -->
 
 ---
