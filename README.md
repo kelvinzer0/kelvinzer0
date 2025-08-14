@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Murdered Hamas hostage Itzik Elgert tortured to death, autopsy reveals](https://www.yahoo.com/news/articles/murdered-hamas-hostage-itzik-elgert-212824071.html)
 - Aug 14 - [New blood pressure guidelines recommend an earlier start to treatment and skipping alcohol](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-180011840.html)
 - Aug 14 - [Intel stock jumps on report Trump admin. is considering stake](https://finance.yahoo.com/video/intel-stock-jumps-report-trump-200947477.html)
+- Aug 14 - [AI experts return from China stunned: The U.S. grid is so weak, the race may already be over](https://finance.yahoo.com/news/ai-experts-return-china-stunned-195549402.html)
 - Aug 14 - [Ultra-processed foods that fuel colon cancer — and healthy alternatives that may offset the damage](https://www.yahoo.com/lifestyle/articles/scientists-identify-ultra-processed-foods-181514631.html)
-- Aug 14 - [3 people charged with helping suspected killer of 4 are accused of giving him shelter, phones](https://www.yahoo.com/news/articles/3-people-charged-helping-suspected-174918109.html)
-- Aug 14 - [Apple accidentally leaked its own top-secret hardware in software code—and it looks like we’re getting a slew of products across 7 categories](https://tech.yahoo.com/ai/articles/apple-accidentally-leaked-own-top-174438038.html)
 <!-- feed end -->
 
 ---
