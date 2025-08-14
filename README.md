@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - ["I Thought It Went Well...": This Jobseeker Was Accidentally CC'ed On A Post-Interview Email That They Were NOT Meant To See](https://www.yahoo.com/lifestyle/articles/thought-went-well-jobseeker-accidentally-033103107.html)
+- Aug 14 - [Parents of woman who died in Texas flooding file lawsuit saying campground had ‘history of dangerous flooding’](https://www.yahoo.com/news/articles/parents-woman-died-texas-flooding-023332502.html)
 - Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
 - Aug 14 - [Melania Trump demands Hunter Biden retract 'extremely salacious' Epstein comments](https://www.yahoo.com/news/articles/melania-trump-demands-hunter-biden-012742768.html)
-- Aug 13 - [Surgeon in Wisconsin charged with distributing child pornography](https://www.yahoo.com/news/articles/surgeon-wisconsin-charged-distributing-child-200310372.html)
-- Aug 13 - [Armed robbers in latest Philadelphia-area Brinks truck heist took $700,000 or more, police say](https://www.yahoo.com/news/articles/armed-robbers-latest-philadelphia-area-185911574.html)
-- Aug 13 - [Flesh-eating bacteria found in swimmer who was at Cape Cod beach](https://www.yahoo.com/news/articles/flesh-eating-bacteria-found-swimmer-182503487.html)
+- Aug 13 - [St. Charles High School teacher faces child porn charge](https://www.yahoo.com/news/articles/st-charles-high-school-teacher-231333574.html)
 <!-- feed end -->
 
 ---
