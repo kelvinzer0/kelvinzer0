@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [How stablecoins quietly beat bitcoin at its own game](https://finance.yahoo.com/video/stablecoins-quietly-beat-bitcoin-own-100015184.html)
+- Aug 14 - [Jenrick ‘ignored’ by French police after reporting Calais migrants](https://www.yahoo.com/news/articles/robert-jenrick-accuses-french-police-071523820.html)
+- Aug 14 - [The dangerous driver behind Britain’s growth](https://finance.yahoo.com/news/dangerous-driver-behind-britain-growth-090000452.html)
 - Aug 14 - [Massive Monolith Found in the Waters of Papahānaumokuākea](https://www.yahoo.com/lifestyle/articles/massive-monolith-found-waters-papah-034933475.html)
-- Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
-- Aug 14 - [Melania Trump demands Hunter Biden retract 'extremely salacious' Epstein comments](https://www.yahoo.com/news/articles/melania-trump-demands-hunter-biden-012742768.html)
-- Aug 14 - [Military wife says American Airlines accidentally charged her $3,600 after she flew to visit hubby on base— and refused to refund her: ‘Not very American’](https://www.yahoo.com/news/articles/military-wife-says-american-airlines-010312682.html)
-- Aug 13 - [New Mexico governor declares state of emergency in rural county afflicted by crime, drug use](https://www.yahoo.com/news/articles/mexico-governor-declares-state-emergency-224405863.html)
+- Aug 14 - ["I Thought It Went Well...": This Jobseeker Was Accidentally CC'ed On A Post-Interview Email That They Were NOT Meant To See](https://www.yahoo.com/lifestyle/articles/thought-went-well-jobseeker-accidentally-033103107.html)
 <!-- feed end -->
 
 ---
