@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Parents of woman who died in Texas flooding file lawsuit saying campground had ‘history of dangerous flooding’](https://www.yahoo.com/news/articles/parents-woman-died-texas-flooding-023332649.html)
+- Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
 - Aug 14 - [Melania Trump demands Hunter Biden retract 'extremely salacious' Epstein comments](https://www.yahoo.com/news/articles/melania-trump-demands-hunter-biden-012742768.html)
-- Aug 13 - [F-15 Ride-Along Passenger Accidentally Ejects From The Jet While On The Ground](https://www.yahoo.com/news/articles/f-15-ride-along-passenger-234114304.html)
-- Aug 13 - [Ex-IDF chief Halevi slams Mossad chief: 'Takes credit for ops led by IDF'](https://www.yahoo.com/news/articles/ex-idf-chief-halevi-slams-220455314.html)
-- Aug 13 - [Armed robbers in latest Philadelphia-area Brinks truck heist took $700,000 or more, police say](https://www.yahoo.com/news/articles/armed-robbers-latest-philadelphia-area-185911574.html)
-- Aug 13 - [Flesh-eating bacteria found in swimmer who was at Cape Cod beach](https://www.yahoo.com/news/articles/flesh-eating-bacteria-found-swimmer-182503487.html)
+- Aug 13 - [New Mexico governor declares state of emergency in rural county afflicted by crime, drug use](https://www.yahoo.com/news/articles/mexico-governor-declares-state-emergency-224405863.html)
+- Aug 13 - [The podcaster told MAGA Rep. Anna Paulina Luna that the protests in Los Angeles and other cities in June were a “visceral reaction” to ICE raids.](https://www.yahoo.com/news/videos/podcaster-told-maga-rep-anna-210228857.html)
 <!-- feed end -->
 
 ---
