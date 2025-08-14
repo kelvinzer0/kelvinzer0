@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - ["I Thought It Went Well...": This Jobseeker Was Accidentally CC'ed On A Post-Interview Email That They Were NOT Meant To See](https://www.yahoo.com/lifestyle/articles/thought-went-well-jobseeker-accidentally-033103107.html)
-- Aug 14 - [Parents of woman who died in Texas flooding file lawsuit saying campground had ‘history of dangerous flooding’](https://www.yahoo.com/news/articles/parents-woman-died-texas-flooding-023332502.html)
+- Aug 14 - [The cofounder of xAI is leaving the company. He says he's learned 2 main things from Elon Musk.](https://finance.yahoo.com/news/cofounder-xai-leaving-company-says-043611698.html)
 - Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
 - Aug 14 - [Melania Trump demands Hunter Biden retract 'extremely salacious' Epstein comments](https://www.yahoo.com/news/articles/melania-trump-demands-hunter-biden-012742768.html)
-- Aug 13 - [St. Charles High School teacher faces child porn charge](https://www.yahoo.com/news/articles/st-charles-high-school-teacher-231333574.html)
+- Aug 14 - [I Drove the 2025 Honda Prologue EV for 7 Days. Here’s the Shocking Truth About Honda’s First All-Electric SUV](https://autos.yahoo.com/articles/drove-2025-honda-prologue-ev-001214122.html)
+- Aug 13 - [The podcaster told MAGA Rep. Anna Paulina Luna that the protests in Los Angeles and other cities in June were a “visceral reaction” to ICE raids.](https://www.yahoo.com/news/videos/podcaster-told-maga-rep-anna-210228857.html)
 <!-- feed end -->
 
 ---
