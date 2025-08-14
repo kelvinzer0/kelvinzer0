@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Storm Podul drenches Hong Kong, delays key national security trial](https://www.yahoo.com/news/videos/storm-podul-drenches-hong-kong-075859619.html)
+- Aug 14 - [Massive Monolith Found in the Waters of Papahānaumokuākea](https://www.yahoo.com/lifestyle/articles/massive-monolith-found-waters-papah-034933475.html)
 - Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
 - Aug 14 - [Melania Trump demands Hunter Biden retract 'extremely salacious' Epstein comments](https://www.yahoo.com/news/articles/melania-trump-demands-hunter-biden-012742768.html)
+- Aug 14 - [Military wife says American Airlines accidentally charged her $3,600 after she flew to visit hubby on base— and refused to refund her: ‘Not very American’](https://www.yahoo.com/news/articles/military-wife-says-american-airlines-010312682.html)
 - Aug 13 - [New Mexico governor declares state of emergency in rural county afflicted by crime, drug use](https://www.yahoo.com/news/articles/mexico-governor-declares-state-emergency-224405863.html)
-- Aug 13 - [Trump Announced This Year's 5 Kennedy Center Honorees, And Some Of These Picks Are Kind Of Shocking](https://www.yahoo.com/entertainment/articles/trump-announced-years-5-kennedy-213601053.html)
 <!-- feed end -->
 
 ---
