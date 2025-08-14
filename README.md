@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Thousands of users’ personal data — including their IDs — were leaked from a popular male revenge dating app](https://www.yahoo.com/news/articles/male-revenge-app-currently-2-194845771.html)
+- Aug 14 - [New blood pressure guidelines recommend an earlier start to treatment and skipping alcohol](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-180011840.html)
+- Aug 14 - [Ultra-processed foods that fuel colon cancer — and healthy alternatives that may offset the damage](https://www.yahoo.com/lifestyle/articles/scientists-identify-ultra-processed-foods-181514631.html)
 - Aug 14 - [Stock market gets 'kick in the pants' from startling inflation report](https://finance.yahoo.com/news/stock-market-gets-kick-pants-190801720.html)
-- Aug 14 - [3 people charged with helping suspected killer of 4 are accused of giving him shelter, phones](https://www.yahoo.com/news/articles/3-people-charged-helping-suspected-174918109.html)
-- Aug 14 - [Bondi fires Justice Department employee accused of throwing sandwich at federal agent](https://www.yahoo.com/news/articles/justice-department-fires-man-accused-162718745.html)
-- Aug 14 - ['Some People Said They Lost Their Life Savings'—Apple Co-Founder Steve Wozniak Is Still Fighting YouTube Over A 2020 Bitcoin Scam](https://finance.yahoo.com/news/people-said-lost-life-savings-160103187.html)
-- Aug 14 - [Trump Left Fuming After World Leaders Gang Up on Him Over Putin](https://www.yahoo.com/news/articles/trump-left-fuming-world-leaders-154852214.html)
+- Aug 14 - [RGTI: Rigetti Stock Fall as Heavy Losses Drown Quantum Breakthrough](https://finance.yahoo.com/news/rgti-rigetti-stock-fall-heavy-175721638.html)
 <!-- feed end -->
 
 ---
