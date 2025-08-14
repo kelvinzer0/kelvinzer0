@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 14 - [Where is Tropical Storm Erin? Will Sarasota, Bradenton be impacted?](https://www.yahoo.com/news/articles/where-tropical-storm-erin-sarasota-151614984.html)
+- Aug 14 - [Hunter Biden gives blunt two-word response to Melania Trump’s threats of $1 billion defamation lawsuit](https://www.yahoo.com/news/articles/melania-trump-threatens-hunter-biden-101348958.html)
+- Aug 14 - [A car accident in small-town Tennessee leads to US charges against a major Mexican drug operation](https://www.yahoo.com/news/articles/car-accident-small-town-tennessee-145645027.html)
+- Aug 14 - [Morgan Baine, beloved Nashville substance abuse treatment executive, dies at 32: 'She spoke truth with compassion'](https://www.yahoo.com/lifestyle/articles/morgan-baine-beloved-nashville-substance-143802365.html)
 - Aug 14 - [California was comfortable, this American woman says, but ‘everyone is much happier’ since the family moved to Spain](https://www.yahoo.com/lifestyle/articles/california-comfortable-american-woman-says-120903818.html)
-- Aug 14 - [Trump asked Norwegian minister about Nobel Prize, newspaper says](https://www.yahoo.com/news/articles/trump-asked-norwegian-minister-nobel-113141508.html)
-- Aug 14 - [India exceeds 100GW in solar PV module manufacturing under ALMM](https://finance.yahoo.com/news/india-exceeds-100gw-solar-pv-111200520.html)
-- Aug 14 - [Mortgage and refinance interest rates today, August 14, 2025: Rates are lower in August than last month](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-thursday-august-14-2025-100030694.html)
-- Aug 14 - [Massive Monolith Found in the Waters of Papahānaumokuākea](https://www.yahoo.com/lifestyle/articles/massive-monolith-found-waters-papah-034933475.html)
 <!-- feed end -->
 
 ---
