@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Israel approves long-blocked settlement to ‘bury the idea of a Palestinian state’](https://www.yahoo.com/news/articles/israel-finance-minister-approves-settlement-083218580.html)
-- Aug 14 - [‘This is America’: New Jersey gym teacher told Egyptian Muslim student she’d be in ‘jail’ by 16 during bullying campaign, lawsuit alleges](https://www.yahoo.com/news/articles/america-jersey-gym-teacher-bullied-181352618.html)
+- Aug 14 - [Stock market gets 'kick in the pants' from startling inflation report](https://finance.yahoo.com/news/stock-market-gets-kick-pants-190801720.html)
 - Aug 14 - [3 people charged with helping suspected killer of 4 are accused of giving him shelter, phones](https://www.yahoo.com/news/articles/3-people-charged-helping-suspected-174918109.html)
-- Aug 14 - [More Than Two Dozen People Linked to Jeffrey Epstein Have Died Under Mysterious Circumstances](https://www.yahoo.com/news/articles/more-two-dozen-people-linked-153149553.html)
-- Aug 14 - [Hunter Biden gives blunt two-word response to Melania Trump’s threats of $1 billion defamation lawsuit](https://www.yahoo.com/news/articles/melania-trump-threatens-hunter-biden-101348958.html)
+- Aug 14 - [Bondi fires Justice Department employee accused of throwing sandwich at federal agent](https://www.yahoo.com/news/articles/justice-department-fires-man-accused-162718745.html)
+- Aug 14 - ['Some People Said They Lost Their Life Savings'—Apple Co-Founder Steve Wozniak Is Still Fighting YouTube Over A 2020 Bitcoin Scam](https://finance.yahoo.com/news/people-said-lost-life-savings-160103187.html)
+- Aug 14 - [Trump Left Fuming After World Leaders Gang Up on Him Over Putin](https://www.yahoo.com/news/articles/trump-left-fuming-world-leaders-154852214.html)
 <!-- feed end -->
 
 ---
