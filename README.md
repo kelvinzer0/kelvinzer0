@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Bus contract issues between city, KCATA 'resolved,' Mayor Lucas says](https://www.yahoo.com/news/videos/bus-contract-issues-between-city-175406568.html)
-- Aug 14 - [US court to reschedule final sale hearing in auction of Citgo parent](https://finance.yahoo.com/news/us-court-reschedule-final-sale-173058845.html)
-- Aug 14 - [Bondi fires Justice Department employee accused of throwing sandwich at federal agent](https://www.yahoo.com/news/articles/justice-department-fires-man-accused-162718745.html)
+- Aug 14 - [Israel approves long-blocked settlement to ‘bury the idea of a Palestinian state’](https://www.yahoo.com/news/articles/israel-finance-minister-approves-settlement-083218580.html)
+- Aug 14 - [‘This is America’: New Jersey gym teacher told Egyptian Muslim student she’d be in ‘jail’ by 16 during bullying campaign, lawsuit alleges](https://www.yahoo.com/news/articles/america-jersey-gym-teacher-bullied-181352618.html)
+- Aug 14 - [3 people charged with helping suspected killer of 4 are accused of giving him shelter, phones](https://www.yahoo.com/news/articles/3-people-charged-helping-suspected-174918109.html)
 - Aug 14 - [More Than Two Dozen People Linked to Jeffrey Epstein Have Died Under Mysterious Circumstances](https://www.yahoo.com/news/articles/more-two-dozen-people-linked-153149553.html)
 - Aug 14 - [Hunter Biden gives blunt two-word response to Melania Trump’s threats of $1 billion defamation lawsuit](https://www.yahoo.com/news/articles/melania-trump-threatens-hunter-biden-101348958.html)
 <!-- feed end -->
