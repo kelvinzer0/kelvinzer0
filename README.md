@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [China Will Be A Core Strength for Applied Materials, Says Muse](https://finance.yahoo.com/video/china-core-strength-applied-materials-165131612.html)
-- Aug 14 - [The Mayor Of Chicago Fired Back At Donald Trump For Calling Him "Incompetent," And His Response Is Going Viral For Being The "Bar Of The Year"](https://www.yahoo.com/news/articles/mayor-chicago-fired-back-donald-164424531.html)
-- Aug 14 - [Justice Department fires man accused of throwing sandwich at agent during Trump DC intervention](https://www.yahoo.com/news/articles/justice-department-fires-man-accused-162718745.html)
+- Aug 14 - [Bus contract issues between city, KCATA 'resolved,' Mayor Lucas says](https://www.yahoo.com/news/videos/bus-contract-issues-between-city-175406568.html)
+- Aug 14 - [US court to reschedule final sale hearing in auction of Citgo parent](https://finance.yahoo.com/news/us-court-reschedule-final-sale-173058845.html)
+- Aug 14 - [Bondi fires Justice Department employee accused of throwing sandwich at federal agent](https://www.yahoo.com/news/articles/justice-department-fires-man-accused-162718745.html)
 - Aug 14 - [More Than Two Dozen People Linked to Jeffrey Epstein Have Died Under Mysterious Circumstances](https://www.yahoo.com/news/articles/more-two-dozen-people-linked-153149553.html)
-- Aug 14 - [8 Cheap Cars That Make You Look Rich, According to Car Expert Doug DeMuro](https://autos.yahoo.com/articles/8-cheap-cars-look-rich-151707605.html)
+- Aug 14 - [Hunter Biden gives blunt two-word response to Melania Trump’s threats of $1 billion defamation lawsuit](https://www.yahoo.com/news/articles/melania-trump-threatens-hunter-biden-101348958.html)
 <!-- feed end -->
 
 ---
