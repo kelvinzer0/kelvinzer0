@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - ['Tesla shame' bypasses Norway as sales jump despite Musk's politics](https://finance.yahoo.com/video/tesla-shame-bypasses-norway-sales-122154652.html)
-- Aug 14 - [Customer sparks outrage after taking apart commonly discarded product: 'That should be illegal'](https://www.yahoo.com/news/articles/customer-sparks-outrage-taking-apart-115000312.html)
+- Aug 14 - [Influencer under fire after posting controversial beach video: 'This causes so much damage'](https://www.yahoo.com/news/articles/influencer-under-fire-posting-controversial-115500483.html)
 - Aug 14 - [Trump asked Norwegian minister about Nobel Prize, newspaper says](https://www.yahoo.com/news/articles/trump-asked-norwegian-minister-nobel-113141508.html)
-- Aug 14 - [Massive Monolith Found in the Waters of Papahānaumokuākea](https://www.yahoo.com/lifestyle/articles/massive-monolith-found-waters-papah-034933475.html)
-- Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
+- Aug 14 - [Two men hit with massive fines after getting caught on camera committing shocking act in forest — here are the details](https://www.yahoo.com/news/articles/two-men-hit-massive-fines-113000885.html)
+- Aug 14 - [Mortgage and refinance interest rates today, August 14, 2025: Rates are lower in August than last month](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-thursday-august-14-2025-100030694.html)
+- Aug 14 - [Social Security's 2026 COLA Forecast Was Just Updated. Here's the Latest.](https://finance.yahoo.com/news/social-securitys-2026-cola-forecast-091800198.html)
 <!-- feed end -->
 
 ---
