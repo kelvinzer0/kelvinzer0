@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Here’s What Is Changing With Social Security in 2025](https://www.yahoo.com/news/videos/changing-social-security-2025-132642082.html)
-- Aug 14 - [North Korea's tallest building is an abandoned hotel that has never hosted a single guest. Take a look at the 'Hotel of Doom.'](https://www.yahoo.com/news/articles/north-koreas-tallest-building-abandoned-162020783.html)
-- Aug 14 - [Two men hit with massive fines after getting caught on camera committing shocking act in forest — here are the details](https://www.yahoo.com/news/articles/two-men-hit-massive-fines-113000885.html)
+- Aug 14 - [California was comfortable, this American woman says, but ‘everyone is much happier’ since the family moved to Spain](https://www.yahoo.com/lifestyle/articles/california-comfortable-american-woman-says-120903818.html)
+- Aug 14 - [Trump asked Norwegian minister about Nobel Prize, newspaper says](https://www.yahoo.com/news/articles/trump-asked-norwegian-minister-nobel-113141508.html)
+- Aug 14 - [India exceeds 100GW in solar PV module manufacturing under ALMM](https://finance.yahoo.com/news/india-exceeds-100gw-solar-pv-111200520.html)
 - Aug 14 - [Mortgage and refinance interest rates today, August 14, 2025: Rates are lower in August than last month](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-thursday-august-14-2025-100030694.html)
 - Aug 14 - [Massive Monolith Found in the Waters of Papahānaumokuākea](https://www.yahoo.com/lifestyle/articles/massive-monolith-found-waters-papah-034933475.html)
 <!-- feed end -->
