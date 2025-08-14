@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [The cofounder of xAI is leaving the company. He says he's learned 2 main things from Elon Musk.](https://finance.yahoo.com/news/cofounder-xai-leaving-company-says-043611698.html)
 - Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
 - Aug 14 - [Melania Trump demands Hunter Biden retract 'extremely salacious' Epstein comments](https://www.yahoo.com/news/articles/melania-trump-demands-hunter-biden-012742768.html)
-- Aug 14 - [I Drove the 2025 Honda Prologue EV for 7 Days. Here’s the Shocking Truth About Honda’s First All-Electric SUV](https://autos.yahoo.com/articles/drove-2025-honda-prologue-ev-001214122.html)
+- Aug 13 - [Semi attempting U-turn on Florida's Turnpike led to triple-fatal crash, FHP says](https://www.yahoo.com/news/articles/semi-attempting-u-turn-floridas-230934845.html)
+- Aug 13 - [Trump Announced This Year's 5 Kennedy Center Honorees, And Some Of These Picks Are Kind Of Shocking](https://www.yahoo.com/entertainment/articles/trump-announced-years-5-kennedy-213601053.html)
 - Aug 13 - [The podcaster told MAGA Rep. Anna Paulina Luna that the protests in Los Angeles and other cities in June were a “visceral reaction” to ICE raids.](https://www.yahoo.com/news/videos/podcaster-told-maga-rep-anna-210228857.html)
 <!-- feed end -->
 
