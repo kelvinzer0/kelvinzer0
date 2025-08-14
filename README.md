@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [Thousands of users’ personal data — including their IDs — were leaked from a popular male revenge dating app](https://www.yahoo.com/news/articles/male-revenge-app-currently-2-194845771.html)
 - Aug 14 - [New blood pressure guidelines recommend an earlier start to treatment and skipping alcohol](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-180011840.html)
+- Aug 14 - [Intel stock jumps on report Trump admin. is considering stake](https://finance.yahoo.com/video/intel-stock-jumps-report-trump-200947477.html)
 - Aug 14 - [Ultra-processed foods that fuel colon cancer — and healthy alternatives that may offset the damage](https://www.yahoo.com/lifestyle/articles/scientists-identify-ultra-processed-foods-181514631.html)
-- Aug 14 - [Stock market gets 'kick in the pants' from startling inflation report](https://finance.yahoo.com/news/stock-market-gets-kick-pants-190801720.html)
-- Aug 14 - [RGTI: Rigetti Stock Fall as Heavy Losses Drown Quantum Breakthrough](https://finance.yahoo.com/news/rgti-rigetti-stock-fall-heavy-175721638.html)
+- Aug 14 - [3 people charged with helping suspected killer of 4 are accused of giving him shelter, phones](https://www.yahoo.com/news/articles/3-people-charged-helping-suspected-174918109.html)
+- Aug 14 - [Apple accidentally leaked its own top-secret hardware in software code—and it looks like we’re getting a slew of products across 7 categories](https://tech.yahoo.com/ai/articles/apple-accidentally-leaked-own-top-174438038.html)
 <!-- feed end -->
 
 ---
