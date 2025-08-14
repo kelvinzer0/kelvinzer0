@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 13 - [Trump Announced This Year's 5 Kennedy Center Honorees, And Some Of These Picks Are Kind Of Shocking](https://www.yahoo.com/entertainment/articles/trump-announced-years-5-kennedy-213601053.html)
-- Aug 13 - [The podcaster told MAGA Rep. Anna Paulina Luna that the protests in Los Angeles and other cities in June were a “visceral reaction” to ICE raids.](https://www.yahoo.com/news/videos/podcaster-told-maga-rep-anna-210228857.html)
-- Aug 13 - [Bodycam shows Powerball winner being arrested a day after collecting $167M prize](https://www.yahoo.com/news/articles/bodycam-shows-powerball-winner-being-203206250.html)
-- Aug 13 - [US judge blocks Trump religious exemption to birth control coverage](https://www.yahoo.com/news/articles/us-judge-blocks-trump-religious-194743413.html)
+- Aug 14 - [Melania Trump demands Hunter Biden retract 'extremely salacious' Epstein comments](https://www.yahoo.com/news/articles/melania-trump-demands-hunter-biden-012742768.html)
+- Aug 13 - [F-15 Ride-Along Passenger Accidentally Ejects From The Jet While On The Ground](https://www.yahoo.com/news/articles/f-15-ride-along-passenger-234114304.html)
+- Aug 13 - [Ex-IDF chief Halevi slams Mossad chief: 'Takes credit for ops led by IDF'](https://www.yahoo.com/news/articles/ex-idf-chief-halevi-slams-220455314.html)
 - Aug 13 - [Armed robbers in latest Philadelphia-area Brinks truck heist took $700,000 or more, police say](https://www.yahoo.com/news/articles/armed-robbers-latest-philadelphia-area-185911574.html)
+- Aug 13 - [Flesh-eating bacteria found in swimmer who was at Cape Cod beach](https://www.yahoo.com/news/articles/flesh-eating-bacteria-found-swimmer-182503487.html)
 <!-- feed end -->
 
 ---
