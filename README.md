@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 14 - [How stablecoins quietly beat bitcoin at its own game](https://finance.yahoo.com/video/stablecoins-quietly-beat-bitcoin-own-100015184.html)
-- Aug 14 - [Jenrick ‘ignored’ by French police after reporting Calais migrants](https://www.yahoo.com/news/articles/robert-jenrick-accuses-french-police-071523820.html)
-- Aug 14 - [The dangerous driver behind Britain’s growth](https://finance.yahoo.com/news/dangerous-driver-behind-britain-growth-090000452.html)
+- Aug 14 - [Insulin shortage pains Congo diabetics in conflict-hit east](https://www.yahoo.com/news/videos/insulin-shortage-pains-congo-diabetics-105523048.html)
+- Aug 14 - [Exclusive-Meta’s AI rules have let bots hold ‘sensual’ chats with kids, offer false medical info](https://finance.yahoo.com/news/exclusive-meta-ai-rules-let-104959484.html)
 - Aug 14 - [Massive Monolith Found in the Waters of Papahānaumokuākea](https://www.yahoo.com/lifestyle/articles/massive-monolith-found-waters-papah-034933475.html)
-- Aug 14 - ["I Thought It Went Well...": This Jobseeker Was Accidentally CC'ed On A Post-Interview Email That They Were NOT Meant To See](https://www.yahoo.com/lifestyle/articles/thought-went-well-jobseeker-accidentally-033103107.html)
+- Aug 14 - [Coach at O.C. high school accused of grooming, sexual relationship with girl](https://www.yahoo.com/news/articles/coach-o-c-high-school-021316416.html)
+- Aug 14 - [‘Utterly foolish’: 12 hours before World War II ended, the US firebombed this Japanese city](https://www.yahoo.com/news/articles/utterly-foolish-12-hours-world-024059000.html)
 <!-- feed end -->
 
 ---
