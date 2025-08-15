@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - ['Tactical situation' underway in Jeffersonville, police ask public to avoid area](https://www.yahoo.com/news/articles/tactical-situation-underway-jeffersonville-police-164818842.html)
 - Aug 15 - [Chinese state media calls U.S. a 'surveillance empire' over trackers in chip shipments](https://finance.yahoo.com/news/chinese-state-media-calls-u-151909945.html)
+- Aug 15 - [The spice linked to low blood sugar and gum disease prevention](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
 - Aug 15 - [Coroner Who Performed Marilyn Monroe’s Autopsy Reveals Shocking New Details About Botched Exam](https://www.yahoo.com/entertainment/articles/coroner-performed-marilyn-monroe-autopsy-144255610.html)
-- Aug 15 - [Far-right Israeli minister pays surprise visit to jailed Palestinian leader](https://www.yahoo.com/news/articles/far-israeli-minister-pays-surprise-121424941.html)
-- Aug 15 - [IRS Reportedly Confirms $1,390 Stimulus Checks For Eligible Americans, Rumors of $2,000 August Payout Debunked — Plans Late Summer Rollout (UPDATED)](https://finance.yahoo.com/news/irs-reportedly-confirms-1-390-113105179.html)
+- Aug 15 - [Hiker who died after being bitten by venomous snake in Tennessee made fatal mistake, officials believe](https://www.yahoo.com/news/articles/hiker-died-being-bitten-venomous-141839622.html)
+- Aug 15 - [Sophie Rain Leaves MrBeast Speechless After Dropping $1 Million on Charity Livestream](https://www.yahoo.com/entertainment/articles/sophie-rain-leaves-mrbeast-speechless-134737424.html)
 <!-- feed end -->
 
 ---
