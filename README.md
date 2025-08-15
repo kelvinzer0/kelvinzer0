@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Michael Saylor Bets on A $100B Bitcoin 'Credit' Dream](https://finance.yahoo.com/video/michael-saylor-bets-100b-bitcoin-193934577.html)
 - Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
-- Aug 15 - [Difficult to See Bessent Size Rate Cut: Kathy Jones](https://finance.yahoo.com/video/difficult-see-bessent-size-rate-183858239.html)
+- Aug 15 - [Trump Is Ready to Invade U.S. Ally if It Doesn’t Cave to His Demands](https://www.yahoo.com/news/articles/trump-ready-invade-u-ally-154132932.html)
 - Aug 15 - [Chinese state media calls U.S. a 'surveillance empire' over trackers in chip shipments](https://finance.yahoo.com/news/chinese-state-media-calls-u-151909945.html)
-- Aug 15 - [Coroner Who Performed Marilyn Monroe’s Autopsy Reveals Shocking New Details About Botched Exam](https://www.yahoo.com/entertainment/articles/coroner-performed-marilyn-monroe-autopsy-144255610.html)
-- Aug 15 - [Hiker who died after being bitten by venomous snake in Tennessee made fatal mistake, officials believe](https://www.yahoo.com/news/articles/hiker-died-being-bitten-venomous-141839622.html)
+- Aug 15 - [Panasonic opens multibillion-dollar facility size of 225 football fields: 'When we commit to something, we're fully committed'](https://finance.yahoo.com/news/panasonic-opens-multibillion-dollar-facility-150000263.html)
 <!-- feed end -->
 
 ---
