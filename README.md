@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Michael Saylor Bets on A $100B Bitcoin 'Credit' Dream](https://finance.yahoo.com/video/michael-saylor-bets-100b-bitcoin-193934577.html)
+- Aug 15 - [US Naval Academy gets first Marine superintendent](https://www.yahoo.com/news/articles/us-naval-academy-gets-first-205559632.html)
+- Aug 15 - [Researchers put 3D-printed house to test on 50-ton shaking machine: 'These findings will be essential'](https://www.yahoo.com/news/articles/researchers-put-3d-printed-house-204500605.html)
 - Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
-- Aug 15 - [Trump Is Ready to Invade U.S. Ally if It Doesn’t Cave to His Demands](https://www.yahoo.com/news/articles/trump-ready-invade-u-ally-154132932.html)
-- Aug 15 - [Chinese state media calls U.S. a 'surveillance empire' over trackers in chip shipments](https://finance.yahoo.com/news/chinese-state-media-calls-u-151909945.html)
-- Aug 15 - [Panasonic opens multibillion-dollar facility size of 225 football fields: 'When we commit to something, we're fully committed'](https://finance.yahoo.com/news/panasonic-opens-multibillion-dollar-facility-150000263.html)
+- Aug 15 - [New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard](https://www.yahoo.com/news/articles/federal-grand-jury-indicts-orleans-180806238.html)
+- Aug 15 - [Florida officer who punched driver in violent traffic stop cleared by prosecutors](https://www.yahoo.com/news/articles/florida-officer-punched-driver-violent-154600382.html)
 <!-- feed end -->
 
 ---
