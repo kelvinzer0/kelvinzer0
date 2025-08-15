@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Analysis-Tough US stance casts gloom over plastics pollution deal after Geneva flop](https://www.yahoo.com/news/articles/analysis-tough-us-stance-casts-145558998.html)
+- Aug 15 - [Beachgoers told to exit water due to sewage](https://www.yahoo.com/news/articles/beachgoers-told-exit-water-due-151524082.html)
 - Aug 15 - [Why Trump might push for a US gov't. stake in Intel](https://finance.yahoo.com/video/why-trump-might-push-us-143644011.html)
-- Aug 15 - [Opendoor stock pops 10% as company says CEO will step down](https://finance.yahoo.com/news/opendoor-stock-pops-10-as-company-says-ceo-will-step-down-142931274.html)
-- Aug 15 - [Hiker who died after being bitten by venomous snake in Tennessee made fatal mistake, officials believe](https://www.yahoo.com/news/articles/hiker-died-being-bitten-venomous-141839622.html)
-- Aug 15 - [Customer sparks outrage with photo of bizarre discovery in shelf at Goodwill: 'This is getting ridiculous'](https://www.yahoo.com/lifestyle/articles/customer-sparks-outrage-photo-bizarre-113000728.html)
+- Aug 15 - [US manufacturing production stalls in July](https://finance.yahoo.com/news/us-manufacturing-production-stalls-july-142859264.html)
+- Aug 15 - [A New Zealand mother and her 6-year-old son made a brief trip to Canada. They have spent weeks detained by ICE](https://www.yahoo.com/news/articles/zealand-mother-her-6-old-141157576.html)
+- Aug 15 - [IRS Reportedly Confirms $1,390 Stimulus Checks For Eligible Americans, Rumors of $2,000 August Payout Debunked — Plans Late Summer Rollout (UPDATED)](https://finance.yahoo.com/news/irs-reportedly-confirms-1-390-113105179.html)
 <!-- feed end -->
 
 ---
