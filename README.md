@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Oil prices dip ahead of Trump-Putin talks](https://uk.finance.yahoo.com/news/oil-prices-trump-putin-talks-gold-pound-084757402.html)
-- Aug 15 - [Second senior Chinese diplomat detained for questioning, sources say](https://www.yahoo.com/news/articles/exclusive-second-senior-chinese-diplomat-064838812.html)
+- Aug 15 - [Taliban leader warns God will severely punish Afghans ungrateful for Islamic rule](https://www.yahoo.com/news/articles/taliban-leader-warns-god-severely-105706791.html)
+- Aug 15 - [Apollo Sees Europe Credit Opportunities in AI, Defense, Infrastructure](https://finance.yahoo.com/video/apollo-sees-europe-credit-opportunities-100738314.html)
+- Aug 15 - [Hezbollah warns Lebanon 'will have no life' if state moves against it](https://www.yahoo.com/news/articles/hezbollah-chief-says-no-life-074522731.html)
 - Aug 15 - [Trump's 'safe and beautiful' move against DC homeless camps looks like ugliness to those targeted](https://www.yahoo.com/news/articles/trumps-safe-beautiful-move-against-044326446.html)
 - Aug 15 - [New blood pressure guidelines recommend cutting back on these two things](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-032457747.html)
-- Aug 15 - [Oregon one of the worst states to move to, analysis says](https://www.yahoo.com/news/articles/oregon-one-worst-states-move-003432736.html)
 <!-- feed end -->
 
 ---
