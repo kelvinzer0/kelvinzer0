@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Trump and Putin to spar Ukraine peace and arms control at Alaska summit](https://www.yahoo.com/news/articles/trump-putin-spar-ukraine-peace-040138502.html)
+- Aug 15 - [New blood pressure guidelines recommend an earlier start to treatment and skipping alcohol](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-180011840.html)
 - Aug 15 - [China's 'robot Olympics' sees humanoids from 16 nations compete in table tennis, football, track](https://tech.yahoo.com/ai/articles/chinas-robot-olympics-sees-humanoids-023705323.html)
 - Aug 15 - [Oregon one of the worst states to move to, analysis says](https://www.yahoo.com/news/articles/oregon-one-worst-states-move-003432736.html)
-- Aug 14 - [Nashville car dealership owner convicted of fraudulently obtaining $24.6 million](https://www.yahoo.com/news/articles/nashville-car-dealership-owner-convicted-220544518.html)
 - Aug 14 - [Warren Buffett's company reveals new investments in Nucor, UnitedHealth and two big homebuilders](https://finance.yahoo.com/news/warren-buffetts-company-reveals-investments-210040962.html)
-- Aug 14 - [New blood pressure guidelines recommend an earlier start to treatment and skipping alcohol](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-180011840.html)
 <!-- feed end -->
 
 ---
