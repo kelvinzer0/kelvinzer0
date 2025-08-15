@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Watch Trump React To Hillary Clinton's Surprising Nobel Peace Prize Endorsement](https://www.yahoo.com/news/articles/watch-trump-react-hillary-clintons-224851865.html)
+- Aug 15 - [Lee teachers union files unfair labor complaint over incentive pay plan](https://www.yahoo.com/news/articles/lee-teachers-union-files-unfair-221326554.html)
 - Aug 15 - [Colorado jail's ex-commander sued over allegedly watching strip search videos of over 100 women](https://www.yahoo.com/news/articles/colorado-jails-ex-commander-sued-205035712.html)
-- Aug 15 - [Southwest cuts five direct flights out of St. Louis](https://www.yahoo.com/news/articles/southwest-cuts-five-direct-flights-192312802.html)
+- Aug 15 - [Ukraine and Europe watch opening moments of Trump-Putin summit in ‘stunned silence’](https://www.yahoo.com/news/videos/ukraine-europe-watch-opening-moments-203146803.html)
 - Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
-- Aug 15 - [PD: Wanted man arrested in Horizon](https://www.yahoo.com/news/articles/pd-wanted-man-arrested-horizon-181252799.html)
-- Aug 15 - [Trump Is Ready to Invade U.S. Ally if It Doesn’t Cave to His Demands](https://www.yahoo.com/news/articles/trump-ready-invade-u-ally-154132932.html)
 <!-- feed end -->
 
 ---
