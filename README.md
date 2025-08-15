@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Factbox-South Korea to restore pact curbing military activity on North Korean border](https://www.yahoo.com/news/articles/factbox-south-korea-restore-pact-065610216.html)
+- Aug 15 - [Floods and landslides in Indian Kashmir kill 60, over 100 missing](https://www.yahoo.com/news/articles/floods-landslides-indian-kashmir-kill-064127269.html)
+- Aug 15 - [New blood pressure guidelines recommend cutting back on these two things](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-032457747.html)
 - Aug 15 - [Oregon one of the worst states to move to, analysis says](https://www.yahoo.com/news/articles/oregon-one-worst-states-move-003432736.html)
 - Aug 14 - [‘ICE Barbie’ Kristi Noem claims 1.6M migrants have left the country. Even the group behind the number admits it may be overstated](https://www.yahoo.com/news/articles/ice-barbie-kristi-noem-claims-235457251.html)
-- Aug 14 - [Warren Buffett's company reveals new investments in Nucor, UnitedHealth and two big homebuilders](https://finance.yahoo.com/news/warren-buffetts-company-reveals-investments-210040962.html)
-- Aug 14 - [Intel stock jumps on report Trump admin. is considering stake](https://finance.yahoo.com/video/intel-stock-jumps-report-trump-200947477.html)
-- Aug 14 - [AI experts return from China stunned: The U.S. grid is so weak, the race may already be over](https://finance.yahoo.com/news/ai-experts-return-china-stunned-195549402.html)
 <!-- feed end -->
 
 ---
