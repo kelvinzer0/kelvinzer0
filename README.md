@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [US Naval Academy gets first Marine superintendent](https://www.yahoo.com/news/articles/us-naval-academy-gets-first-205559632.html)
-- Aug 15 - [Researchers put 3D-printed house to test on 50-ton shaking machine: 'These findings will be essential'](https://www.yahoo.com/news/articles/researchers-put-3d-printed-house-204500605.html)
+- Aug 15 - [Colorado jail's ex-commander sued over allegedly watching strip search videos of over 100 women](https://www.yahoo.com/news/articles/colorado-jails-ex-commander-sued-205035712.html)
+- Aug 15 - [Southwest cuts five direct flights out of St. Louis](https://www.yahoo.com/news/articles/southwest-cuts-five-direct-flights-192312802.html)
 - Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
-- Aug 15 - [New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard](https://www.yahoo.com/news/articles/federal-grand-jury-indicts-orleans-180806238.html)
-- Aug 15 - [Florida officer who punched driver in violent traffic stop cleared by prosecutors](https://www.yahoo.com/news/articles/florida-officer-punched-driver-violent-154600382.html)
+- Aug 15 - [PD: Wanted man arrested in Horizon](https://www.yahoo.com/news/articles/pd-wanted-man-arrested-horizon-181252799.html)
+- Aug 15 - [Trump Is Ready to Invade U.S. Ally if It Doesn’t Cave to His Demands](https://www.yahoo.com/news/articles/trump-ready-invade-u-ally-154132932.html)
 <!-- feed end -->
 
 ---
