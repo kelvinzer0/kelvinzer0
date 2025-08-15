@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Taliban leader warns God will severely punish Afghans ungrateful for Islamic rule](https://www.yahoo.com/news/articles/taliban-leader-warns-god-severely-105706791.html)
-- Aug 15 - [Apollo Sees Europe Credit Opportunities in AI, Defense, Infrastructure](https://finance.yahoo.com/video/apollo-sees-europe-credit-opportunities-100738314.html)
+- Aug 15 - [Labor market is 'generally in balance,' economist explains](https://finance.yahoo.com/video/labor-market-generally-balance-economist-113023110.html)
+- Aug 15 - [Customer sparks outrage with photo of bizarre discovery in shelf at Goodwill: 'This is getting ridiculous'](https://www.yahoo.com/lifestyle/articles/customer-sparks-outrage-photo-bizarre-113000728.html)
+- Aug 15 - [Teacher who sent pictures of herself in underwear to student banned from the classroom](https://www.yahoo.com/news/articles/teacher-sent-pictures-herself-underwear-103408377.html)
+- Aug 15 - [Mortgage and refinance interest rates today, August 15, 2025: Lowest rates since October](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-august-15-2025-100022753.html)
 - Aug 15 - [Hezbollah warns Lebanon 'will have no life' if state moves against it](https://www.yahoo.com/news/articles/hezbollah-chief-says-no-life-074522731.html)
-- Aug 15 - [Trump's 'safe and beautiful' move against DC homeless camps looks like ugliness to those targeted](https://www.yahoo.com/news/articles/trumps-safe-beautiful-move-against-044326446.html)
-- Aug 15 - [New blood pressure guidelines recommend cutting back on these two things](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-032457747.html)
 <!-- feed end -->
 
 ---
