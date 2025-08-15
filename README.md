@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [Oil prices dip ahead of Trump-Putin talks](https://uk.finance.yahoo.com/news/oil-prices-trump-putin-talks-gold-pound-084757402.html)
 - Aug 15 - [UK marks the anniversary of VJ day](https://www.yahoo.com/news/videos/uk-marks-anniversary-vj-day-075338743.html)
 - Aug 15 - [Trump's 'safe and beautiful' move against DC homeless camps looks like ugliness to those targeted](https://www.yahoo.com/news/articles/trumps-safe-beautiful-move-against-044326446.html)
 - Aug 15 - [New blood pressure guidelines recommend cutting back on these two things](https://www.yahoo.com/news/articles/blood-pressure-guidelines-recommend-skipping-032457747.html)
 - Aug 15 - [Oregon one of the worst states to move to, analysis says](https://www.yahoo.com/news/articles/oregon-one-worst-states-move-003432736.html)
-- Aug 14 - [Warren Buffett's company reveals new investments in Nucor, UnitedHealth and two big homebuilders](https://finance.yahoo.com/news/warren-buffetts-company-reveals-investments-210040962.html)
 <!-- feed end -->
 
 ---
