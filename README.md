@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 15 - [Customer sparks outrage with photo of bizarre discovery in shelf at Goodwill: 'This is getting ridiculous'](https://www.yahoo.com/lifestyle/articles/customer-sparks-outrage-photo-bizarre-113000728.html)
+- Aug 15 - [Far-right Israeli minister confronts long-imprisoned Palestinian leader face to face](https://www.yahoo.com/news/articles/far-israeli-minister-confronts-long-140807072.html)
 - Aug 15 - [Farmers issue warning as beloved staples vanish from markets: 'Average families can no longer afford [it] daily'](https://www.yahoo.com/news/articles/farmers-issue-warning-beloved-staples-113000187.html)
+- Aug 15 - [I tested Tesla and Waymo's robotaxis in Austin. Only one felt ready for the future.](https://tech.yahoo.com/transportation/articles/tested-tesla-waymos-robotaxis-austin-111401804.html)
 - Aug 15 - [Analysis-Trump could soon challenge Congress with rare funding cancellation](https://www.yahoo.com/news/articles/analysis-trump-could-soon-challenge-100832256.html)
-- Aug 15 - [This New York skyscraper had a 1-in-16 chance of collapse. Only one man knew](https://www.yahoo.com/news/articles/york-skyscraper-had-1-16-100508236.html)
 - Aug 15 - [Mortgage and refinance interest rates today, August 15, 2025: Lowest rates since October](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-august-15-2025-100022753.html)
 <!-- feed end -->
 
