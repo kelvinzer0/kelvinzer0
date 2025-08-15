@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
+- Aug 15 - [Difficult to See Bessent Size Rate Cut: Kathy Jones](https://finance.yahoo.com/video/difficult-see-bessent-size-rate-183858239.html)
 - Aug 15 - [Chinese state media calls U.S. a 'surveillance empire' over trackers in chip shipments](https://finance.yahoo.com/news/chinese-state-media-calls-u-151909945.html)
-- Aug 15 - [The spice linked to low blood sugar and gum disease prevention](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
 - Aug 15 - [Coroner Who Performed Marilyn Monroe’s Autopsy Reveals Shocking New Details About Botched Exam](https://www.yahoo.com/entertainment/articles/coroner-performed-marilyn-monroe-autopsy-144255610.html)
 - Aug 15 - [Hiker who died after being bitten by venomous snake in Tennessee made fatal mistake, officials believe](https://www.yahoo.com/news/articles/hiker-died-being-bitten-venomous-141839622.html)
-- Aug 15 - [Sophie Rain Leaves MrBeast Speechless After Dropping $1 Million on Charity Livestream](https://www.yahoo.com/entertainment/articles/sophie-rain-leaves-mrbeast-speechless-134737424.html)
 <!-- feed end -->
 
 ---
