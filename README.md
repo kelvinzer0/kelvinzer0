@@ -32,8 +32,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Aug 16 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
 - Aug 15 - [Oklahoma County Sheriff’s Office, OSBI wrap up investigation into State Superintendent Ryan Walters](https://www.yahoo.com/news/articles/oklahoma-county-sheriff-office-osbi-212302420.html)
 - Aug 15 - [Colorado jail's ex-commander sued over allegedly watching strip search videos of over 100 women](https://www.yahoo.com/news/articles/colorado-jails-ex-commander-sued-205035712.html)
-- Aug 15 - [Potential ‘100 Foot’ Waves Headed for U.S. East Coast](https://www.yahoo.com/news/articles/potential-100-foot-waves-headed-203503064.html)
-- Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
+- Aug 15 - [New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard](https://www.yahoo.com/news/articles/federal-grand-jury-indicts-orleans-180806238.html)
+- Aug 15 - [Trump Is Ready to Invade U.S. Ally if It Doesn’t Cave to His Demands](https://www.yahoo.com/news/articles/trump-ready-invade-u-ally-154132932.html)
 <!-- feed end -->
 
 ---
