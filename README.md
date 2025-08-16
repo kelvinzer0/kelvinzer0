@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [A stealth bomber, a shouting match and an awkward moment for Putin: Everything you missed](https://www.yahoo.com/news/articles/stealth-bomber-shouting-match-awkward-082418020.html)
-- Aug 16 - [Putin gave his final words at Alaska summit in English, a language he speaks more of than he usually lets on](https://www.yahoo.com/news/articles/putin-gave-final-words-alaska-141810809.html)
-- Aug 16 - ['Quiet cracking' is the dangerous new trend affecting millions of workers — why it's happening and how to spot it](https://finance.yahoo.com/news/quiet-cracking-dangerous-trend-affecting-133300885.html)
+- Aug 16 - [Trump shifts position on Ukraine ceasefire after meeting Putin](https://www.yahoo.com/news/articles/trump-lands-alaska-ahead-ukraine-182218092.html)
 - Aug 16 - [A Ukrainian weapons maker is building a new unjammable drone with a 100-kilometer reach. It says 'the war has changed.'](https://www.yahoo.com/news/articles/ukrainian-weapons-maker-building-unjammable-110901176.html)
+- Aug 16 - [New Research Finds That ChatGPT Secretly Has a Deep Anti-Human Bias](https://www.yahoo.com/news/articles/research-finds-chatgpt-secretly-deep-093050193.html)
 - Aug 16 - [Trump says Putin agrees with him US should not have mail-in voting](https://www.yahoo.com/news/articles/trump-says-putin-agrees-him-043119727.html)
+- Aug 16 - [Google Issues a Warning to All 1.8 Billion Users](https://www.yahoo.com/news/articles/google-issues-warning-1-8-034808263.html)
 <!-- feed end -->
 
 ---
