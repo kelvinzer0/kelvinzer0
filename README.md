@@ -30,10 +30,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 16 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
-- Aug 15 - [Oklahoma County Sheriff’s Office, OSBI wrap up investigation into State Superintendent Ryan Walters](https://www.yahoo.com/news/articles/oklahoma-county-sheriff-office-osbi-212302420.html)
-- Aug 15 - [Colorado jail's ex-commander sued over allegedly watching strip search videos of over 100 women](https://www.yahoo.com/news/articles/colorado-jails-ex-commander-sued-205035712.html)
-- Aug 15 - [New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard](https://www.yahoo.com/news/articles/federal-grand-jury-indicts-orleans-180806238.html)
-- Aug 15 - [Trump Is Ready to Invade U.S. Ally if It Doesn’t Cave to His Demands](https://www.yahoo.com/news/articles/trump-ready-invade-u-ally-154132932.html)
+- Aug 16 - [Trump says no imminent plans to penalize China for buying Russian oil](https://finance.yahoo.com/news/trump-says-no-imminent-plans-022349353.html)
+- Aug 16 - [Las Vegas pastor arrested in child predator sting operation](https://www.yahoo.com/news/articles/las-vegas-pastor-arrested-child-010243899.html)
+- Aug 15 - [Trump, 79, Veers From Left to Right in Walk Across Red Carpet](https://www.yahoo.com/news/articles/trump-79-veers-left-walk-204000192.html)
+- Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
 <!-- feed end -->
 
 ---
