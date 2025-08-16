@@ -32,8 +32,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Aug 16 - [Text of European leaders statement on Trump-Putin talks in Alaska](https://www.yahoo.com/news/articles/text-european-leaders-statement-trump-121928108.html)
 - Aug 16 - [A fisherman thought he spotted a car in the Mississippi River. He may have just helped solve a cold case from 1967](https://www.yahoo.com/news/articles/fisherman-thought-spotted-car-mississippi-120041873.html)
 - Aug 16 - [A Ukrainian weapons maker is building a new unjammable drone with a 100-kilometer reach. It says 'the war has changed.'](https://www.yahoo.com/news/articles/ukrainian-weapons-maker-building-unjammable-110901176.html)
-- Aug 16 - [Delta Sends Warning to All Customers After Disappointing Decision](https://www.yahoo.com/news/articles/delta-sends-warning-customers-disappointing-045328362.html)
-- Aug 16 - [Google Issues a Warning to All 1.8 Billion Users](https://www.yahoo.com/news/articles/google-issues-warning-1-8-034808263.html)
+- Aug 16 - [Hubble reveals new details about alien comet 3I/ATLAS](https://www.yahoo.com/news/articles/hubble-reveals-details-alien-comet-104119208.html)
+- Aug 16 - [One of largest fast casual restaurants is headed to Pekin. See when it opens](https://www.yahoo.com/news/articles/one-largest-fast-casual-restaurants-083429340.html)
 <!-- feed end -->
 
 ---
