@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
-- Aug 16 - [Trump says no imminent plans to penalize China for buying Russian oil](https://finance.yahoo.com/news/trump-says-no-imminent-plans-022349353.html)
-- Aug 16 - [Las Vegas pastor arrested in child predator sting operation](https://www.yahoo.com/news/articles/las-vegas-pastor-arrested-child-010243899.html)
-- Aug 15 - [Trump, 79, Veers From Left to Right in Walk Across Red Carpet](https://www.yahoo.com/news/articles/trump-79-veers-left-walk-204000192.html)
+- Aug 16 - [Trump says Putin agrees with him US should not have mail-in voting](https://www.yahoo.com/news/articles/trump-says-putin-agrees-him-043119727.html)
+- Aug 16 - [Google Issues a Warning to All 1.8 Billion Users](https://www.yahoo.com/news/articles/google-issues-warning-1-8-034808263.html)
+- Aug 16 - ['I'm Fine!': CNN's Jake Tapper Awkwardly Caught On Hot Mic Amid Trump-Putin Summit](https://www.yahoo.com/news/articles/im-fine-cnns-jake-tapper-005214740.html)
 - Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
+- Aug 15 - [La Niña weather returns to California: What to know](https://www.yahoo.com/news/articles/la-ni-weather-returns-california-174521867.html)
 <!-- feed end -->
 
 ---
