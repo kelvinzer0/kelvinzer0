@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [A stealth bomber, a shouting match and an awkward moment for Putin: Everything you missed](https://www.yahoo.com/news/articles/stealth-bomber-shouting-match-awkward-082418020.html)
-- Aug 16 - [Trump says no imminent plans to penalize China for buying Russian oil](https://finance.yahoo.com/news/trump-says-no-imminent-plans-022349353.html)
+- Aug 16 - [Mortgage and refinance interest rates today, August 16, 2025: Fixed rates inch up](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-august-16-2025-100059964.html)
+- Aug 16 - [Trump says Putin agrees with him US should not have mail-in voting](https://www.yahoo.com/news/articles/trump-says-putin-agrees-him-043119727.html)
+- Aug 16 - [Google Issues a Warning to All 1.8 Billion Users](https://www.yahoo.com/news/articles/google-issues-warning-1-8-034808263.html)
 - Aug 15 - [Trump, 79, Puts Cankles on Full Display as He Meets Putin](https://www.yahoo.com/news/articles/trump-79-puts-cankles-full-232017967.html)
 - Aug 15 - [Colorado jail's ex-commander sued over allegedly watching strip search videos of over 100 women](https://www.yahoo.com/news/articles/colorado-jails-ex-commander-sued-205035712.html)
-- Aug 15 - [Potential ‘100 Foot’ Waves Headed for U.S. East Coast](https://www.yahoo.com/news/articles/potential-100-foot-waves-headed-203503064.html)
 <!-- feed end -->
 
 ---
