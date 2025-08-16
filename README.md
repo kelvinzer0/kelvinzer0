@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [Seminole High Student arrested after security guard says she was attacked; mother disputes claim](https://www.yahoo.com/news/articles/seminole-high-student-arrested-security-025729023.html)
+- Aug 15 - [Trump, 79, Veers From Left to Right in Walk Across Red Carpet](https://www.yahoo.com/news/articles/trump-79-veers-left-walk-204000192.html)
+- Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
 - Aug 15 - [New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard](https://www.yahoo.com/news/articles/federal-grand-jury-indicts-orleans-180806238.html)
 - Aug 15 - [La Niña weather returns to California: What to know](https://www.yahoo.com/news/articles/la-ni-weather-returns-california-174521867.html)
-- Aug 15 - [Trump Is Ready to Invade U.S. Ally if It Doesn’t Cave to His Demands](https://www.yahoo.com/news/articles/trump-ready-invade-u-ally-154132932.html)
-- Aug 15 - [Panasonic opens multibillion-dollar facility size of 225 football fields: 'When we commit to something, we're fully committed'](https://finance.yahoo.com/news/panasonic-opens-multibillion-dollar-facility-150000263.html)
-- Aug 15 - [Coroner Who Performed Marilyn Monroe’s Autopsy Reveals Shocking New Details About Botched Exam](https://www.yahoo.com/entertainment/articles/coroner-performed-marilyn-monroe-autopsy-144255610.html)
 <!-- feed end -->
 
 ---
