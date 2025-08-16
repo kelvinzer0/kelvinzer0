@@ -29,10 +29,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Could Buying $10,000 of Palantir Stock Still Make You a Millionaire?](https://finance.yahoo.com/news/could-buying-10-000-palantir-000000317.html)
+- Aug 16 - [The veteran anchor was caught off guard—and on camera—during CNN’s coverage of Trump’s historic meeting with Putin.](https://www.yahoo.com/news/videos/veteran-anchor-caught-off-guard-014930404.html)
+- Aug 16 - ['I'm Fine!': CNN's Jake Tapper Awkwardly Caught On Hot Mic Amid Trump-Putin Summit](https://www.yahoo.com/news/articles/im-fine-cnns-jake-tapper-005214740.html)
 - Aug 15 - [Colorado jail's ex-commander sued over allegedly watching strip search videos of over 100 women](https://www.yahoo.com/news/articles/colorado-jails-ex-commander-sued-205035712.html)
 - Aug 15 - [Potential ‘100 Foot’ Waves Headed for U.S. East Coast](https://www.yahoo.com/news/articles/potential-100-foot-waves-headed-203503064.html)
-- Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
 - Aug 15 - [New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard](https://www.yahoo.com/news/articles/federal-grand-jury-indicts-orleans-180806238.html)
 <!-- feed end -->
 
