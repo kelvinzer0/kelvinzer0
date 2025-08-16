@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [The last dance? Organizers of North America's largest powwow say 2026 will be the event's final year](https://www.yahoo.com/news/articles/last-dance-organizers-north-americas-221344207.html)
+- Aug 16 - [FBI Sends Warning to All Smartphone Users](https://www.yahoo.com/news/articles/fbi-sends-warning-smartphone-users-193927702.html)
 - Aug 16 - [Denver man called United Airlines real customer service — then got transferred to someone who took $17K. How?](https://www.yahoo.com/news/articles/denver-man-called-united-airlines-180000008.html)
 - Aug 16 - [Cardiologists Are Begging You To Eat More of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-more-high-175000320.html)
-- Aug 16 - [Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war](https://www.yahoo.com/news/articles/baby-girl-killed-parents-gaza-145453033.html)
-- Aug 16 - [A fisherman thought he spotted a car in the Mississippi River. He may have just helped solve a cold case from 1967](https://www.yahoo.com/news/articles/fisherman-thought-spotted-car-mississippi-120041873.html)
-- Aug 16 - [A Ukrainian weapons maker is building a new unjammable drone with a 100-kilometer reach. It says 'the war has changed.'](https://www.yahoo.com/news/articles/ukrainian-weapons-maker-building-unjammable-110901176.html)
+- Aug 16 - [Bryan Kohberger Seemingly Captured Inside His Prison Cell in Newly Leaked Video That Has Launched a Police Investigation](https://www.yahoo.com/news/articles/bryan-kohberger-seemingly-captured-inside-172039609.html)
 <!-- feed end -->
 
 ---
