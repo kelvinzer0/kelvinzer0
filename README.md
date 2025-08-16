@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Seminole High Student arrested after security guard says she was attacked; mother disputes claim](https://www.yahoo.com/news/articles/seminole-high-student-arrested-security-025729023.html)
+- Aug 16 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
+- Aug 15 - [Colorado jail's ex-commander sued over allegedly watching strip search videos of over 100 women](https://www.yahoo.com/news/articles/colorado-jails-ex-commander-sued-205035712.html)
 - Aug 15 - [Trump, 79, Veers From Left to Right in Walk Across Red Carpet](https://www.yahoo.com/news/articles/trump-79-veers-left-walk-204000192.html)
+- Aug 15 - [Potential ‘100 Foot’ Waves Headed for U.S. East Coast](https://www.yahoo.com/news/articles/potential-100-foot-waves-headed-203503064.html)
 - Aug 15 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
-- Aug 15 - [New Orleans mayor indicted over allegations of trying to hide relationship with bodyguard](https://www.yahoo.com/news/articles/federal-grand-jury-indicts-orleans-180806238.html)
-- Aug 15 - [La Niña weather returns to California: What to know](https://www.yahoo.com/news/articles/la-ni-weather-returns-california-174521867.html)
 <!-- feed end -->
 
 ---
