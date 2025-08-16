@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 16 - [A New Zealand mother and her 6-year-old son released from US immigration custody after being detained for weeks](https://www.yahoo.com/news/articles/zealand-mother-her-6-old-141157576.html)
 - Aug 16 - [Denver man called United Airlines real customer service — then got transferred to someone who took $17K. How?](https://www.yahoo.com/news/articles/denver-man-called-united-airlines-180000008.html)
 - Aug 16 - [Cardiologists Are Begging You To Eat More of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-more-high-175000320.html)
-- Aug 16 - [Officials investigating after 91-year-old killed in crash in Cranberry Township](https://www.yahoo.com/news/videos/officials-investigating-91-old-killed-171512579.html)
+- Aug 16 - [Georgia Power demolishes stacks at Carroll County plant](https://www.yahoo.com/news/articles/georgia-power-demolishes-stacks-carroll-162837302.html)
 - Aug 16 - [Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war](https://www.yahoo.com/news/articles/baby-girl-killed-parents-gaza-145453033.html)
-- Aug 16 - [Text of European leaders statement on Trump-Putin talks in Alaska](https://www.yahoo.com/news/articles/text-european-leaders-statement-trump-121928108.html)
 <!-- feed end -->
 
 ---
