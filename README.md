@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 16 - [Homeowner's camera captures rare footage of unexpected visitors playing in creek: 'For me, it was very exciting'](https://www.yahoo.com/news/articles/homeowners-camera-captures-rare-footage-100000016.html)
-- Aug 16 - [Trump says Putin agrees with him US should not have mail-in voting](https://www.yahoo.com/news/articles/trump-says-putin-agrees-him-043119727.html)
-- Aug 16 - [Special delivery: Baby born at West Michigan McDonald’s](https://www.yahoo.com/news/articles/special-delivery-baby-born-west-031845338.html)
-- Aug 16 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
-- Aug 16 - [The veteran anchor was caught off guard—and on camera—during CNN’s coverage of Trump’s historic meeting with Putin.](https://www.yahoo.com/news/videos/veteran-anchor-caught-off-guard-014930404.html)
+- Aug 16 - [Denver man called United Airlines real customer service — then got transferred to someone who took $17K. How?](https://www.yahoo.com/news/articles/denver-man-called-united-airlines-180000008.html)
+- Aug 16 - [Cardiologists Are Begging You To Eat More of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-more-high-175000320.html)
+- Aug 16 - [Officials investigating after 91-year-old killed in crash in Cranberry Township](https://www.yahoo.com/news/videos/officials-investigating-91-old-killed-171512579.html)
+- Aug 16 - [Israel prepares to move Palestinians to southern Gaza as Israelis urge mass protest over war](https://www.yahoo.com/news/articles/baby-girl-killed-parents-gaza-145453033.html)
+- Aug 16 - [Text of European leaders statement on Trump-Putin talks in Alaska](https://www.yahoo.com/news/articles/text-european-leaders-statement-trump-121928108.html)
 <!-- feed end -->
 
 ---
