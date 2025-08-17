@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Dr. Robert J. "Bob" Lowe Bob Lowe passed away on June 4,](https://www.yahoo.com/news/articles/dr-robert-j-bob-lowe-030300477.html)
-- Aug 17 - [Doctor raises red flag amid surge in one type of ER visit: 'Recognition is important'](https://www.yahoo.com/news/articles/doctor-raises-red-flag-amid-030000130.html)
-- Aug 17 - [A New Zealand mother and her 6-year-old son released from US immigration custody after being detained for weeks](https://www.yahoo.com/news/articles/zealand-mother-her-6-old-141157576.html)
+- Aug 17 - [A decades-old rule lets drivers set speed limits on US roads. That could be changing](https://www.yahoo.com/news/articles/decades-old-rule-lets-drivers-040053353.html)
+- Aug 17 - [31 People Who — Bless Them — Were Way, Way, Way, Way, Way, Way Too Confused For Their Own Good](https://www.yahoo.com/entertainment/articles/31-people-bless-them-were-033102427.html)
+- Aug 17 - [Small plane makes emergency landing on San Diego highway](https://www.yahoo.com/news/articles/small-plane-makes-emergency-landing-013502871.html)
+- Aug 17 - [Hurricane Erin is one of the fastest rapidly intensifying storms in Atlantic history](https://www.yahoo.com/news/articles/hurricane-erin-becomes-category-4-112701815.html)
 - Aug 16 - [The last dance? Organizers of North America's largest powwow say 2026 will be the event's final year](https://www.yahoo.com/news/articles/last-dance-organizers-north-americas-221344207.html)
-- Aug 16 - [Billionaire Charlie Munger Says He Ditched Insurance Once He Got Rich And Self-Insured Instead As 'All Intelligent People' Do — 'There's a Lot of Waste'](https://finance.yahoo.com/news/billionaire-charlie-munger-says-ditched-183102009.html)
 <!-- feed end -->
 
 ---
