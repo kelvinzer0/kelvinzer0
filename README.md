@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Uruguay suspends agreement with Hebrew University, citing latest Gaza City occupation plan](https://www.yahoo.com/news/articles/uruguay-suspends-agreement-hebrew-university-005605473.html)
+- Aug 17 - [A New Zealand mother and her 6-year-old son released from US immigration custody after being detained for weeks](https://www.yahoo.com/news/articles/zealand-mother-her-6-old-141157576.html)
+- Aug 16 - [The last dance? Organizers of North America's largest powwow say 2026 will be the event's final year](https://www.yahoo.com/news/articles/last-dance-organizers-north-americas-221344207.html)
 - Aug 16 - [Denver man called United Airlines real customer service — then got transferred to someone who took $17K. How?](https://www.yahoo.com/news/articles/denver-man-called-united-airlines-180000008.html)
 - Aug 16 - [Tropical downpours soak Texas as heavy rain is expected across Lone Star State](https://www.yahoo.com/news/videos/tropical-downpours-soak-texas-heavy-175503953.html)
 - Aug 16 - [Cardiologists Are Begging You To Eat More of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-more-high-175000320.html)
-- Aug 16 - [A stealth bomber, a shouting match and an awkward moment for Putin: Everything you missed](https://www.yahoo.com/news/articles/stealth-bomber-shouting-match-awkward-082418020.html)
 <!-- feed end -->
 
 ---
