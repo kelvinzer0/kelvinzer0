@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Dr. Robert J. "Bob" Lowe Bob Lowe passed away on June 4,](https://www.yahoo.com/news/articles/dr-robert-j-bob-lowe-030300477.html)
+- Aug 17 - [Doctor raises red flag amid surge in one type of ER visit: 'Recognition is important'](https://www.yahoo.com/news/articles/doctor-raises-red-flag-amid-030000130.html)
 - Aug 17 - [A New Zealand mother and her 6-year-old son released from US immigration custody after being detained for weeks](https://www.yahoo.com/news/articles/zealand-mother-her-6-old-141157576.html)
 - Aug 16 - [The last dance? Organizers of North America's largest powwow say 2026 will be the event's final year](https://www.yahoo.com/news/articles/last-dance-organizers-north-americas-221344207.html)
-- Aug 16 - [Denver man called United Airlines real customer service — then got transferred to someone who took $17K. How?](https://www.yahoo.com/news/articles/denver-man-called-united-airlines-180000008.html)
-- Aug 16 - [Tropical downpours soak Texas as heavy rain is expected across Lone Star State](https://www.yahoo.com/news/videos/tropical-downpours-soak-texas-heavy-175503953.html)
-- Aug 16 - [Cardiologists Are Begging You To Eat More of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-more-high-175000320.html)
+- Aug 16 - [Billionaire Charlie Munger Says He Ditched Insurance Once He Got Rich And Self-Insured Instead As 'All Intelligent People' Do — 'There's a Lot of Waste'](https://finance.yahoo.com/news/billionaire-charlie-munger-says-ditched-183102009.html)
 <!-- feed end -->
 
 ---
