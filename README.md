@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Girl, 11, dies in tragic water incident at Cornwall beauty spot](https://www.yahoo.com/news/articles/girl-11-dies-tragic-water-141412607.html)
+- Aug 17 - [Trump-Putin talks produced enough movement to justify Ukraine meeting, Rubio says](https://www.yahoo.com/news/articles/us-may-not-able-create-134114850.html)
+- Aug 17 - [Putin agreed to let US, Europe offer NATO-style security protections for Ukraine, Trump envoy says](https://www.yahoo.com/news/articles/us-envoy-says-putin-agreed-134023096.html)
+- Aug 17 - ['The risk that's on our doorstep': July inflation data has economists on edge](https://finance.yahoo.com/news/the-risk-thats-on-our-doorstep-july-inflation-data-has-economists-on-edge-133057270.html)
 - Aug 17 - [Shocking Stories About Runaway Vehicles](https://www.yahoo.com/news/videos/shocking-stories-runaway-vehicles-130023786.html)
-- Aug 17 - [Why Investors Never Seem To Earn the ‘Average’ Market Return](https://finance.yahoo.com/news/why-investors-never-seem-earn-125908188.html)
-- Aug 17 - [Photographer stunned as trail camera captures unexpected creature moving through forest: 'I couldn't believe what I saw at first'](https://www.yahoo.com/news/articles/photographer-stunned-trail-camera-captures-100000466.html)
-- Aug 17 - [High-tech drones turn Ukraine's front line into a deadly kill zone, complicating evacuations](https://www.yahoo.com/news/articles/high-tech-drones-turn-ukraines-090643866.html)
-- Aug 17 - [Antonia Hylton cited reporting from the summit that suggested Karoline Leavitt looked frightened after meeting with Putin.](https://www.yahoo.com/news/videos/antonia-hylton-cited-reporting-summit-044920991.html)
 <!-- feed end -->
 
 ---
