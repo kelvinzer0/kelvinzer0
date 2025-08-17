@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Social Security Just Received Its First Data Point to Determine the 2026 Cost-of-Living Adjustment (COLA). Here's Where Things Stand Now.](https://finance.yahoo.com/news/social-security-just-received-first-152100651.html)
-- Aug 17 - [Construction to convert busy intersection into roundabout facing more delays](https://www.yahoo.com/news/articles/construction-convert-busy-intersection-roundabout-151332921.html)
-- Aug 17 - [Chinese port achieves first-of-its-kind transfer that could revolutionize maritime trade: 'Significantly cheaper than land transport'](https://www.yahoo.com/news/articles/chinese-port-achieves-first-kind-143000188.html)
-- Aug 17 - [Trump-Putin talks produced enough movement to justify Ukraine meeting, Rubio says](https://www.yahoo.com/news/articles/us-may-not-able-create-134114850.html)
+- Aug 17 - [Voices: Why can’t Palestinian students from Gaza take up their university places in Britain?](https://www.yahoo.com/news/articles/voices-why-t-palestinian-students-084321552.html)
+- Aug 17 - [Syria’s Sharaa hopes for Kurdish deal to prevent conflict](https://www.yahoo.com/news/articles/syria-sharaa-hopes-kurdish-deal-164652643.html)
 - Aug 17 - [Putin agreed to let US, Europe offer NATO-style security protections for Ukraine, Trump envoy says](https://www.yahoo.com/news/articles/us-envoy-says-putin-agreed-134023096.html)
+- Aug 17 - ['The risk that's on our doorstep': July inflation data has economists on edge](https://finance.yahoo.com/news/the-risk-thats-on-our-doorstep-july-inflation-data-has-economists-on-edge-133057270.html)
+- Aug 17 - [Twenty years ago, my research exposed one of the biggest corporate scandals in U.S. history: It taught me that fraud is everywhere, just waiting to be revealed](https://finance.yahoo.com/news/twenty-years-ago-research-exposed-130000496.html)
 <!-- feed end -->
 
 ---
