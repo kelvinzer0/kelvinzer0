@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Pakistan expands rescue and relief efforts after floods kill over 200 in a single district](https://www.yahoo.com/news/articles/pakistan-expands-rescue-relief-efforts-062718257.html)
 - Aug 17 - [Antonia Hylton cited reporting from the summit that suggested Karoline Leavitt looked frightened after meeting with Putin.](https://www.yahoo.com/news/videos/antonia-hylton-cited-reporting-summit-044920991.html)
 - Aug 17 - [A decades-old rule lets drivers set speed limits on US roads. That could be changing](https://www.yahoo.com/news/articles/decades-old-rule-lets-drivers-040053353.html)
-- Aug 17 - [Small plane makes emergency landing on San Diego highway](https://www.yahoo.com/news/articles/small-plane-makes-emergency-landing-013502871.html)
-- Aug 17 - [Hurricane Erin is one of the fastest rapidly intensifying storms in Atlantic history](https://www.yahoo.com/news/articles/hurricane-erin-becomes-category-4-112701815.html)
-- Aug 16 - [Cardiologists Are Begging You To Eat More of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-more-high-175000320.html)
+- Aug 17 - ['The hostages are my top priority': IDF officer on balancing aid distribution, freeing hostages](https://www.yahoo.com/news/articles/hostages-top-priority-idf-officer-033448347.html)
+- Aug 17 - [Doctor raises red flag amid surge in one type of ER visit: 'Recognition is important'](https://www.yahoo.com/news/articles/doctor-raises-red-flag-amid-030000130.html)
 <!-- feed end -->
 
 ---
