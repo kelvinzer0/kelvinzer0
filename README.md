@@ -29,11 +29,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Antonia Hylton cited reporting from the summit that suggested Karoline Leavitt looked frightened after meeting with Putin.](https://www.yahoo.com/news/videos/antonia-hylton-cited-reporting-summit-044920991.html)
 - Aug 17 - [A decades-old rule lets drivers set speed limits on US roads. That could be changing](https://www.yahoo.com/news/articles/decades-old-rule-lets-drivers-040053353.html)
-- Aug 17 - [31 People Who — Bless Them — Were Way, Way, Way, Way, Way, Way Too Confused For Their Own Good](https://www.yahoo.com/entertainment/articles/31-people-bless-them-were-033102427.html)
 - Aug 17 - [Small plane makes emergency landing on San Diego highway](https://www.yahoo.com/news/articles/small-plane-makes-emergency-landing-013502871.html)
 - Aug 17 - [Hurricane Erin is one of the fastest rapidly intensifying storms in Atlantic history](https://www.yahoo.com/news/articles/hurricane-erin-becomes-category-4-112701815.html)
-- Aug 16 - [The last dance? Organizers of North America's largest powwow say 2026 will be the event's final year](https://www.yahoo.com/news/articles/last-dance-organizers-north-americas-221344207.html)
+- Aug 16 - [Cardiologists Are Begging You To Eat More of This High-Protein Food if You're Over 60](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-more-high-175000320.html)
 <!-- feed end -->
 
 ---
