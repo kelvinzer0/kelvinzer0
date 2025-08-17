@@ -9,8 +9,6 @@ I enjoy the diverse journey within the tech world, from designing efficient back
 Here are some insights into my work and skills:
 
 <p align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=kelvinzer0&show_icons=true&theme=radical" alt="Kelvin's GitHub Stats" />
-  <img src="https://github-readme-streak-stats.herokuapp.com/?user=kelvinzer0&theme=radical" alt="Kelvin's GitHub Streak" />
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=kelvinzer0&layout=compact&theme=radical" alt="Kelvin's Top Languages" />
 </p>
 
