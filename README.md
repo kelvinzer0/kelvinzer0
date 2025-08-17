@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Mother Charged After 14-Year-Old Girl Was Struck ‘Multiple Times’ with Stanley Cup in Attack Outside Summer School](https://www.yahoo.com/news/articles/mother-charged-14-old-girl-112041050.html)
+- Aug 17 - [Photographer stunned as trail camera captures unexpected creature moving through forest: 'I couldn't believe what I saw at first'](https://www.yahoo.com/news/articles/photographer-stunned-trail-camera-captures-100000466.html)
 - Aug 17 - [High-tech drones turn Ukraine's front line into a deadly kill zone, complicating evacuations](https://www.yahoo.com/news/articles/high-tech-drones-turn-ukraines-090643866.html)
-- Aug 17 - [How AI Will Change the Labor Market](https://finance.yahoo.com/video/ai-change-labor-market-080504535.html)
-- Aug 17 - [A decades-old rule lets drivers set speed limits on US roads. That could be changing](https://www.yahoo.com/news/articles/decades-old-rule-lets-drivers-040053353.html)
-- Aug 17 - [He earned a small town's trust. He owed $95 million in what authorities say was a Ponzi scheme](https://finance.yahoo.com/news/earned-small-towns-trust-owed-035214765.html)
-- Aug 17 - [Doctor raises red flag amid surge in one type of ER visit: 'Recognition is important'](https://www.yahoo.com/news/articles/doctor-raises-red-flag-amid-030000130.html)
+- Aug 17 - [MSNBC Host Says Karoline Leavitt Looked ‘Ashen’ After Putin Meeting](https://www.yahoo.com/news/articles/msnbc-host-says-karoline-leavitt-044920313.html)
+- Aug 17 - [31 People Who Brain-Farted So Hard, They Lowkey Forgot How The World Works For A Sec](https://www.yahoo.com/entertainment/articles/31-people-bless-them-were-033102427.html)
 <!-- feed end -->
 
 ---
