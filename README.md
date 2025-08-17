@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Shooting in crowded New York club leaves three dead, nine wounded](https://www.yahoo.com/news/videos/shooting-crowded-york-club-leaves-221442868.html)
-- Aug 17 - [What is the bottom line for the stock market?](https://finance.yahoo.com/news/what-is-the-bottom-line-for-the-stock-market-185741175.html)
-- Aug 17 - [Glimpses Of China’s New Air Combat Drones Emerge Ahead Of Massive Military Parade](https://www.yahoo.com/news/articles/glimpses-china-air-combat-drones-185206200.html)
-- Aug 17 - [Two cruise passengers drowned within hours of each other on Carnival’s new private island in the Bahamas](https://www.yahoo.com/news/articles/two-cruise-passengers-drowned-within-171637080.html)
-- Aug 17 - [California was comfortable, this American woman says, but ‘everyone is much happier’ since the family moved to Spain](https://www.yahoo.com/lifestyle/articles/california-comfortable-american-woman-says-120903818.html)
+- Aug 17 - [Man killed after trying to stop thieves from stealing his car in South L.A., authorities say](https://www.yahoo.com/news/articles/man-killed-trying-stop-thieves-221743872.html)
+- Aug 17 - [New study makes disturbing find about global companies: 'The distribution ... is not random'](https://www.yahoo.com/news/articles/study-makes-disturbing-global-companies-213000333.html)
+- Aug 17 - [Epstein survivor shares stark reminder to parents on why Ghislaine Maxwell deserves her sentence](https://www.yahoo.com/news/videos/epstein-survivor-shares-stark-reminder-211055652.html)
+- Aug 17 - [Americans are hoarding more cash, but not in checking or savings. Here are the accounts rewarding savers today](https://finance.yahoo.com/news/americans-hoarding-more-cash-not-210000368.html)
+- Aug 17 - [Florida beach cities ‘ghost towns’, local businesses down 30% this summer. Has the Sunshine State lost appeal forever?](https://finance.yahoo.com/news/florida-beach-cities-ghost-towns-190000484.html)
 <!-- feed end -->
 
 ---
