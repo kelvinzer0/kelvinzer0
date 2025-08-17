@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Cloudbursts are causing chaos in parts of India and Pakistan. Here's what they are](https://www.yahoo.com/news/articles/cloudbursts-causing-chaos-parts-india-193329671.html)
 - Aug 17 - [Spike Lee Says Trump Should ‘Think Twice’ if He Considers a Federal Takeover of New York: ‘The Boogie-Down? Harlem?’ | Video](https://www.yahoo.com/news/articles/spike-lee-says-trump-shold-191227533.html)
 - Aug 17 - [Florida beach cities ‘ghost towns’, local businesses down 30% this summer. Has the Sunshine State lost appeal forever?](https://finance.yahoo.com/news/florida-beach-cities-ghost-towns-190000484.html)
-- Aug 17 - [CNN pundit Tia Mitchell said the administration had “struggled to find a person of color who would agree to be on the list.”](https://www.yahoo.com/news/videos/cnn-pundit-tia-mitchell-said-183759605.html)
-- Aug 17 - [Two cruise passengers drowned within hours of each other on Carnival’s new private island in the Bahamas](https://www.yahoo.com/news/articles/two-cruise-passengers-drowned-within-171637080.html)
+- Aug 17 - [Experts sound alarm over threat to prized crop that could impact thousands of farmers: 'Demands serious attention'](https://www.yahoo.com/news/articles/experts-sound-alarm-over-threat-190000608.html)
 - Aug 17 - [California was comfortable, this American woman says, but ‘everyone is much happier’ since the family moved to Spain](https://www.yahoo.com/lifestyle/articles/california-comfortable-american-woman-says-120903818.html)
 <!-- feed end -->
 
