@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Mother Charged After 14-Year-Old Girl Was Struck ‘Multiple Times’ with Stanley Cup in Attack Outside Summer School](https://www.yahoo.com/news/articles/mother-charged-14-old-girl-112041050.html)
+- Aug 17 - [There Are Two Other Areas To Watch, Besides Erin](https://www.yahoo.com/news/videos/two-other-areas-watch-besides-122330438.html)
+- Aug 17 - [Voices: Why can’t Palestinian students from Gaza take up their university places in Britain?](https://www.yahoo.com/news/articles/voices-why-t-palestinian-students-084321552.html)
+- Aug 17 - [European leaders to join Ukraine's Zelenskyy for White House meeting with Trump](https://www.yahoo.com/news/articles/european-leaders-join-ukraines-zelenskyy-102558791.html)
 - Aug 17 - [Photographer stunned as trail camera captures unexpected creature moving through forest: 'I couldn't believe what I saw at first'](https://www.yahoo.com/news/articles/photographer-stunned-trail-camera-captures-100000466.html)
 - Aug 17 - [High-tech drones turn Ukraine's front line into a deadly kill zone, complicating evacuations](https://www.yahoo.com/news/articles/high-tech-drones-turn-ukraines-090643866.html)
-- Aug 17 - [MSNBC Host Says Karoline Leavitt Looked ‘Ashen’ After Putin Meeting](https://www.yahoo.com/news/articles/msnbc-host-says-karoline-leavitt-044920313.html)
-- Aug 17 - [31 People Who Brain-Farted So Hard, They Lowkey Forgot How The World Works For A Sec](https://www.yahoo.com/entertainment/articles/31-people-bless-them-were-033102427.html)
 <!-- feed end -->
 
 ---
