@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Spike Lee Says Trump Should ‘Think Twice’ if He Considers a Federal Takeover of New York: ‘The Boogie-Down? Harlem?’ | Video](https://www.yahoo.com/news/articles/spike-lee-says-trump-shold-191227533.html)
+- Aug 17 - [Florida beach cities ‘ghost towns’, local businesses down 30% this summer. Has the Sunshine State lost appeal forever?](https://finance.yahoo.com/news/florida-beach-cities-ghost-towns-190000484.html)
+- Aug 17 - [CNN pundit Tia Mitchell said the administration had “struggled to find a person of color who would agree to be on the list.”](https://www.yahoo.com/news/videos/cnn-pundit-tia-mitchell-said-183759605.html)
+- Aug 17 - [Two cruise passengers drowned within hours of each other on Carnival’s new private island in the Bahamas](https://www.yahoo.com/news/articles/two-cruise-passengers-drowned-within-171637080.html)
 - Aug 17 - [California was comfortable, this American woman says, but ‘everyone is much happier’ since the family moved to Spain](https://www.yahoo.com/lifestyle/articles/california-comfortable-american-woman-says-120903818.html)
-- Aug 17 - [Boy, 2, dies after car hits pedestrians](https://www.yahoo.com/news/articles/boy-2-dies-car-hits-151341773.html)
-- Aug 17 - [Three dead, eight wounded in mass shooting at Brooklyn lounge](https://www.yahoo.com/news/articles/three-dead-eight-wounded-mass-173300316.html)
-- Aug 17 - [Settler attack leaves properties in flames in Al Mughayyir village in West Bank](https://www.yahoo.com/news/videos/settler-attack-leaves-properties-flames-170335710.html)
-- Aug 17 - [Officials stunned after tapping into well of limitless power source: 'An age of vibrant ... energy'](https://www.yahoo.com/news/articles/officials-stunned-tapping-well-limitless-160000322.html)
 <!-- feed end -->
 
 ---
