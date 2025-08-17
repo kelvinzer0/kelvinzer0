@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Herzog demands release of hostages held in Gaza, as relatives and supporters gather in Tel Aviv](https://www.yahoo.com/news/videos/herzog-demands-release-hostages-held-094510281.html)
+- Aug 17 - [High-tech drones turn Ukraine's front line into a deadly kill zone, complicating evacuations](https://www.yahoo.com/news/articles/high-tech-drones-turn-ukraines-090643866.html)
+- Aug 17 - [How AI Will Change the Labor Market](https://finance.yahoo.com/video/ai-change-labor-market-080504535.html)
 - Aug 17 - [A decades-old rule lets drivers set speed limits on US roads. That could be changing](https://www.yahoo.com/news/articles/decades-old-rule-lets-drivers-040053353.html)
+- Aug 17 - [He earned a small town's trust. He owed $95 million in what authorities say was a Ponzi scheme](https://finance.yahoo.com/news/earned-small-towns-trust-owed-035214765.html)
 - Aug 17 - [Doctor raises red flag amid surge in one type of ER visit: 'Recognition is important'](https://www.yahoo.com/news/articles/doctor-raises-red-flag-amid-030000130.html)
-- Aug 17 - [Small plane makes emergency landing on San Diego highway](https://www.yahoo.com/news/articles/small-plane-makes-emergency-landing-013502871.html)
-- Aug 16 - [Trump’s reciprocal tariffs could be struck down as soon as this month — and the administration is warning of economic apocalypse](https://finance.yahoo.com/news/trump-reciprocal-tariffs-could-struck-224600555.html)
 <!-- feed end -->
 
 ---
