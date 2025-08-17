@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [California was comfortable, this American woman says, but ‘everyone is much happier’ since the family moved to Spain](https://www.yahoo.com/lifestyle/articles/california-comfortable-american-woman-says-120903818.html)
+- Aug 17 - [Boy, 2, dies after car hits pedestrians](https://www.yahoo.com/news/articles/boy-2-dies-car-hits-151341773.html)
+- Aug 17 - [Three dead, eight wounded in mass shooting at Brooklyn lounge](https://www.yahoo.com/news/articles/three-dead-eight-wounded-mass-173300316.html)
 - Aug 17 - [Settler attack leaves properties in flames in Al Mughayyir village in West Bank](https://www.yahoo.com/news/videos/settler-attack-leaves-properties-flames-170335710.html)
-- Aug 17 - [Voices: Why can’t Palestinian students from Gaza take up their university places in Britain?](https://www.yahoo.com/news/articles/voices-why-t-palestinian-students-084321552.html)
-- Aug 17 - [Fire burns apartment complex in East Lansing](https://www.yahoo.com/news/articles/fire-burns-apartment-complex-east-154731306.html)
-- Aug 17 - [Putin agrees that US, Europe could offer NATO-style security guarantees to Ukraine, Trump envoy says](https://www.yahoo.com/news/articles/us-envoy-says-putin-agreed-134023096.html)
-- Aug 17 - ['The risk that's on our doorstep': July inflation data has economists on edge](https://finance.yahoo.com/news/the-risk-thats-on-our-doorstep-july-inflation-data-has-economists-on-edge-133057270.html)
+- Aug 17 - [Officials stunned after tapping into well of limitless power source: 'An age of vibrant ... energy'](https://www.yahoo.com/news/articles/officials-stunned-tapping-well-limitless-160000322.html)
 <!-- feed end -->
 
 ---
