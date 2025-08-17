@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 17 - [Settler attack leaves properties in flames in Al Mughayyir village in West Bank](https://www.yahoo.com/news/videos/settler-attack-leaves-properties-flames-170335710.html)
 - Aug 17 - [Voices: Why can’t Palestinian students from Gaza take up their university places in Britain?](https://www.yahoo.com/news/articles/voices-why-t-palestinian-students-084321552.html)
-- Aug 17 - [Syria’s Sharaa hopes for Kurdish deal to prevent conflict](https://www.yahoo.com/news/articles/syria-sharaa-hopes-kurdish-deal-164652643.html)
-- Aug 17 - [Putin agreed to let US, Europe offer NATO-style security protections for Ukraine, Trump envoy says](https://www.yahoo.com/news/articles/us-envoy-says-putin-agreed-134023096.html)
+- Aug 17 - [Fire burns apartment complex in East Lansing](https://www.yahoo.com/news/articles/fire-burns-apartment-complex-east-154731306.html)
+- Aug 17 - [Putin agrees that US, Europe could offer NATO-style security guarantees to Ukraine, Trump envoy says](https://www.yahoo.com/news/articles/us-envoy-says-putin-agreed-134023096.html)
 - Aug 17 - ['The risk that's on our doorstep': July inflation data has economists on edge](https://finance.yahoo.com/news/the-risk-thats-on-our-doorstep-july-inflation-data-has-economists-on-edge-133057270.html)
-- Aug 17 - [Twenty years ago, my research exposed one of the biggest corporate scandals in U.S. history: It taught me that fraud is everywhere, just waiting to be revealed](https://finance.yahoo.com/news/twenty-years-ago-research-exposed-130000496.html)
 <!-- feed end -->
 
 ---
