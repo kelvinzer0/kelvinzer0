@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [Air Canada grounded as striking cabin crews defy back-to-work order](https://www.yahoo.com/news/articles/air-canada-grounded-striking-cabin-070625427.html)
 - Aug 18 - [Man, 27, drowns while swimming in popular beauty spot](https://www.yahoo.com/news/articles/man-27-drowns-while-swimming-073955158.html)
 - Aug 18 - [Netflix has removed the most brutal film of the last 10 years](https://www.yahoo.com/news/articles/netflix-removing-most-brutal-film-063620876.html)
-- Aug 18 - [Air Canada grounded as striking cabin crews defy back-to-work order](https://www.yahoo.com/news/articles/air-canada-grounded-striking-cabin-070625427.html)
-- Aug 18 - [Mered CEO on Factors Driving Dubai Property Boom](https://finance.yahoo.com/video/mered-ceo-factors-driving-dubai-064904464.html)
-- Aug 18 - [US adviser Navarro says India's Russian crude buying must stop](https://finance.yahoo.com/news/us-adviser-navarro-says-indias-050907491.html)
+- Aug 18 - [Oliver pointed to a surprise source in his latest monologue.](https://www.yahoo.com/news/videos/senior-white-house-correspondent-jacqui-043826600.html)
+- Aug 18 - [Air traffic control team members outraged after shocking image leaks from annual union trip: 'Needs to be investigated'](https://www.yahoo.com/news/articles/air-traffic-control-team-members-040000539.html)
 <!-- feed end -->
 
 ---
