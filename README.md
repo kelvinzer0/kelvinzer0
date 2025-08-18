@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [See all homes sold in Union County, Aug. 11 to Aug. 17](https://www.yahoo.com/news/articles/see-homes-sold-union-county-121801182.html)
+- Aug 18 - [3 Genius Artificial Intelligence (AI) Stocks to Buy in August](https://finance.yahoo.com/news/3-genius-artificial-intelligence-ai-113000952.html)
 - Aug 18 - [Alaskan man gifted new motorcycle by Putin during Trump summit](https://www.yahoo.com/news/articles/alaskan-man-gifted-motorcycle-putin-110546843.html)
-- Aug 18 - [Australia cancels far-right Israeli lawmaker's visa](https://www.yahoo.com/news/articles/australia-cancels-far-israeli-lawmakers-100211768.html)
+- Aug 18 - ['Horrific situation': Illegal migrant truck driver with California license arrested after deadly crash](https://www.yahoo.com/news/videos/horrific-situation-illegal-migrant-truck-105934980.html)
 - Aug 18 - [India recommends import tariffs for three years on some steel products](https://finance.yahoo.com/news/india-recommends-import-tariffs-three-095434278.html)
-- Aug 18 - [AT&T salaries revealed: How much the telecom giant pays designers, software engineers, and other tech workers](https://finance.yahoo.com/news/t-salaries-revealed-much-telecom-094801872.html)
-- Aug 18 - [What Happens to Your Social Security Benefit When Your Spouse Dies? Every Retired Couple Needs to Know.](https://finance.yahoo.com/news/happens-social-security-benefit-spouse-074800469.html)
 <!-- feed end -->
 
 ---
