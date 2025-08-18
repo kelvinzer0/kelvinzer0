@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [NYPD, prosecutorial misconduct court settlement payouts exceed $77 million, Legal Aid report says](https://www.yahoo.com/news/articles/nypd-prosecutorial-misconduct-court-settlement-170400321.html)
+- Aug 18 - [Why Cathie Wood's ARK Invest And Others Are Betting On Pony.AI](https://finance.yahoo.com/news/why-cathie-woods-ark-invest-161813691.html)
 - Aug 18 - [Conservative network Newsmax agrees to pay $67M in defamation case over bogus 2020 election claims](https://www.yahoo.com/news/articles/newsmax-agrees-pay-67m-settlement-154603217.html)
 - Aug 18 - [New York City police reopen Times Square after brief investigation](https://www.yahoo.com/news/articles/york-city-police-avoid-times-154149075.html)
 - Aug 18 - [Son of Norway princess charged with four rapes](https://www.yahoo.com/news/articles/son-norway-princess-charged-four-150611651.html)
-- Aug 18 - [Prosecutors indict the son of Norway's crown princess on multiple counts including rape](https://www.yahoo.com/news/articles/prosecutors-indict-son-norways-crown-143302744.html)
-- Aug 18 - [Atlanta courtroom thrown into chaos after judge mistakenly delivers guilty verdict in Deputy shooting case](https://www.yahoo.com/news/videos/atlanta-courtroom-thrown-chaos-judge-140333513.html)
 <!-- feed end -->
 
 ---
