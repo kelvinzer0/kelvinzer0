@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Oliver pointed to a surprise source in his latest monologue.](https://www.yahoo.com/news/videos/senior-white-house-correspondent-jacqui-043826600.html)
 - Aug 18 - [Experts warn once-contained disease has returned 'with a vengeance': 'Lives will be lost'](https://www.yahoo.com/news/articles/experts-warn-once-contained-disease-030000128.html)
+- Aug 18 - [Iran can strike US cities from the sea, claims all of Europe already within range, Iranian MP says](https://www.yahoo.com/news/articles/iran-strike-us-cities-sea-025440128.html)
 - Aug 18 - [Tesla owners gut-punched after receiving unexpected notice from insurance company: 'Mind you, zero accidents in my life'](https://finance.yahoo.com/news/tesla-owners-gut-punched-receiving-004500233.html)
-- Aug 18 - [She fell in love with traditional Japanese homes during a high school trip. At 24, she bought one in the countryside.](https://www.yahoo.com/lifestyle/articles/she-fell-love-traditional-japanese-001401582.html)
 - Aug 17 - [Peter Alexander said President Donald Trump’s aides’ “eyes were wide” when they left the meeting with Russian President Vladimir Putin.](https://www.yahoo.com/news/videos/peter-alexander-said-president-donald-212351896.html)
+- Aug 17 - [Trump Vows MSNBC Host ‘Will Be Fired’ in Truth Social Rampage](https://www.yahoo.com/news/articles/trump-vows-msnbc-host-fired-194426169.html)
 <!-- feed end -->
 
 ---
