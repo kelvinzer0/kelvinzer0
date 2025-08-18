@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 17 - [Man killed after trying to stop thieves from stealing his car in South L.A., authorities say](https://www.yahoo.com/news/articles/man-killed-trying-stop-thieves-221743872.html)
-- Aug 17 - [New study makes disturbing find about global companies: 'The distribution ... is not random'](https://www.yahoo.com/news/articles/study-makes-disturbing-global-companies-213000333.html)
+- Aug 18 - [Qantas fined $58 million over illegally sacking 1,800 workers during pandemic](https://www.yahoo.com/news/articles/qantas-fined-58-million-over-013408205.html)
+- Aug 18 - [Church Leader Shot in Apparent Home Invasion. Then, His Wife Texted ‘We Need Prayers Immediately’ to Their Family](https://www.yahoo.com/news/articles/church-leader-shot-apparent-home-000950565.html)
+- Aug 17 - ['100 Foot' Waves Are Reportedly Heading For The U.S.](https://www.yahoo.com/news/articles/100-foot-waves-reportedly-heading-233014062.html)
+- Aug 17 - [Woman Rushes Stray Cat to Vet After It's Hit by Truck. Days Later, She Gets Unexpected Call (Exclusive)](https://www.yahoo.com/lifestyle/articles/woman-rushes-stray-cat-vet-213000621.html)
 - Aug 17 - [Epstein survivor shares stark reminder to parents on why Ghislaine Maxwell deserves her sentence](https://www.yahoo.com/news/videos/epstein-survivor-shares-stark-reminder-211055652.html)
-- Aug 17 - [Americans are hoarding more cash, but not in checking or savings. Here are the accounts rewarding savers today](https://finance.yahoo.com/news/americans-hoarding-more-cash-not-210000368.html)
-- Aug 17 - [Florida beach cities ‘ghost towns’, local businesses down 30% this summer. Has the Sunshine State lost appeal forever?](https://finance.yahoo.com/news/florida-beach-cities-ghost-towns-190000484.html)
 <!-- feed end -->
 
 ---
