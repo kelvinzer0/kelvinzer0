@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Durbin Park bathroom’s vandalized again, local baseball league wants answers](https://www.yahoo.com/news/articles/durbin-park-bathroom-vandalized-again-194105670.html)
+- Aug 18 - [Matthew Perry’s ‘Ketamine Queen’ Drug Dealer to Plead Guilty in Accidental Overdose Case](https://www.yahoo.com/entertainment/articles/matthew-perry-ketamine-queen-drug-204326721.html)
+- Aug 18 - [Judge issues injunction preventing Trump's FTC from investigating watchdog Media Matters](https://www.yahoo.com/news/articles/judge-issues-injunction-preventing-trumps-203408312.html)
+- Aug 18 - [EV Pickups Are a Bust for US Carmakers](https://finance.yahoo.com/video/ev-pickups-bust-us-carmakers-194353507.html)
 - Aug 18 - ['Ketamine Queen' accused of selling fatal dose to Matthew Perry agrees to plead guilty](https://www.yahoo.com/news/articles/ketamine-queen-accused-selling-fatal-194022250.html)
 - Aug 18 - [Zelenskyy Gets Snarky After Marjorie Taylor Greene's Boyfriend Remarks On His Suit](https://www.yahoo.com/news/articles/zelenskyy-gets-snarky-marjorie-taylor-193909655.html)
-- Aug 18 - [Hollie Strano, former WKYC TV meteorologist, gets new gig in Stark County](https://www.yahoo.com/news/articles/hollie-strano-former-wkyc-tv-191229953.html)
-- Aug 18 - [Zelenskiy dons more formal attire for high-stakes meeting with Trump](https://www.yahoo.com/news/articles/zelenskiy-dons-more-formal-attire-191037653.html)
 <!-- feed end -->
 
 ---
