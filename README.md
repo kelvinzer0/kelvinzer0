@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Swatch pulls ‘slanted eyes’ ad campaign after backlash](https://finance.yahoo.com/news/swatch-pulls-slanted-eyes-ad-101640602.html)
-- Aug 18 - [Interested in Little Lake Butte des Morts? Advocates are exploring ways to protect the lake](https://www.yahoo.com/news/articles/interested-little-lake-butte-des-100303665.html)
-- Aug 18 - [Leaked recording reveals ex-Israeli military intelligence chief calling 50,000 deaths in Gaza ‘necessary’](https://www.yahoo.com/news/articles/leaked-recording-reveals-ex-israeli-100004531.html)
-- Aug 18 - [Taiwan 'issue' is an internal matter, China says in response to Trump](https://www.yahoo.com/news/articles/china-says-prepared-great-effort-073110054.html)
-- Aug 18 - [Air traffic control team members outraged after shocking image leaks from annual union trip: 'Needs to be investigated'](https://www.yahoo.com/news/articles/air-traffic-control-team-members-040000539.html)
+- Aug 18 - [Alaskan man gifted new motorcycle by Putin during Trump summit](https://www.yahoo.com/news/articles/alaskan-man-gifted-motorcycle-putin-110546843.html)
+- Aug 18 - [Australia cancels far-right Israeli lawmaker's visa](https://www.yahoo.com/news/articles/australia-cancels-far-israeli-lawmakers-100211768.html)
+- Aug 18 - [India recommends import tariffs for three years on some steel products](https://finance.yahoo.com/news/india-recommends-import-tariffs-three-095434278.html)
+- Aug 18 - [AT&T salaries revealed: How much the telecom giant pays designers, software engineers, and other tech workers](https://finance.yahoo.com/news/t-salaries-revealed-much-telecom-094801872.html)
+- Aug 18 - [What Happens to Your Social Security Benefit When Your Spouse Dies? Every Retired Couple Needs to Know.](https://finance.yahoo.com/news/happens-social-security-benefit-spouse-074800469.html)
 <!-- feed end -->
 
 ---
