@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Democratic-led states sue over Trump restrictions on crime victim grants](https://www.yahoo.com/news/articles/democratic-led-states-sue-over-145836835.html)
-- Aug 18 - [Burkina Faso declares UN coordinator persona non grata](https://www.yahoo.com/news/articles/burkina-faso-declares-un-coordinator-145141168.html)
-- Aug 18 - [Young Thug to get back items seized during YSL investigation](https://www.yahoo.com/entertainment/articles/young-thug-back-items-seized-143437761.html)
-- Aug 18 - [Son of Norway's crown princess charged with rape and domestic violence](https://www.yahoo.com/news/articles/son-norways-crown-princess-charged-140232668.html)
-- Aug 18 - [Cable's MSNBC will change its name later this year as part of corporate divorce from NBC](https://www.yahoo.com/news/articles/cables-msnbc-change-name-later-131422684.html)
+- Aug 18 - [Conservative network Newsmax agrees to pay $67M in defamation case over bogus 2020 election claims](https://www.yahoo.com/news/articles/newsmax-agrees-pay-67m-settlement-154603217.html)
+- Aug 18 - [New York City police reopen Times Square after brief investigation](https://www.yahoo.com/news/articles/york-city-police-avoid-times-154149075.html)
+- Aug 18 - [Son of Norway princess charged with four rapes](https://www.yahoo.com/news/articles/son-norway-princess-charged-four-150611651.html)
+- Aug 18 - [Prosecutors indict the son of Norway's crown princess on multiple counts including rape](https://www.yahoo.com/news/articles/prosecutors-indict-son-norways-crown-143302744.html)
+- Aug 18 - [Atlanta courtroom thrown into chaos after judge mistakenly delivers guilty verdict in Deputy shooting case](https://www.yahoo.com/news/videos/atlanta-courtroom-thrown-chaos-judge-140333513.html)
 <!-- feed end -->
 
 ---
