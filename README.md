@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Ismael 'El Mayo' Zambada, alleged Mexican drug lord, set to plead guilty](https://www.yahoo.com/news/articles/ismael-el-mayo-zambada-alleged-175339817.html)
-- Aug 18 - [2 police officers die in hail of bullets after responding to home](https://www.yahoo.com/news/articles/3-officers-injured-shooting-utah-083600192.html)
+- Aug 18 - [Billboards in Tallahassee spotlight rising antisemitism on college campuses](https://www.yahoo.com/news/articles/billboards-tallahassee-spotlight-rising-antisemitism-182421274.html)
+- Aug 18 - [Vaccine panel fired by Kennedy had lowest rate of financial conflicts since 2000, study shows](https://www.yahoo.com/news/articles/vaccine-panel-fired-kennedy-had-181859732.html)
+- Aug 18 - [The Ukrainian leader made his first concession to President Donald Trump after White House officials reportedly put pressure on him to wear a suit.](https://www.yahoo.com/news/videos/ukrainian-leader-made-first-concession-173334138.html)
 - Aug 18 - [Former Sinaloa cartel kingpin Ismael 'El Mayo' Zambada set to plead guilty](https://www.yahoo.com/news/articles/former-sinaloa-cartel-kingpin-ismael-162721300.html)
-- Aug 18 - [Mass. man facing DUI charges after driving wrong way on I-93 in NH](https://www.yahoo.com/news/articles/mass-man-facing-dui-charges-161010352.html)
-- Aug 18 - [Conservative network Newsmax agrees to pay $67M in defamation case over bogus 2020 election claims](https://www.yahoo.com/news/articles/newsmax-agrees-pay-67m-settlement-154603217.html)
+- Aug 18 - [Ex-Google exec says degrees in law and medicine are a waste of time because they take so long to complete that AI will catch up by graduation](https://www.yahoo.com/news/articles/ex-google-exec-says-degrees-161625876.html)
 <!-- feed end -->
 
 ---
