@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Air Canada grounded as striking cabin crews defy back-to-work order](https://www.yahoo.com/news/articles/air-canada-grounded-striking-cabin-070625427.html)
-- Aug 18 - [Man, 27, drowns while swimming in popular beauty spot](https://www.yahoo.com/news/articles/man-27-drowns-while-swimming-073955158.html)
-- Aug 18 - [Netflix has removed the most brutal film of the last 10 years](https://www.yahoo.com/news/articles/netflix-removing-most-brutal-film-063620876.html)
+- Aug 18 - [President Trump wants to take Fannie Mae and Freddie Mac public. The plan has some problems.](https://finance.yahoo.com/news/president-trump-wants-to-take-fannie-mae-and-freddie-mac-public-the-plan-has-some-problems-100041330.html)
+- Aug 18 - [Best CD rates today, August 18, 2025 (Lock in up to 5.5% APY)](https://finance.yahoo.com/personal-finance/banking/article/best-cd-rates-today-monday-august-18-2025-100008327.html)
 - Aug 18 - [Oliver pointed to a surprise source in his latest monologue.](https://www.yahoo.com/news/videos/senior-white-house-correspondent-jacqui-043826600.html)
-- Aug 18 - [Air traffic control team members outraged after shocking image leaks from annual union trip: 'Needs to be investigated'](https://www.yahoo.com/news/articles/air-traffic-control-team-members-040000539.html)
+- Aug 18 - [Experts warn once-contained disease has returned 'with a vengeance': 'Lives will be lost'](https://www.yahoo.com/news/articles/experts-warn-once-contained-disease-030000128.html)
+- Aug 18 - [Tesla owners gut-punched after receiving unexpected notice from insurance company: 'Mind you, zero accidents in my life'](https://finance.yahoo.com/news/tesla-owners-gut-punched-receiving-004500233.html)
 <!-- feed end -->
 
 ---
