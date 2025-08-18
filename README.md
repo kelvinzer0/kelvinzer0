@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [See all homes sold in Union County, Aug. 11 to Aug. 17](https://www.yahoo.com/news/articles/see-homes-sold-union-county-121801182.html)
-- Aug 18 - [3 Genius Artificial Intelligence (AI) Stocks to Buy in August](https://finance.yahoo.com/news/3-genius-artificial-intelligence-ai-113000952.html)
-- Aug 18 - [Alaskan man gifted new motorcycle by Putin during Trump summit](https://www.yahoo.com/news/articles/alaskan-man-gifted-motorcycle-putin-110546843.html)
-- Aug 18 - ['Horrific situation': Illegal migrant truck driver with California license arrested after deadly crash](https://www.yahoo.com/news/videos/horrific-situation-illegal-migrant-truck-105934980.html)
-- Aug 18 - [India recommends import tariffs for three years on some steel products](https://finance.yahoo.com/news/india-recommends-import-tariffs-three-095434278.html)
+- Aug 18 - [Top Republican under fire for suggesting Trump get third term and run DC for ‘as long as he wants’](https://www.yahoo.com/news/articles/top-republican-under-fire-suggesting-131914817.html)
+- Aug 18 - [Ocean City Fire Department responds to scene of pedestrian struck by vehicle. What we know](https://www.yahoo.com/news/articles/ocean-city-fire-department-responds-131640615.html)
+- Aug 18 - [Cable's MSNBC will change its name later this year as part of corporate divorce from NBC](https://www.yahoo.com/news/articles/cables-msnbc-change-name-later-131422684.html)
+- Aug 18 - [Russian general seriously wounded on front line, regional leader says](https://www.yahoo.com/news/articles/russian-general-seriously-wounded-front-124436101.html)
+- Aug 18 - [Tesla says Model Y L is 'coming soon'](https://finance.yahoo.com/news/tesla-says-model-y-l-123326054.html)
 <!-- feed end -->
 
 ---
