@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 18 - [US archbishop's meeting with Putin denounced as 'betrayal of Christian witness'](https://www.yahoo.com/news/articles/us-archbishops-meeting-putin-denounced-223230423.html)
+- Aug 18 - [2nd Wyoming airman in a month is accused of manslaughter after a fatal shooting](https://www.yahoo.com/news/articles/2nd-wyoming-airman-month-accused-221152447.html)
+- Aug 18 - [Trump Critics Should Stop Treating Diplomacy Like a Gift to America's Enemies](https://www.yahoo.com/news/articles/trump-critics-stop-treating-diplomacy-215355544.html)
 - Aug 18 - [Michael Proctor kept on ‘full duty’ months after state police learned of profane texts](https://www.yahoo.com/news/articles/michael-proctor-kept-full-duty-204237994.html)
 - Aug 18 - [Iowa US Senate candidate ends bid to run against Republican incumbent Joni Ernst](https://www.yahoo.com/news/articles/iowa-us-senate-candidate-ends-212932328.html)
-- Aug 18 - [Spain’s King Felipe Ends Summer Vacation Early Due to National Emergency](https://www.yahoo.com/news/articles/spain-king-felipe-ends-summer-205624106.html)
-- Aug 18 - [Trump vows to change how elections are run. The US Constitution doesn't give him that power](https://www.yahoo.com/news/articles/trump-vows-change-elections-run-202431817.html)
-- Aug 18 - ['Ketamine Queen' accused of selling fatal dose to Matthew Perry agrees to plead guilty](https://www.yahoo.com/news/articles/ketamine-queen-accused-selling-fatal-194022250.html)
 <!-- feed end -->
 
 ---
