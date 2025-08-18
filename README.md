@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 18 - [Matthew Perry’s ‘Ketamine Queen’ Drug Dealer to Plead Guilty in Accidental Overdose Case](https://www.yahoo.com/entertainment/articles/matthew-perry-ketamine-queen-drug-204326721.html)
-- Aug 18 - [Judge issues injunction preventing Trump's FTC from investigating watchdog Media Matters](https://www.yahoo.com/news/articles/judge-issues-injunction-preventing-trumps-203408312.html)
-- Aug 18 - [EV Pickups Are a Bust for US Carmakers](https://finance.yahoo.com/video/ev-pickups-bust-us-carmakers-194353507.html)
+- Aug 18 - [Michael Proctor kept on ‘full duty’ months after state police learned of profane texts](https://www.yahoo.com/news/articles/michael-proctor-kept-full-duty-204237994.html)
+- Aug 18 - [Iowa US Senate candidate ends bid to run against Republican incumbent Joni Ernst](https://www.yahoo.com/news/articles/iowa-us-senate-candidate-ends-212932328.html)
+- Aug 18 - [Spain’s King Felipe Ends Summer Vacation Early Due to National Emergency](https://www.yahoo.com/news/articles/spain-king-felipe-ends-summer-205624106.html)
+- Aug 18 - [Trump vows to change how elections are run. The US Constitution doesn't give him that power](https://www.yahoo.com/news/articles/trump-vows-change-elections-run-202431817.html)
 - Aug 18 - ['Ketamine Queen' accused of selling fatal dose to Matthew Perry agrees to plead guilty](https://www.yahoo.com/news/articles/ketamine-queen-accused-selling-fatal-194022250.html)
-- Aug 18 - [Zelenskyy Gets Snarky After Marjorie Taylor Greene's Boyfriend Remarks On His Suit](https://www.yahoo.com/news/articles/zelenskyy-gets-snarky-marjorie-taylor-193909655.html)
 <!-- feed end -->
 
 ---
