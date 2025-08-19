@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 19 - [Trump Attacks Smithsonian For Focus On 'How Bad Slavery Was' And, Boy, The Responses](https://www.yahoo.com/news/articles/trump-attacks-smithsonian-focus-bad-221253591.html)
 - Aug 19 - [Delta, United sued for selling windowless 'window seats'](https://finance.yahoo.com/news/delta-united-sued-selling-windowless-211317184.html)
+- Aug 19 - [Authorities identify family members found dead in murder-suicide at New Hampshire home](https://www.yahoo.com/news/articles/authorities-identify-family-members-found-171311450.html)
 - Aug 19 - [Trump administration revokes security clearances of 37 current and former government officials](https://www.yahoo.com/news/articles/trump-administration-revokes-security-clearances-200621061.html)
 - Aug 19 - [Nvidia is the most underowned megacap stock, Morgan Stanley says](https://finance.yahoo.com/news/nvidia-is-the-most-underowned-megacap-stock-morgan-stanley-says-181655265.html)
-- Aug 19 - [Elon Musk’s teen prodigy Kairan Quazi is ditching SpaceX for billionaire Ken Griffin’s Citadel Securities](https://finance.yahoo.com/news/elon-musk-teen-prodigy-kairan-165505423.html)
-- Aug 19 - [Florida is now the 2nd most financially distressed state in the US — topped only by Texas, Google helps reveal](https://finance.yahoo.com/news/florida-now-2nd-most-financially-164500255.html)
 <!-- feed end -->
 
 ---
