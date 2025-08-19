@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Democratic Texas lawmaker spent night on state House floor after refusing GOP demand for law enforcement escort](https://www.yahoo.com/news/articles/democratic-texas-lawmaker-spending-night-050525679.html)
-- Aug 19 - [2 Dividend Stocks to Double Up on Right Now](https://finance.yahoo.com/news/2-dividend-stocks-double-now-114500573.html)
-- Aug 19 - [3 new flights take off from Memphis airport in September: Here is where they'll take you](https://www.yahoo.com/news/articles/3-flights-off-memphis-airport-100056805.html)
+- Aug 19 - [The suspect in a car-ramming attack on a German Christmas market is charged with murder](https://www.yahoo.com/news/articles/suspect-car-ramming-attack-german-135557858.html)
+- Aug 19 - [Tesla owner shares frustrating photos of disturbing trend growing across the country: 'This won't be the last time this will happen'](https://www.yahoo.com/lifestyle/articles/tesla-owner-shares-frustrating-photos-112000961.html)
+- Aug 19 - [Israel's Netanyahu says 'weak' Australian PM abandoned Jewish community](https://www.yahoo.com/news/articles/israels-netanyahu-says-weak-australian-111241253.html)
+- Aug 19 - [Mortgage and refinance interest rates today, August 19, 2025: A notch higher and a notch lower](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-tuesday-august-19-2025-100018473.html)
 - Aug 19 - [Officials issue warning about small pink blobs spreading across state: 'One of world's worst'](https://www.yahoo.com/news/articles/officials-issue-warning-small-pink-090000300.html)
-- Aug 19 - [The president has made a string of similar baffling slip-ups at the White House.](https://www.yahoo.com/news/videos/president-looked-around-table-president-085428334.html)
 <!-- feed end -->
 
 ---
