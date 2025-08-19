@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - ['A big relief': Ex-Hong Kong lawmaker granted asylum by Australia](https://www.yahoo.com/news/videos/big-relief-ex-hong-kong-075246742.html)
-- Aug 19 - [Russia's Medvedev says 'coalition of the willing' failed to outplay Trump](https://www.yahoo.com/news/articles/russias-medvedev-says-coalition-willing-070114364.html)
+- Aug 19 - [Residents in Birmingham paint St George’s Cross on mini-roundabouts amid flag dispute](https://www.yahoo.com/news/videos/residents-birmingham-paint-st-george-091504477.html)
 - Aug 19 - [Family of father on run for years with three children in dense wilderness urges him to come home](https://www.yahoo.com/news/articles/family-father-run-years-three-061826556.html)
+- Aug 19 - [Why Iran's Revolutionary Guard Is More Critical Than Ever](https://finance.yahoo.com/video/why-irans-revolutionary-guard-more-045209912.html)
+- Aug 19 - [India removes import duty on cotton in temporary relief for garment industry](https://finance.yahoo.com/news/india-removes-import-duty-cotton-040846497.html)
 - Aug 19 - [Years after abuse reports, ex-coach at renowned US gymnastics academy is arrested by FBI](https://www.yahoo.com/news/articles/years-abuse-reports-ex-coach-040721538.html)
-- Aug 19 - [Florida man convicted of killing a woman abducted from an insurance office is set to be executed](https://www.yahoo.com/news/articles/florida-man-convicted-killing-woman-033550075.html)
 <!-- feed end -->
 
 ---
