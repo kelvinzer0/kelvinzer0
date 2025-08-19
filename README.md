@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [NYC woman found a phone buried in her lawn — and police say it’s a new tactic thieves use to spy on homeowners](https://www.yahoo.com/news/articles/nyc-woman-found-phone-buried-173500177.html)
+- Aug 19 - [Married Teachers Die in Crash While Dropping Son Off at College, and Their 2 Younger Kids Barely Survive](https://www.yahoo.com/news/articles/married-teachers-die-crash-while-183906933.html)
+- Aug 19 - [US appeals court puts the brakes on contested land transfer for Arizona copper mine](https://www.yahoo.com/news/articles/us-appeals-court-puts-brakes-182809871.html)
 - Aug 19 - [Florida is now the 2nd most financially distressed state in the US — topped only by Texas, Google helps reveal](https://finance.yahoo.com/news/florida-now-2nd-most-financially-164500255.html)
 - Aug 19 - [This conversation is being recorded: Trump's hot mic moment is the latest in a long global list](https://www.yahoo.com/news/articles/conversation-being-recorded-trumps-hot-163032388.html)
-- Aug 19 - [US destroyers head toward waters off Venezuela as Trump aims to pressure drug cartels](https://www.yahoo.com/news/articles/us-destroyers-head-toward-waters-155443024.html)
-- Aug 19 - [‘You’re going to regret this’: Bodycam video shows prosecutor’s arrest at New England restaurant](https://www.yahoo.com/news/articles/going-regret-bodycam-video-shows-155146394.html)
+- Aug 19 - [Map: How much of the $643M Powerball jackpot would you lose to taxes?](https://finance.yahoo.com/news/map-much-643m-powerball-jackpot-162347774.html)
 <!-- feed end -->
 
 ---
