@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Americans fear AI permanently displacing workers, Reuters/Ipsos poll finds](https://finance.yahoo.com/news/americans-fear-ai-permanently-displacing-100311062.html)
-- Aug 19 - ['A big relief': Ex-Hong Kong lawmaker granted asylum by Australia](https://www.yahoo.com/news/videos/big-relief-ex-hong-kong-093442787.html)
+- Aug 19 - [Home Depot's sales improve as customers stay focused on smaller projects](https://finance.yahoo.com/news/home-depots-sales-improve-customers-102727698.html)
+- Aug 19 - [Confusion reigns as Texas colleges scramble to comply with ban on in-state tuition for undocumented students](https://www.yahoo.com/news/articles/confusion-reigns-texas-colleges-scramble-100000765.html)
 - Aug 19 - [Officials issue warning about small pink blobs spreading across state: 'One of world's worst'](https://www.yahoo.com/news/articles/officials-issue-warning-small-pink-090000300.html)
+- Aug 19 - [Warren Buffett's Berkshire Hathaway Just Exited Its Stake in T-Mobile and Loaded Up on an Artificial Intelligence (AI) Infrastructure Stock That's Risen 7,850% Since Its IPO](https://finance.yahoo.com/news/warren-buffetts-berkshire-hathaway-just-072700755.html)
 - Aug 19 - [Russia's Medvedev says 'coalition of the willing' failed to outplay Trump](https://www.yahoo.com/news/articles/russias-medvedev-says-coalition-willing-070114364.html)
-- Aug 19 - [Family of father on run for years with three children in dense wilderness urges him to come home](https://www.yahoo.com/news/articles/family-father-run-years-three-061826556.html)
 <!-- feed end -->
 
 ---
