@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Tesla starts taking orders for its new Model Y L in China from around $47,200](https://finance.yahoo.com/news/tesla-launches-model-y-l-001921990.html)
 - Aug 19 - [Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders](https://www.yahoo.com/news/articles/kohbergers-sexist-creepy-behavior-alarmed-001314387.html)
-- Aug 19 - [French President Emmanuel Macron responds to Trump's comments about a Ukraine deal from Putin](https://www.yahoo.com/news/videos/french-president-emmanuel-macron-responds-001041440.html)
-- Aug 18 - [‘We are arresting the mayor right now, per the deputy attorney general’](https://www.yahoo.com/news/articles/arresting-mayor-now-per-deputy-231523945.html)
 - Aug 18 - [Beshear bans drug in Kentucky that's being targeted by attorneys general across the nation](https://www.yahoo.com/news/articles/beshear-bans-drug-kentucky-thats-225145329.html)
+- Aug 18 - [US archbishop's meeting with Putin denounced as 'betrayal of Christian witness'](https://www.yahoo.com/news/articles/us-archbishops-meeting-putin-denounced-223230423.html)
+- Aug 18 - [2nd Wyoming airman in a month is accused of manslaughter after a fatal shooting](https://www.yahoo.com/news/articles/2nd-wyoming-airman-month-accused-221152447.html)
+- Aug 18 - [The Surprising Anti-Inflammatory Ingredient to Add to Your Pasta Dish, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/surprising-anti-inflammatory-ingredient-add-220000229.html)
 <!-- feed end -->
 
 ---
