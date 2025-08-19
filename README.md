@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [A new giant Ukrainian cruise missile is rumored to carry a 1,000-kg warhead for strikes 1,800 miles deep inside Russia](https://www.yahoo.com/news/articles/giant-ukrainian-cruise-missile-rumored-051252403.html)
-- Aug 19 - [Democratic Texas lawmaker spending night on state House floor after refusing GOP demand for law enforcement escort](https://www.yahoo.com/news/articles/democratic-texas-lawmaker-spending-night-050525679.html)
+- Aug 19 - [Analysis-China's overcapacity crackdown faces litmus test in solar sector](https://finance.yahoo.com/news/analysis-chinas-overcapacity-crackdown-faces-062101564.html)
+- Aug 19 - [Family of father on run for years with three children in dense wilderness urges him to come home](https://www.yahoo.com/news/articles/family-father-run-years-three-061826556.html)
+- Aug 19 - [Ship with hundreds of tons of food aid for Gaza nears an Israeli port after leaving Cyprus](https://www.yahoo.com/news/videos/ship-hundreds-tons-food-aid-054837650.html)
 - Aug 19 - [Years after abuse reports, ex-coach at renowned US gymnastics academy is arrested by FBI](https://www.yahoo.com/news/articles/years-abuse-reports-ex-coach-040721538.html)
 - Aug 19 - [Florida man convicted of killing a woman abducted from an insurance office is set to be executed](https://www.yahoo.com/news/articles/florida-man-convicted-killing-woman-033550075.html)
-- Aug 19 - [Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders](https://www.yahoo.com/news/articles/kohbergers-sexist-creepy-behavior-alarmed-001314387.html)
 <!-- feed end -->
 
 ---
