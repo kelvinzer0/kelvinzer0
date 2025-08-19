@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Evansville bar to shut off its lights, lower its prices in response to CenterPoint bills](https://www.yahoo.com/news/articles/evansville-bar-shut-off-lights-091011674.html)
+- Aug 19 - [Democratic Texas lawmaker spent night on state House floor after refusing GOP demand for law enforcement escort](https://www.yahoo.com/news/articles/democratic-texas-lawmaker-spending-night-050525679.html)
+- Aug 19 - [2 Dividend Stocks to Double Up on Right Now](https://finance.yahoo.com/news/2-dividend-stocks-double-now-114500573.html)
+- Aug 19 - [3 new flights take off from Memphis airport in September: Here is where they'll take you](https://www.yahoo.com/news/articles/3-flights-off-memphis-airport-100056805.html)
 - Aug 19 - [Officials issue warning about small pink blobs spreading across state: 'One of world's worst'](https://www.yahoo.com/news/articles/officials-issue-warning-small-pink-090000300.html)
 - Aug 19 - [The president has made a string of similar baffling slip-ups at the White House.](https://www.yahoo.com/news/videos/president-looked-around-table-president-085428334.html)
-- Aug 19 - [Russia's Medvedev says 'coalition of the willing' failed to outplay Trump](https://www.yahoo.com/news/articles/russias-medvedev-says-coalition-willing-070114364.html)
-- Aug 19 - [Family of father on run for years with three children in dense wilderness urges him to come home](https://www.yahoo.com/news/articles/family-father-run-years-three-061826556.html)
 <!-- feed end -->
 
 ---
