@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [The suspect in a car-ramming attack on a German Christmas market is charged with murder](https://www.yahoo.com/news/articles/suspect-car-ramming-attack-german-135557858.html)
+- Aug 19 - [Far-right groups have taken over school boards. Here's how to take them back](https://www.yahoo.com/news/articles/far-groups-taken-over-school-145935632.html)
+- Aug 19 - [Trump's Body Language During Zelenskyy Visit Spoke Volumes, Experts Say](https://www.yahoo.com/news/articles/trumps-body-language-during-zelenskyy-141530633.html)
 - Aug 19 - [Tesla owner shares frustrating photos of disturbing trend growing across the country: 'This won't be the last time this will happen'](https://www.yahoo.com/lifestyle/articles/tesla-owner-shares-frustrating-photos-112000961.html)
-- Aug 19 - [Israel's Netanyahu says 'weak' Australian PM abandoned Jewish community](https://www.yahoo.com/news/articles/israels-netanyahu-says-weak-australian-111241253.html)
+- Aug 19 - [DHS Secretary Kristi Noem has been living rent-free at a military base in D.C.](https://www.yahoo.com/news/videos/dhs-secretary-kristi-noem-living-105649241.html)
 - Aug 19 - [Mortgage and refinance interest rates today, August 19, 2025: A notch higher and a notch lower](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-tuesday-august-19-2025-100018473.html)
-- Aug 19 - [Officials issue warning about small pink blobs spreading across state: 'One of world's worst'](https://www.yahoo.com/news/articles/officials-issue-warning-small-pink-090000300.html)
 <!-- feed end -->
 
 ---
