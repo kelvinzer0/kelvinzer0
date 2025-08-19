@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Large dog rescued after refusing to move](https://www.yahoo.com/news/articles/large-dog-rescued-refusing-move-152545076.html)
+- Aug 19 - [This conversation is being recorded: Trump's hot mic moment is the latest in a long global list](https://www.yahoo.com/news/articles/conversation-being-recorded-trumps-hot-163032388.html)
+- Aug 19 - [‘You’re going to regret this’: Bodycam video shows prosecutor’s arrest at New England restaurant](https://www.yahoo.com/news/articles/going-regret-bodycam-video-shows-155146394.html)
+- Aug 19 - [Boxer Chavez Jr jailed in Mexico after US deportation](https://www.yahoo.com/news/articles/boxer-chavez-jr-enters-mexican-152355295.html)
 - Aug 19 - [Mom Thought She Just Had Dry Skin. Months Later, She Had Hole 'The Size of a Quarter' in Her Nose After Skin Cancer Diagnosis](https://www.yahoo.com/news/articles/mom-thought-she-just-had-150427195.html)
 - Aug 19 - [Elise Stefanik booed off podium at local event](https://www.yahoo.com/news/articles/elise-stefanik-booed-off-podium-142139845.html)
-- Aug 19 - [Judge dismisses part of lawsuit over ‘Alligator Alcatraz’ immigration detention center](https://www.yahoo.com/news/articles/judge-dismisses-part-lawsuit-over-114338528.html)
-- Aug 19 - [Tesla owner shares frustrating photos of disturbing trend growing across the country: 'This won't be the last time this will happen'](https://www.yahoo.com/lifestyle/articles/tesla-owner-shares-frustrating-photos-112000961.html)
 <!-- feed end -->
 
 ---
