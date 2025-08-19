@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 19 - [Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders](https://www.yahoo.com/news/articles/kohbergers-sexist-creepy-behavior-alarmed-001314387.html)
+- Aug 18 - [‘We are arresting the mayor right now, per the deputy attorney general’](https://www.yahoo.com/news/articles/arresting-mayor-now-per-deputy-231523945.html)
 - Aug 18 - [Beshear bans drug in Kentucky that's being targeted by attorneys general across the nation](https://www.yahoo.com/news/articles/beshear-bans-drug-kentucky-thats-225145329.html)
-- Aug 18 - [US archbishop's meeting with Putin denounced as 'betrayal of Christian witness'](https://www.yahoo.com/news/articles/us-archbishops-meeting-putin-denounced-223230423.html)
-- Aug 18 - [2nd Wyoming airman in a month is accused of manslaughter after a fatal shooting](https://www.yahoo.com/news/articles/2nd-wyoming-airman-month-accused-221152447.html)
 - Aug 18 - [The Surprising Anti-Inflammatory Ingredient to Add to Your Pasta Dish, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/surprising-anti-inflammatory-ingredient-add-220000229.html)
+- Aug 18 - [In surprise move, US Air Force chief says he will retire](https://www.yahoo.com/news/articles/us-air-force-chief-retire-213624232.html)
 <!-- feed end -->
 
 ---
