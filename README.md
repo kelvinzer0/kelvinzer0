@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [This conversation is being recorded: Trump's hot mic moment is the latest in a long global list](https://www.yahoo.com/news/articles/conversation-being-recorded-trumps-hot-163032388.html)
+- Aug 19 - [Walmart shrimp recalled due to possible radioactive contamination, FDA says](https://www.yahoo.com/news/us/articles/walmart-shrimp-recalled-due-to-possible-radioactive-contamination-fda-says-173449010.html)
+- Aug 19 - [Florida is now the 2nd most financially distressed state in the US — topped only by Texas, Google helps reveal](https://finance.yahoo.com/news/florida-now-2nd-most-financially-164500255.html)
+- Aug 19 - [US destroyers head toward waters off Venezuela as Trump aims to pressure drug cartels](https://www.yahoo.com/news/articles/us-destroyers-head-toward-waters-155443024.html)
 - Aug 19 - [‘You’re going to regret this’: Bodycam video shows prosecutor’s arrest at New England restaurant](https://www.yahoo.com/news/articles/going-regret-bodycam-video-shows-155146394.html)
-- Aug 19 - [Boxer Chavez Jr jailed in Mexico after US deportation](https://www.yahoo.com/news/articles/boxer-chavez-jr-enters-mexican-152355295.html)
 - Aug 19 - [Mom Thought She Just Had Dry Skin. Months Later, She Had Hole 'The Size of a Quarter' in Her Nose After Skin Cancer Diagnosis](https://www.yahoo.com/news/articles/mom-thought-she-just-had-150427195.html)
-- Aug 19 - [Elise Stefanik booed off podium at local event](https://www.yahoo.com/news/articles/elise-stefanik-booed-off-podium-142139845.html)
 <!-- feed end -->
 
 ---
