@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Analysis-China's overcapacity crackdown faces litmus test in solar sector](https://finance.yahoo.com/news/analysis-chinas-overcapacity-crackdown-faces-062101564.html)
+- Aug 19 - ['A big relief': Ex-Hong Kong lawmaker granted asylum by Australia](https://www.yahoo.com/news/videos/big-relief-ex-hong-kong-075246742.html)
+- Aug 19 - [Russia's Medvedev says 'coalition of the willing' failed to outplay Trump](https://www.yahoo.com/news/articles/russias-medvedev-says-coalition-willing-070114364.html)
 - Aug 19 - [Family of father on run for years with three children in dense wilderness urges him to come home](https://www.yahoo.com/news/articles/family-father-run-years-three-061826556.html)
-- Aug 19 - [Ship with hundreds of tons of food aid for Gaza nears an Israeli port after leaving Cyprus](https://www.yahoo.com/news/videos/ship-hundreds-tons-food-aid-054837650.html)
 - Aug 19 - [Years after abuse reports, ex-coach at renowned US gymnastics academy is arrested by FBI](https://www.yahoo.com/news/articles/years-abuse-reports-ex-coach-040721538.html)
 - Aug 19 - [Florida man convicted of killing a woman abducted from an insurance office is set to be executed](https://www.yahoo.com/news/articles/florida-man-convicted-killing-woman-033550075.html)
 <!-- feed end -->
