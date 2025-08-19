@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Far-right groups have taken over school boards. Here's how to take them back](https://www.yahoo.com/news/articles/far-groups-taken-over-school-145935632.html)
-- Aug 19 - [Trump's Body Language During Zelenskyy Visit Spoke Volumes, Experts Say](https://www.yahoo.com/news/articles/trumps-body-language-during-zelenskyy-141530633.html)
+- Aug 19 - [Large dog rescued after refusing to move](https://www.yahoo.com/news/articles/large-dog-rescued-refusing-move-152545076.html)
+- Aug 19 - [Mom Thought She Just Had Dry Skin. Months Later, She Had Hole 'The Size of a Quarter' in Her Nose After Skin Cancer Diagnosis](https://www.yahoo.com/news/articles/mom-thought-she-just-had-150427195.html)
+- Aug 19 - [Elise Stefanik booed off podium at local event](https://www.yahoo.com/news/articles/elise-stefanik-booed-off-podium-142139845.html)
+- Aug 19 - [Judge dismisses part of lawsuit over ‘Alligator Alcatraz’ immigration detention center](https://www.yahoo.com/news/articles/judge-dismisses-part-lawsuit-over-114338528.html)
 - Aug 19 - [Tesla owner shares frustrating photos of disturbing trend growing across the country: 'This won't be the last time this will happen'](https://www.yahoo.com/lifestyle/articles/tesla-owner-shares-frustrating-photos-112000961.html)
-- Aug 19 - [DHS Secretary Kristi Noem has been living rent-free at a military base in D.C.](https://www.yahoo.com/news/videos/dhs-secretary-kristi-noem-living-105649241.html)
-- Aug 19 - [Mortgage and refinance interest rates today, August 19, 2025: A notch higher and a notch lower](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-tuesday-august-19-2025-100018473.html)
 <!-- feed end -->
 
 ---
