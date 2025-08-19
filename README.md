@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Married Teachers Die in Crash While Dropping Son Off at College, and Their 2 Younger Kids Barely Survive](https://www.yahoo.com/news/articles/married-teachers-die-crash-while-183906933.html)
-- Aug 19 - [US appeals court puts the brakes on contested land transfer for Arizona copper mine](https://www.yahoo.com/news/articles/us-appeals-court-puts-brakes-182809871.html)
-- Aug 19 - [Florida is now the 2nd most financially distressed state in the US — topped only by Texas, Google helps reveal](https://finance.yahoo.com/news/florida-now-2nd-most-financially-164500255.html)
-- Aug 19 - [This conversation is being recorded: Trump's hot mic moment is the latest in a long global list](https://www.yahoo.com/news/articles/conversation-being-recorded-trumps-hot-163032388.html)
-- Aug 19 - [Map: How much of the $643M Powerball jackpot would you lose to taxes?](https://finance.yahoo.com/news/map-much-643m-powerball-jackpot-162347774.html)
+- Aug 19 - [Mother of missing 7-month-old baby Emmanuel Haro, who said he was kidnapped, stops cooperating with investigators, officials say](https://www.yahoo.com/news/us/articles/mother-of-missing-7-month-old-baby-emmanuel-haro-who-said-he-was-kidnapped-stops-cooperating-with-investigators-officials-say-202927877.html)
+- Aug 19 - [Poli Sci Experts Predict How Gavin Newsom's Brutal Mockery Of Trump And MAGA Will Resonate](https://www.yahoo.com/news/articles/poli-sci-experts-predict-gavin-202407980.html)
+- Aug 19 - [Trump administration revokes security clearances of 37 current and former government officials](https://www.yahoo.com/news/articles/trump-administration-revokes-security-clearances-200621061.html)
+- Aug 19 - [IDF, Shin Bet kill terrorist responsible for kidnapping Yarden Bibas from Kibbutz Nir Oz on Oct. 7](https://www.yahoo.com/news/articles/idf-shin-bet-kill-terrorist-194250571.html)
+- Aug 19 - [Nvidia is the most underowned megacap stock, Morgan Stanley says](https://finance.yahoo.com/news/nvidia-is-the-most-underowned-megacap-stock-morgan-stanley-says-181655265.html)
 <!-- feed end -->
 
 ---
