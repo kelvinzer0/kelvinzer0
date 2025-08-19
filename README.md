@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders](https://www.yahoo.com/news/articles/kohbergers-sexist-creepy-behavior-alarmed-001314387.html)
-- Aug 18 - [‘We are arresting the mayor right now, per the deputy attorney general’](https://www.yahoo.com/news/articles/arresting-mayor-now-per-deputy-231523945.html)
-- Aug 18 - [Beshear bans drug in Kentucky that's being targeted by attorneys general across the nation](https://www.yahoo.com/news/articles/beshear-bans-drug-kentucky-thats-225145329.html)
-- Aug 18 - [The Surprising Anti-Inflammatory Ingredient to Add to Your Pasta Dish, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/surprising-anti-inflammatory-ingredient-add-220000229.html)
-- Aug 18 - [In surprise move, US Air Force chief says he will retire](https://www.yahoo.com/news/articles/us-air-force-chief-retire-213624232.html)
+- Aug 19 - [Tiny worms found in ponds and river could help treat schizophrenia](https://www.yahoo.com/news/articles/tiny-worms-found-ponds-river-130405602.html)
+- Aug 19 - [Florida man convicted of killing a woman abducted from an insurance office is set to be executed](https://www.yahoo.com/news/articles/florida-man-convicted-killing-woman-033550075.html)
+- Aug 19 - [Brio abruptly closes area’s only location; Neighbors worried for shopping center’s future](https://www.yahoo.com/news/articles/brio-abruptly-closes-area-only-015105475.html)
+- Aug 19 - [Why India tops the list of abandoned sailors](https://www.yahoo.com/news/articles/why-india-tops-list-abandoned-013837930.html)
+- Aug 19 - [New photos of questionable Tesla business practice raise concern: 'You'd think ... they'd be able to afford'](https://finance.yahoo.com/news/photos-questionable-tesla-business-practice-004500053.html)
 <!-- feed end -->
 
 ---
