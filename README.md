@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 19 - [Tiny worms found in ponds and river could help treat schizophrenia](https://www.yahoo.com/news/articles/tiny-worms-found-ponds-river-130405602.html)
+- Aug 19 - [A new giant Ukrainian cruise missile is rumored to carry a 1,000-kg warhead for strikes 1,800 miles deep inside Russia](https://www.yahoo.com/news/articles/giant-ukrainian-cruise-missile-rumored-051252403.html)
+- Aug 19 - [Democratic Texas lawmaker spending night on state House floor after refusing GOP demand for law enforcement escort](https://www.yahoo.com/news/articles/democratic-texas-lawmaker-spending-night-050525679.html)
+- Aug 19 - [Years after abuse reports, ex-coach at renowned US gymnastics academy is arrested by FBI](https://www.yahoo.com/news/articles/years-abuse-reports-ex-coach-040721538.html)
 - Aug 19 - [Florida man convicted of killing a woman abducted from an insurance office is set to be executed](https://www.yahoo.com/news/articles/florida-man-convicted-killing-woman-033550075.html)
-- Aug 19 - [Brio abruptly closes area’s only location; Neighbors worried for shopping center’s future](https://www.yahoo.com/news/articles/brio-abruptly-closes-area-only-015105475.html)
-- Aug 19 - [Why India tops the list of abandoned sailors](https://www.yahoo.com/news/articles/why-india-tops-list-abandoned-013837930.html)
-- Aug 19 - [New photos of questionable Tesla business practice raise concern: 'You'd think ... they'd be able to afford'](https://finance.yahoo.com/news/photos-questionable-tesla-business-practice-004500053.html)
+- Aug 19 - [Kohberger's sexist, creepy behavior alarmed university faculty and students before Idaho murders](https://www.yahoo.com/news/articles/kohbergers-sexist-creepy-behavior-alarmed-001314387.html)
 <!-- feed end -->
 
 ---
