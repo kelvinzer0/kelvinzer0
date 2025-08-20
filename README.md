@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [2 suspects arrested for hate crime attacks in San Bernardino County](https://www.yahoo.com/news/articles/2-suspects-arrested-hate-crime-002109126.html)
 - Aug 20 - [DHS Secretary says entire southern border wall to be painted black to stop people from climbing it](https://www.yahoo.com/news/articles/dhs-secretary-says-entire-southern-002106684.html)
-- Aug 19 - [Authorities bust $400K T.J. Maxx theft ring in Bay Area; 16 suspects tied to case](https://www.yahoo.com/news/articles/authorities-bust-400k-t-j-231803633.html)
-- Aug 19 - [Trump moves to use the levers of presidential power to help his party in the 2026 midterms](https://www.yahoo.com/news/articles/trump-moves-levers-presidential-power-225250470.html)
+- Aug 19 - [Boeing 757 Engine Bursts Into Flames Mid-Flight, Forcing Emergency Landing In City Without Enough Hotel Rooms For Everyone](https://autos.yahoo.com/articles/boeing-757-engine-bursts-flames-234138564.html)
 - Aug 19 - [Actor son of murder-suicide victim issues stepdad funeral plea](https://www.yahoo.com/entertainment/tv/articles/actor-son-murder-suicide-victim-213801485.html)
+- Aug 19 - [Trump Attacks Smithsonian For Focus On 'How Bad Slavery Was' And, Boy, The Responses](https://www.yahoo.com/news/articles/trump-attacks-smithsonian-focus-bad-221253591.html)
+- Aug 19 - [Ukrainian attack cuts power in Russia-controlled Zaporizhzhia](https://www.yahoo.com/news/articles/ukrainian-attack-cuts-power-russia-215029149.html)
 <!-- feed end -->
 
 ---
