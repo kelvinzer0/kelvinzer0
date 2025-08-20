@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Archer Aviation Flight Ramps Up Air-Taxi War With Joby. Why Both Stocks Are Down.](https://www.barrons.com/articles/archer-aviation-stock-flight-joby-5c1ecef8?siteid=yhoof2&yptr=yahoo)
-- Aug 20 - [Wading Through Water In Outer Banks As Erin Flooding Begins](https://www.yahoo.com/news/videos/wading-water-outer-banks-erin-113839120.html)
+- Aug 20 - [Trump buys more than $100 million in bonds in office, disclosure shows](https://www.yahoo.com/news/articles/trump-buys-more-100-million-140450574.html)
+- Aug 20 - [I'm 63 With $1 Million in an IRA. Should I Convert $100,000 a Year to a Roth to Avoid RMDs?](https://finance.yahoo.com/news/im-63-1-million-ira-123000657.html)
+- Aug 20 - [Husband of missing Jacksonville mom of 5 in Duval County jail](https://www.yahoo.com/news/articles/husband-missing-jacksonville-mom-5-113018888.html)
 - Aug 20 - [Gardener urges homeowners to rethink popular backyard plant after devastating experience: 'It can take down a tree'](https://shopping.yahoo.com/home-garden/gardening/articles/gardener-urges-homeowners-rethink-popular-113000499.html)
 - Aug 20 - [Cholesterol Isn’t Just About Heart Health—It May Be the Missing Link In Alzheimer’s, Says New Study](https://www.yahoo.com/news/articles/cholesterol-isn-t-just-heart-103000838.html)
-- Aug 20 - [Exclusive-The US Navy is building a drone fleet to take on China. It's not going well](https://finance.yahoo.com/news/exclusive-us-navy-building-drone-100530064.html)
 <!-- feed end -->
 
 ---
