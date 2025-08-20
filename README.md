@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 20 - [DHS Secretary says entire southern border wall to be painted black to stop people from climbing it](https://www.yahoo.com/news/articles/dhs-secretary-says-entire-southern-002106684.html)
 - Aug 19 - [Trump Attacks Smithsonian For Focus On 'How Bad Slavery Was' And, Boy, The Responses](https://www.yahoo.com/news/articles/trump-attacks-smithsonian-focus-bad-221253591.html)
+- Aug 19 - [Ukrainian attack cuts power in Russia-controlled Zaporizhzhia](https://www.yahoo.com/news/articles/ukrainian-attack-cuts-power-russia-215029149.html)
+- Aug 19 - [Actor son of murder-suicide victim issues stepdad funeral plea](https://www.yahoo.com/entertainment/tv/articles/actor-son-murder-suicide-victim-213801485.html)
 - Aug 19 - [Delta, United sued for selling windowless 'window seats'](https://finance.yahoo.com/news/delta-united-sued-selling-windowless-211317184.html)
-- Aug 19 - [Authorities identify family members found dead in murder-suicide at New Hampshire home](https://www.yahoo.com/news/articles/authorities-identify-family-members-found-171311450.html)
-- Aug 19 - [Trump administration revokes security clearances of 37 current and former government officials](https://www.yahoo.com/news/articles/trump-administration-revokes-security-clearances-200621061.html)
-- Aug 19 - [Nvidia is the most underowned megacap stock, Morgan Stanley says](https://finance.yahoo.com/news/nvidia-is-the-most-underowned-megacap-stock-morgan-stanley-says-181655265.html)
 <!-- feed end -->
 
 ---
