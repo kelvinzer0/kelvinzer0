@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [A CPA couple who invest in real estate on the side shares the investment mistake that cost them about six-figures worth of 401(k) money](https://finance.yahoo.com/news/cpa-couple-invest-real-estate-174502919.html)
-- Aug 20 - [Texas can't put the Ten Commandments in certain school districts' classrooms, judge says](https://www.yahoo.com/news/articles/texas-cant-require-ten-commandments-145946882.html)
-- Aug 20 - [Trump buys more than $100 million in bonds in office, disclosure shows](https://www.yahoo.com/news/articles/trump-buys-more-100-million-140450574.html)
-- Aug 20 - [McDonald’s is cutting prices of its combo meals to convince customers it’s affordable again](https://finance.yahoo.com/news/mcdonald-cutting-prices-combo-meals-110953274.html)
-- Aug 20 - [Paxton’s lead over Cornyn nearly cut in half: Poll](https://www.yahoo.com/news/articles/paxton-lead-over-cornyn-nearly-123039876.html)
+- Aug 20 - [2 more beachfront homes near collapse as a hurricane waves pound North Carolina's Outer Banks](https://www.yahoo.com/news/articles/2-more-beachfront-homes-near-194922822.html)
+- Aug 20 - [Why Broadcom (AVGO) Shares Are Falling Today](https://finance.yahoo.com/news/why-broadcom-avgo-shares-falling-191543244.html)
+- Aug 20 - [Hundreds of Chicago Target workers fired over alleged fraud — how a 'glitch in the system' led to $1M+ stolen](https://www.yahoo.com/news/articles/hundreds-chicago-target-workers-fired-191500703.html)
+- Aug 20 - [Texas judge blocks Ten Commandments in public schools with epic ruling that quotes Sonny & Cher, Kurt Vonnegut and Billy Graham](https://www.yahoo.com/news/articles/texas-judge-blocks-ten-commandments-183132796.html)
+- Aug 20 - [Israel begins invasion of Gaza City](https://www.yahoo.com/news/articles/israel-calls-60-000-reservists-150351131.html)
 <!-- feed end -->
 
 ---
