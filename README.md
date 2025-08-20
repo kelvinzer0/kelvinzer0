@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [US suspends visa processing in Zimbabwe, embassy says](https://www.yahoo.com/news/articles/us-suspends-visa-processing-zimbabwe-121310860.html)
-- Aug 20 - [Paris hosts quiet diplomacy as Syria and Israel discuss ceasefire and security](https://www.yahoo.com/news/articles/paris-hosts-quiet-diplomacy-syria-113333166.html)
-- Aug 20 - [Actor son of murder-suicide victim issues stepdad funeral plea](https://www.yahoo.com/entertainment/tv/articles/actor-son-murder-suicide-victim-213801485.html)
-- Aug 20 - [Researchers make game-changing discovery using bamboo that could revolutionize how we build cars: 'Our composite can be used in various sectors'](https://tech.yahoo.com/transportation/articles/researchers-game-changing-discovery-using-064500498.html)
-- Aug 20 - [“I thought they hated Trump,” the Fox host said after Newsom’s office mocked her for telling him to get serious.](https://www.yahoo.com/news/videos/thought-hated-trump-fox-host-045635115.html)
+- Aug 20 - [Archer Aviation Flight Ramps Up Air-Taxi War With Joby. Why Both Stocks Are Down.](https://www.barrons.com/articles/archer-aviation-stock-flight-joby-5c1ecef8?siteid=yhoof2&yptr=yahoo)
+- Aug 20 - [Wading Through Water In Outer Banks As Erin Flooding Begins](https://www.yahoo.com/news/videos/wading-water-outer-banks-erin-113839120.html)
+- Aug 20 - [Gardener urges homeowners to rethink popular backyard plant after devastating experience: 'It can take down a tree'](https://shopping.yahoo.com/home-garden/gardening/articles/gardener-urges-homeowners-rethink-popular-113000499.html)
+- Aug 20 - [Cholesterol Isn’t Just About Heart Health—It May Be the Missing Link In Alzheimer’s, Says New Study](https://www.yahoo.com/news/articles/cholesterol-isn-t-just-heart-103000838.html)
+- Aug 20 - [Exclusive-The US Navy is building a drone fleet to take on China. It's not going well](https://finance.yahoo.com/news/exclusive-us-navy-building-drone-100530064.html)
 <!-- feed end -->
 
 ---
