@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [PGA tour spectator was 'violently' hit by golf cart at Oak Hill, lawsuit says](https://www.yahoo.com/news/articles/pga-tour-spectator-violently-hit-163629280.html)
-- Aug 20 - [El Paso judge blocks Ken Paxton from taking legal action against Beto O’Rourke’s political group](https://www.yahoo.com/news/articles/el-paso-judge-blocks-ken-154024902.html)
-- Aug 20 - [Texas can't put the Ten Commandments in certain school districts' classrooms, judge says](https://www.yahoo.com/news/articles/texas-cant-require-ten-commandments-145946882.html)
-- Aug 20 - [Trump buys more than $100 million in bonds in office, disclosure shows](https://www.yahoo.com/news/articles/trump-buys-more-100-million-140450574.html)
-- Aug 20 - [Utica woman arrested for failure to control child](https://www.yahoo.com/news/articles/utica-woman-arrested-failure-control-140359454.html)
+- Aug 20 - [Trump calls on Federal Reserve governor Lisa Cook to resign, renewing attack on central bank](https://www.yahoo.com/news/articles/trump-calls-federal-governor-lisa-150516185.html)
+- Aug 20 - [Oregon crews race to douse fire in one of the world's tallest trees](https://www.yahoo.com/news/articles/oregon-crews-race-douse-fire-173709859.html)
+- Aug 20 - [Ana Navarro Calls Out Melania Trump’s ‘Performative’ Letter To Putin](https://www.yahoo.com/news/articles/ana-navarro-calls-melania-trump-181056217.html)
+- Aug 20 - [Large Stealth Flying Wing Aircraft Photographed Over China](https://www.yahoo.com/news/articles/large-stealth-flying-wing-aircraft-171309689.html)
+- Aug 20 - [Man pulled from car in Minneapolis remains in custody after ICE arrest](https://www.yahoo.com/news/articles/man-pulled-car-minneapolis-remains-162831170.html)
 <!-- feed end -->
 
 ---
