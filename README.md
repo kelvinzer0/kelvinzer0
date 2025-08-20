@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Poilievre calls on Canada to designate Bishnoi gang a terrorist group](https://www.yahoo.com/news/articles/poilievre-calls-canada-designate-bishnoi-200238021.html)
-- Aug 20 - [French streamer dies live online after months of apparent abuse](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
-- Aug 20 - [US attorney will no longer bring felony charges against people for carrying rifles or shotguns in DC](https://www.yahoo.com/news/articles/us-attorney-no-longer-bring-194458425.html)
-- Aug 20 - [Hurricane Erin Swallows Homes, ‘20ft Waves’ Incoming (Video)](https://www.yahoo.com/news/articles/hurricane-erin-swallows-homes-20ft-191031141.html)
-- Aug 20 - [Large Stealth Flying Wing Aircraft Photographed Over China](https://www.yahoo.com/news/articles/large-stealth-flying-wing-aircraft-171309689.html)
+- Aug 20 - [Israel pounds Gaza, killing 81, as it begins assault to seize Gaza City](https://www.yahoo.com/news/articles/israel-pounds-gaza-killing-81-211615541.html)
+- Aug 20 - [French streamer dies live online after apparent extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 20 - [Woman Told Retiree He Made Her Blush and Invited Him to Visit. He Died Before Learning Who He Was Really Talking To](https://www.yahoo.com/news/articles/woman-told-retiree-made-her-204409441.html)
+- Aug 20 - [Peru's gold exports to China through June overtake all 2024](https://finance.yahoo.com/news/perus-gold-exports-china-june-191719595.html)
+- Aug 20 - [Hundreds of Chicago Target workers fired over alleged fraud — how a 'glitch in the system' led to $1M+ stolen](https://www.yahoo.com/news/articles/hundreds-chicago-target-workers-fired-191500703.html)
 <!-- feed end -->
 
 ---
