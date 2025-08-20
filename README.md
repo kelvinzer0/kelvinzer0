@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Belarus and Iran, both friends of Putin, plan to strengthen military and broader ties](https://www.yahoo.com/news/articles/belarus-iran-both-friends-putin-103138138.html)
-- Aug 20 - [Scratch-off worth $1 million sold in Miami Valley](https://www.yahoo.com/news/articles/scratch-off-worth-1-million-100727307.html)
+- Aug 20 - [US suspends visa processing in Zimbabwe, embassy says](https://www.yahoo.com/news/articles/us-suspends-visa-processing-zimbabwe-121310860.html)
+- Aug 20 - [Paris hosts quiet diplomacy as Syria and Israel discuss ceasefire and security](https://www.yahoo.com/news/articles/paris-hosts-quiet-diplomacy-syria-113333166.html)
 - Aug 20 - [Actor son of murder-suicide victim issues stepdad funeral plea](https://www.yahoo.com/entertainment/tv/articles/actor-son-murder-suicide-victim-213801485.html)
-- Aug 20 - [Homebuyers made a huge mortgage gamble. It's backfiring spectacularly.](https://finance.yahoo.com/news/homebuyers-made-huge-mortgage-gamble-080301545.html)
-- Aug 20 - [Tesla patents mind-blowing technology that could redefine electric vehicles as we know them — here's what we know](https://tech.yahoo.com/transportation/articles/tesla-patents-mind-blowing-technology-014500125.html)
+- Aug 20 - [Researchers make game-changing discovery using bamboo that could revolutionize how we build cars: 'Our composite can be used in various sectors'](https://tech.yahoo.com/transportation/articles/researchers-game-changing-discovery-using-064500498.html)
+- Aug 20 - [“I thought they hated Trump,” the Fox host said after Newsom’s office mocked her for telling him to get serious.](https://www.yahoo.com/news/videos/thought-hated-trump-fox-host-045635115.html)
 <!-- feed end -->
 
 ---
