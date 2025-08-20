@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Israel pounds Gaza, killing 81, as it begins assault to seize Gaza City](https://www.yahoo.com/news/articles/israel-pounds-gaza-killing-81-211615541.html)
+- Aug 20 - [21-year-old University of Oregon student dies after crash near campus](https://www.yahoo.com/news/articles/21-old-university-oregon-student-212101715.html)
 - Aug 20 - [French streamer dies live online after apparent extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
-- Aug 20 - [Woman Told Retiree He Made Her Blush and Invited Him to Visit. He Died Before Learning Who He Was Really Talking To](https://www.yahoo.com/news/articles/woman-told-retiree-made-her-204409441.html)
 - Aug 20 - [Peru's gold exports to China through June overtake all 2024](https://finance.yahoo.com/news/perus-gold-exports-china-june-191719595.html)
-- Aug 20 - [Hundreds of Chicago Target workers fired over alleged fraud — how a 'glitch in the system' led to $1M+ stolen](https://www.yahoo.com/news/articles/hundreds-chicago-target-workers-fired-191500703.html)
+- Aug 20 - [Hurricane Erin Swallows Homes, ‘20ft Waves’ Incoming (Video)](https://www.yahoo.com/news/articles/hurricane-erin-swallows-homes-20ft-191031141.html)
+- Aug 20 - [Hennessey’s 1,700-HP Demon V8 Targets Buyers After Dodge Ends Challenger Run](https://autos.yahoo.com/articles/hennessey-1-700-hp-demon-190058214.html)
 <!-- feed end -->
 
 ---
