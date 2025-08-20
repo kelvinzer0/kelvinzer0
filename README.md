@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 20 - [Intel: US support is 'essential,' but equity stake raises concerns](https://finance.yahoo.com/video/intel-us-support-essential-equity-160840228.html)
+- Aug 20 - [Hurricane Erin waves slam into North Carolina homes: Watch](https://www.yahoo.com/news/articles/hurricane-erin-waves-slam-north-143114845.html)
 - Aug 20 - [Trump buys more than $100 million in bonds in office, disclosure shows](https://www.yahoo.com/news/articles/trump-buys-more-100-million-140450574.html)
-- Aug 20 - [Scientists capture haunting trail cam footage of elusive pair rarely seen in the wild together: 'They need more attention'](https://www.yahoo.com/news/articles/scientists-capture-haunting-trail-cam-113000430.html)
-- Aug 20 - [Gardener urges homeowners to rethink popular backyard plant after devastating experience: 'It can take down a tree'](https://shopping.yahoo.com/home-garden/gardening/articles/gardener-urges-homeowners-rethink-popular-113000499.html)
-- Aug 20 - [Cholesterol Isn’t Just About Heart Health—It May Be the Missing Link In Alzheimer’s, Says New Study](https://www.yahoo.com/news/articles/cholesterol-isn-t-just-heart-103000838.html)
-- Aug 20 - [Actor son of murder-suicide victim issues stepdad funeral plea](https://www.yahoo.com/entertainment/tv/articles/actor-son-murder-suicide-victim-213801485.html)
+- Aug 20 - [Utica woman arrested for failure to control child](https://www.yahoo.com/news/articles/utica-woman-arrested-failure-control-140359454.html)
+- Aug 20 - [US tech stocks slide after Altman warns of ‘bubble’ in AI and MIT study doubts the hype](https://finance.yahoo.com/news/us-tech-stocks-slide-altman-132001710.html)
 <!-- feed end -->
 
 ---
