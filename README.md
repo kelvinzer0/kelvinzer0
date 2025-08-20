@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [Intel: US support is 'essential,' but equity stake raises concerns](https://finance.yahoo.com/video/intel-us-support-essential-equity-160840228.html)
-- Aug 20 - [Hurricane Erin waves slam into North Carolina homes: Watch](https://www.yahoo.com/news/articles/hurricane-erin-waves-slam-north-143114845.html)
+- Aug 20 - [PGA tour spectator was 'violently' hit by golf cart at Oak Hill, lawsuit says](https://www.yahoo.com/news/articles/pga-tour-spectator-violently-hit-163629280.html)
+- Aug 20 - [El Paso judge blocks Ken Paxton from taking legal action against Beto O’Rourke’s political group](https://www.yahoo.com/news/articles/el-paso-judge-blocks-ken-154024902.html)
+- Aug 20 - [Texas can't put the Ten Commandments in certain school districts' classrooms, judge says](https://www.yahoo.com/news/articles/texas-cant-require-ten-commandments-145946882.html)
 - Aug 20 - [Trump buys more than $100 million in bonds in office, disclosure shows](https://www.yahoo.com/news/articles/trump-buys-more-100-million-140450574.html)
 - Aug 20 - [Utica woman arrested for failure to control child](https://www.yahoo.com/news/articles/utica-woman-arrested-failure-control-140359454.html)
-- Aug 20 - [US tech stocks slide after Altman warns of ‘bubble’ in AI and MIT study doubts the hype](https://finance.yahoo.com/news/us-tech-stocks-slide-altman-132001710.html)
 <!-- feed end -->
 
 ---
