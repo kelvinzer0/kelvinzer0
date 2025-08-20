@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 20 - [DHS Secretary says entire southern border wall to be painted black to stop people from climbing it](https://www.yahoo.com/news/articles/dhs-secretary-says-entire-southern-002106684.html)
-- Aug 19 - [Kim's sister says North Korea will never see the South as a diplomatic partner](https://www.yahoo.com/news/articles/north-korean-leaders-sister-says-235343584.html)
 - Aug 19 - [Trump Attacks Smithsonian For Focus On 'How Bad Slavery Was' And, Boy, The Responses](https://www.yahoo.com/news/articles/trump-attacks-smithsonian-focus-bad-221253591.html)
 - Aug 19 - [Ukrainian attack cuts power in Russia-controlled Zaporizhzhia](https://www.yahoo.com/news/articles/ukrainian-attack-cuts-power-russia-215029149.html)
 - Aug 19 - [Actor son of murder-suicide victim issues stepdad funeral plea](https://www.yahoo.com/entertainment/tv/articles/actor-son-murder-suicide-victim-213801485.html)
+- Aug 19 - [Delta, United sued for selling windowless 'window seats'](https://finance.yahoo.com/news/delta-united-sued-selling-windowless-211317184.html)
 <!-- feed end -->
 
 ---
