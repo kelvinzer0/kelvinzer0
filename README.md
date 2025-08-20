@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [2 more beachfront homes near collapse as a hurricane waves pound North Carolina's Outer Banks](https://www.yahoo.com/news/articles/2-more-beachfront-homes-near-194922822.html)
-- Aug 20 - [Why Broadcom (AVGO) Shares Are Falling Today](https://finance.yahoo.com/news/why-broadcom-avgo-shares-falling-191543244.html)
-- Aug 20 - [Hundreds of Chicago Target workers fired over alleged fraud — how a 'glitch in the system' led to $1M+ stolen](https://www.yahoo.com/news/articles/hundreds-chicago-target-workers-fired-191500703.html)
-- Aug 20 - [Texas judge blocks Ten Commandments in public schools with epic ruling that quotes Sonny & Cher, Kurt Vonnegut and Billy Graham](https://www.yahoo.com/news/articles/texas-judge-blocks-ten-commandments-183132796.html)
-- Aug 20 - [Israel begins invasion of Gaza City](https://www.yahoo.com/news/articles/israel-calls-60-000-reservists-150351131.html)
+- Aug 20 - [Poilievre calls on Canada to designate Bishnoi gang a terrorist group](https://www.yahoo.com/news/articles/poilievre-calls-canada-designate-bishnoi-200238021.html)
+- Aug 20 - [French streamer dies live online after months of apparent abuse](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 20 - [US attorney will no longer bring felony charges against people for carrying rifles or shotguns in DC](https://www.yahoo.com/news/articles/us-attorney-no-longer-bring-194458425.html)
+- Aug 20 - [Hurricane Erin Swallows Homes, ‘20ft Waves’ Incoming (Video)](https://www.yahoo.com/news/articles/hurricane-erin-swallows-homes-20ft-191031141.html)
+- Aug 20 - [Large Stealth Flying Wing Aircraft Photographed Over China](https://www.yahoo.com/news/articles/large-stealth-flying-wing-aircraft-171309689.html)
 <!-- feed end -->
 
 ---
