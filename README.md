@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [McDonald's cuts prices as US consumers feel the pinch: WSJ](https://finance.yahoo.com/video/mcdonalds-cuts-prices-us-consumers-082826386.html)
-- Aug 21 - [Russia hits Ukraine with 'massive' drone, missile attack, Kyiv says](https://www.yahoo.com/news/articles/russia-hits-ukraine-massive-drone-080935065.html)
+- Aug 21 - [Salina Tech partners with local company to offer apprenticeships](https://www.yahoo.com/news/articles/salina-tech-partners-local-company-090621137.html)
+- Aug 21 - [Trump Has A 'Massive' Midnight Meltdown In Flurry Of Social Media Posts](https://www.yahoo.com/news/articles/trump-massive-midnight-meltdown-flurry-083741122.html)
 - Aug 21 - [‘Condescending P***k’: JD Vance’s Zelenskyy-Oval Office Anecdote Backfires Online](https://www.yahoo.com/news/articles/condescending-p-k-jd-vance-074405496.html)
-- Aug 21 - [Gymnast who sparked abuse inquiry into coach at elite US academy says she 'needed to speak out'](https://www.yahoo.com/news/articles/gymnast-sparked-abuse-inquiry-coach-040427784.html)
-- Aug 20 - [Gov. Newsom reacts to Bed Bath & Beyond's refusal to open stores in California](https://www.yahoo.com/news/articles/gov-newsom-reacts-bed-bath-232617492.html)
+- Aug 21 - [A Ukrainian startup develops long-range drones and missiles to take the battle to Russia](https://www.yahoo.com/news/articles/ukrainian-startup-makes-drones-soon-051801344.html)
+- Aug 21 - [Netanyahu escalates attack on Australia's Albanese as Jewish group urges calm](https://www.yahoo.com/news/articles/netanyahu-escalates-attack-australias-albanese-050926349.html)
 <!-- feed end -->
 
 ---
