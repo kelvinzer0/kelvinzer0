@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [Video: MSP helicopter team spots missing man with dementia](https://www.yahoo.com/news/videos/video-msp-helicopter-team-spots-220942509.html)
+- Aug 21 - [Man arrested in terrifying dawn raid after sharing Facebook posts backing Palestine Action](https://www.yahoo.com/news/articles/man-arrested-terrifying-dawn-raid-185514291.html)
 - Aug 21 - [Lil Nas X arrested, hospitalized for reported overdose after being seen roaming Los Angeles streets in his underwear](https://www.yahoo.com/entertainment/celebrity/article/lil-nas-x-arrested-hospitalized-for-reported-overdose-after-being-seen-roaming-los-angeles-streets-in-his-underwear-213926892.html)
 - Aug 21 - [Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push](https://www.yahoo.com/news/articles/supreme-court-lets-trump-administration-204843959.html)
 - Aug 21 - [Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney](https://www.yahoo.com/news/articles/judge-rules-alina-habba-unlawfully-193930474.html)
-- Aug 21 - [Deaf Utah man missing for over a week found dead](https://www.yahoo.com/news/articles/deaf-utah-man-missing-over-174545090.html)
-- Aug 21 - [Netanyahu says Israel to begin Gaza ceasefire negotiations to end war, release hostages](https://www.yahoo.com/news/articles/netanyahu-says-israel-begin-gaza-171942984.html)
 <!-- feed end -->
 
 ---
