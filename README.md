@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Wall Street slips as Walmart helps pull S&P 500 toward another loss](https://www.yahoo.com/news/videos/wall-street-slips-walmart-helps-201405985.html)
+- Aug 21 - [Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney](https://www.yahoo.com/news/articles/judge-rules-alina-habba-unlawfully-193930474.html)
 - Aug 21 - [Rep. James Comer, a Republican, alleges that the revelation is further proof that the former president’s cognitive abilities had significantly declined by 2024.](https://www.yahoo.com/news/videos/rep-james-comer-republican-alleges-191105468.html)
-- Aug 21 - [New Route 66 signs launched in Texas with Big Texan partnership](https://www.yahoo.com/news/articles/route-66-signs-launched-texas-190841371.html)
-- Aug 21 - [Congresswoman charged in ICE jail melee says indictment leaves out key details](https://www.yahoo.com/news/articles/congresswoman-charged-ice-jail-melee-190525075.html)
 - Aug 21 - [Fatal Florida crash fuels immigration fight between DeSantis and Newsom](https://www.yahoo.com/news/articles/fatal-florida-crash-fuels-immigration-182549801.html)
+- Aug 21 - [Deaf Utah man missing for over a week found dead](https://www.yahoo.com/news/articles/deaf-utah-man-missing-over-174545090.html)
+- Aug 21 - [Netanyahu says Israel to begin Gaza ceasefire negotiations to end war, release hostages](https://www.yahoo.com/news/articles/netanyahu-says-israel-begin-gaza-171942984.html)
 <!-- feed end -->
 
 ---
