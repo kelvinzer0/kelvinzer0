@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [Lil Nas X arrested, hospitalized for reported overdose after being seen roaming Los Angeles streets in his underwear](https://www.yahoo.com/entertainment/celebrity/article/lil-nas-x-arrested-hospitalized-for-reported-overdose-after-being-seen-roaming-los-angeles-streets-in-his-underwear-213926892.html)
+- Aug 21 - [Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push](https://www.yahoo.com/news/articles/supreme-court-lets-trump-administration-204843959.html)
 - Aug 21 - [Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney](https://www.yahoo.com/news/articles/judge-rules-alina-habba-unlawfully-193930474.html)
-- Aug 21 - [Rep. James Comer, a Republican, alleges that the revelation is further proof that the former president’s cognitive abilities had significantly declined by 2024.](https://www.yahoo.com/news/videos/rep-james-comer-republican-alleges-191105468.html)
-- Aug 21 - [Fatal Florida crash fuels immigration fight between DeSantis and Newsom](https://www.yahoo.com/news/articles/fatal-florida-crash-fuels-immigration-182549801.html)
 - Aug 21 - [Deaf Utah man missing for over a week found dead](https://www.yahoo.com/news/articles/deaf-utah-man-missing-over-174545090.html)
 - Aug 21 - [Netanyahu says Israel to begin Gaza ceasefire negotiations to end war, release hostages](https://www.yahoo.com/news/articles/netanyahu-says-israel-begin-gaza-171942984.html)
 <!-- feed end -->
