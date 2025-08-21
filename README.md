@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Italian divers water-blast the popular underwater statue of Christ off Portofino](https://www.yahoo.com/news/articles/italian-divers-water-blast-popular-145151676.html)
-- Aug 21 - [Appeals court throws out massive civil fraud penalty against President Donald Trump](https://www.yahoo.com/news/articles/appeals-court-throws-massive-civil-144304109.html)
-- Aug 21 - [Carlow University welcomes largest freshman class in school’s history](https://www.yahoo.com/news/articles/carlow-university-welcomes-largest-freshman-142047605.html)
+- Aug 21 - [Drew Molly, at the forefront of Corpus Christi water supply projects, has resigned](https://www.yahoo.com/news/articles/drew-molly-forefront-corpus-christi-152638478.html)
+- Aug 21 - [Bernstein Raises TechnipFMC Price Target After Strong Q2 Results and Robotics Growth](https://finance.yahoo.com/news/bernstein-raises-technipfmc-price-target-151519391.html)
+- Aug 21 - [Exclusive-Putin's demand to Ukraine: give up Donbas, no NATO and no Western troops, sources say](https://www.yahoo.com/news/articles/exclusive-putins-demand-ukraine-donbas-150626626.html)
 - Aug 21 - [Russia bombs US factory in one of war’s largest attacks](https://www.yahoo.com/news/articles/russia-bombs-us-factory-one-104750986.html)
-- Aug 21 - [Azerbaijan sounds the alarm over shallowing of Caspian Sea](https://www.yahoo.com/news/articles/azerbaijan-sounds-alarm-over-shallowing-123557949.html)
+- Aug 21 - [Italian divers water-blast the popular underwater statue of Christ off Portofino](https://www.yahoo.com/news/articles/italian-divers-water-blast-popular-145151676.html)
 <!-- feed end -->
 
 ---
