@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Missing Texas woman found living among lost ‘African’ tribe in Scotland](https://www.yahoo.com/news/articles/missing-texas-woman-found-living-195245583.html)
-- Aug 21 - [Belarus says it is looking at how to arm its missile systems with nuclear warheads](https://www.yahoo.com/news/articles/belarus-says-looking-arm-missile-120428646.html)
 - Aug 21 - [Russia bombs US factory in one of war’s largest attacks](https://www.yahoo.com/news/articles/russia-bombs-us-factory-one-104750986.html)
-- Aug 21 - [Ukrainian man arrested over Nord Stream pipeline attacks](https://www.yahoo.com/news/articles/italy-arrests-ukrainian-over-nord-101242566.html)
-- Aug 21 - [Tourist hospitalized after terrifying attack at Florida beach: 'Severe lacerations to the upper arm area'](https://www.yahoo.com/news/articles/tourist-hospitalized-terrifying-attack-florida-091500866.html)
+- Aug 21 - [Nip/Tuck star Dylan Walsh and family involved in major car crash](https://www.yahoo.com/news/articles/nip-tuck-star-dylan-walsh-133806167.html)
+- Aug 21 - [Police: 4 adults and a 17-year-old girl arrested after a group shoplifting outing](https://www.yahoo.com/news/articles/police-4-adults-17-old-131459544.html)
+- Aug 21 - [Azerbaijan sounds the alarm over shallowing of Caspian Sea](https://www.yahoo.com/news/articles/azerbaijan-sounds-alarm-over-shallowing-123557949.html)
+- Aug 21 - [At least 350 are dead and 200 remain missing following devastating flash flood: 'Like it was the end of the world'](https://www.yahoo.com/news/articles/least-350-dead-200-remain-115500934.html)
 <!-- feed end -->
 
 ---
