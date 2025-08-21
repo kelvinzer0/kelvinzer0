@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [Italian divers water-blast the popular underwater statue of Christ off Portofino](https://www.yahoo.com/news/articles/italian-divers-water-blast-popular-145151676.html)
+- Aug 21 - [Appeals court throws out massive civil fraud penalty against President Donald Trump](https://www.yahoo.com/news/articles/appeals-court-throws-massive-civil-144304109.html)
+- Aug 21 - [Carlow University welcomes largest freshman class in school’s history](https://www.yahoo.com/news/articles/carlow-university-welcomes-largest-freshman-142047605.html)
 - Aug 21 - [Russia bombs US factory in one of war’s largest attacks](https://www.yahoo.com/news/articles/russia-bombs-us-factory-one-104750986.html)
-- Aug 21 - [Nip/Tuck star Dylan Walsh and family involved in major car crash](https://www.yahoo.com/news/articles/nip-tuck-star-dylan-walsh-133806167.html)
-- Aug 21 - [Police: 4 adults and a 17-year-old girl arrested after a group shoplifting outing](https://www.yahoo.com/news/articles/police-4-adults-17-old-131459544.html)
 - Aug 21 - [Azerbaijan sounds the alarm over shallowing of Caspian Sea](https://www.yahoo.com/news/articles/azerbaijan-sounds-alarm-over-shallowing-123557949.html)
-- Aug 21 - [At least 350 are dead and 200 remain missing following devastating flash flood: 'Like it was the end of the world'](https://www.yahoo.com/news/articles/least-350-dead-200-remain-115500934.html)
 <!-- feed end -->
 
 ---
