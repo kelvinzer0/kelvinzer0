@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 21 - [Dow Jones Futures: Palantir Leads Rally Off Lows, But Look At This; Walmart Earnings Due.](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-palantir-rally-off-lows-walmart-earnings-due/?src=A00220&yptr=yahoo)
-- Aug 20 - [Gov. Newsom reacts to Bed Bath & Beyond's refusal to open stores in California](https://www.yahoo.com/news/articles/gov-newsom-reacts-bed-bath-232617492.html)
-- Aug 20 - [Former Michigan State student sues college for $100 million after cancer diagnosis due to alleged chemical exposure](https://www.yahoo.com/news/articles/former-michigan-state-student-sues-163830775.html)
-- Aug 20 - [UPDATE: Husband arrested, charged in murder of Nikki McCain](https://www.yahoo.com/news/articles/husband-arrested-charged-murder-nikki-213055169.html)
-- Aug 20 - [Kentucky judge killed in chambers accused of trading sexual favors for influence at wild parties](https://www.yahoo.com/news/articles/kentucky-judge-killed-chambers-accused-212348599.html)
+- Aug 20 - [‘Nothing’s going to bring my son back’: A grieving family fighting for justice after son’s death](https://www.yahoo.com/news/articles/nothing-going-bring-son-back-233301791.html)
+- Aug 20 - [French streamer dies live online during extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 20 - [Barcelona ready to accept €30m offers for two players](https://sports.yahoo.com/article/barcelona-ready-accept-30m-offers-210000123.html)
+- Aug 20 - [Peru's gold exports to China through June overtake all 2024](https://finance.yahoo.com/news/perus-gold-exports-china-june-191719595.html)
 <!-- feed end -->
 
 ---
