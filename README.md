@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Aug 20 - [Part of Delta Air Lines 737’s wing breaks off during flight](https://www.yahoo.com/news/articles/part-delta-air-lines-737-214711191.html)
 - Aug 20 - [Barcelona ready to accept €30m offers for two players](https://sports.yahoo.com/article/barcelona-ready-accept-30m-offers-210000123.html)
+- Aug 20 - [US attorney will no longer bring felony charges against people for carrying rifles or shotguns in DC](https://www.yahoo.com/news/articles/us-attorney-no-longer-bring-194458425.html)
+- Aug 20 - [Hennessey’s 1,700-HP Demon V8 Targets Buyers After Dodge Ends Challenger Run](https://autos.yahoo.com/articles/hennessey-1-700-hp-demon-190058214.html)
 - Aug 20 - [Navy pilot rescued after ejecting from jet off Virginia coast](https://www.yahoo.com/news/articles/navy-pilot-rescued-ejecting-jet-182548552.html)
-- Aug 20 - [One Body Language Expert Spotted Something Very Telling When Donald Trump Put "His Palm Almost Under" Volodymyr Zelenskyy's Chin](https://www.yahoo.com/news/articles/one-body-language-expert-spotted-173552645.html)
-- Aug 20 - [New report: 2 NE Ohio public high schools named among Top 5 in state](https://www.yahoo.com/news/articles/report-2-ne-ohio-public-171215768.html)
 <!-- feed end -->
 
 ---
