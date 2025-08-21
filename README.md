@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Dow Jones Futures Fall Amid Walmart Earnings, Meta News After Palantir-Led Rally Off Lows](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-palantir-rally-off-lows-walmart-earnings-due/?src=A00220&yptr=yahoo)
-- Aug 21 - [A Ukrainian startup develops long-range drones and missiles to take the battle to Russia](https://www.yahoo.com/news/articles/ukrainian-startup-makes-drones-soon-051801344.html)
-- Aug 21 - [Netanyahu escalates attack on Australia's Albanese as Jewish group urges calm](https://www.yahoo.com/news/articles/netanyahu-escalates-attack-australias-albanese-050926349.html)
-- Aug 21 - [Ukraine’s answer to Russia’s drone blitz](https://www.yahoo.com/news/articles/ukraine-answer-russia-drone-blitz-050000268.html)
-- Aug 20 - [Part of Delta Air Lines 737’s wing breaks off during flight](https://www.yahoo.com/news/articles/part-delta-air-lines-737-214711191.html)
+- Aug 21 - [Cracker Barrel outrages conservatives with new logo: ‘This is your Bud Light moment’](https://www.yahoo.com/news/articles/cracker-barrel-outrages-conservatives-logo-111315697.html)
+- Aug 21 - [Russia bombs US factory in one of war’s largest attacks](https://www.yahoo.com/news/articles/russia-bombs-us-factory-one-104750986.html)
+- Aug 21 - [Ukrainian man arrested over Nord Stream pipeline attacks](https://www.yahoo.com/news/articles/italy-arrests-ukrainian-over-nord-101242566.html)
+- Aug 21 - [Hurricane Erin slams North Carolina, Virginia coasts with strong winds, powerful waves, dangerous rip currents](https://www.yahoo.com/news/articles/hurricane-erin-slams-north-carolina-101132558.html)
+- Aug 21 - [Trump Has A ‘Massive’ Midnight Meltdown In Flurry Of Social Media Posts](https://www.yahoo.com/news/articles/trump-massive-midnight-meltdown-flurry-083741122.html)
 <!-- feed end -->
 
 ---
