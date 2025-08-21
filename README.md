@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Cracker Barrel outrages conservatives with new logo: ‘This is your Bud Light moment’](https://www.yahoo.com/news/articles/cracker-barrel-outrages-conservatives-logo-111315697.html)
+- Aug 21 - [Missing Texas woman found living among lost ‘African’ tribe in Scotland](https://www.yahoo.com/news/articles/missing-texas-woman-found-living-195245583.html)
+- Aug 21 - [Belarus says it is looking at how to arm its missile systems with nuclear warheads](https://www.yahoo.com/news/articles/belarus-says-looking-arm-missile-120428646.html)
 - Aug 21 - [Russia bombs US factory in one of war’s largest attacks](https://www.yahoo.com/news/articles/russia-bombs-us-factory-one-104750986.html)
 - Aug 21 - [Ukrainian man arrested over Nord Stream pipeline attacks](https://www.yahoo.com/news/articles/italy-arrests-ukrainian-over-nord-101242566.html)
-- Aug 21 - [Hurricane Erin slams North Carolina, Virginia coasts with strong winds, powerful waves, dangerous rip currents](https://www.yahoo.com/news/articles/hurricane-erin-slams-north-carolina-101132558.html)
-- Aug 21 - [Trump Has A ‘Massive’ Midnight Meltdown In Flurry Of Social Media Posts](https://www.yahoo.com/news/articles/trump-massive-midnight-meltdown-flurry-083741122.html)
+- Aug 21 - [Tourist hospitalized after terrifying attack at Florida beach: 'Severe lacerations to the upper arm area'](https://www.yahoo.com/news/articles/tourist-hospitalized-terrifying-attack-florida-091500866.html)
 <!-- feed end -->
 
 ---
