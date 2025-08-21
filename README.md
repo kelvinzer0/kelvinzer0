@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [This is the key takeaway from fresh jobless claims data](https://finance.yahoo.com/video/key-takeaway-fresh-jobless-claims-183000402.html)
+- Aug 21 - [Wall Street slips as Walmart helps pull S&P 500 toward another loss](https://www.yahoo.com/news/videos/wall-street-slips-walmart-helps-201405985.html)
+- Aug 21 - [Rep. James Comer, a Republican, alleges that the revelation is further proof that the former president’s cognitive abilities had significantly declined by 2024.](https://www.yahoo.com/news/videos/rep-james-comer-republican-alleges-191105468.html)
+- Aug 21 - [New Route 66 signs launched in Texas with Big Texan partnership](https://www.yahoo.com/news/articles/route-66-signs-launched-texas-190841371.html)
+- Aug 21 - [Congresswoman charged in ICE jail melee says indictment leaves out key details](https://www.yahoo.com/news/articles/congresswoman-charged-ice-jail-melee-190525075.html)
 - Aug 21 - [Fatal Florida crash fuels immigration fight between DeSantis and Newsom](https://www.yahoo.com/news/articles/fatal-florida-crash-fuels-immigration-182549801.html)
-- Aug 21 - [Early morning earthquake rattles Western Washington awake, seismologists say](https://www.yahoo.com/news/articles/early-morning-earthquake-rattles-western-161939809.html)
-- Aug 21 - [Air France Flight Makes U-turn Over Atlantic Ocean After Pilot Sends Out Signal 'Mayday, Mayday, Mayday'](https://www.yahoo.com/news/articles/air-france-flight-makes-u-154253610.html)
-- Aug 21 - [Exclusive-Putin's demand to Ukraine: give up Donbas, no NATO and no Western troops, sources say](https://www.yahoo.com/news/articles/exclusive-putins-demand-ukraine-donbas-150626626.html)
 <!-- feed end -->
 
 ---
