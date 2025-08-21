@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 21 - [This is the key takeaway from fresh jobless claims data](https://finance.yahoo.com/video/key-takeaway-fresh-jobless-claims-183000402.html)
+- Aug 21 - [Fatal Florida crash fuels immigration fight between DeSantis and Newsom](https://www.yahoo.com/news/articles/fatal-florida-crash-fuels-immigration-182549801.html)
 - Aug 21 - [Early morning earthquake rattles Western Washington awake, seismologists say](https://www.yahoo.com/news/articles/early-morning-earthquake-rattles-western-161939809.html)
-- Aug 21 - [These 6 high schools in El Paso among the top 100 in Texas, according to report](https://www.yahoo.com/news/articles/6-high-schools-el-paso-151423702.html)
+- Aug 21 - [Air France Flight Makes U-turn Over Atlantic Ocean After Pilot Sends Out Signal 'Mayday, Mayday, Mayday'](https://www.yahoo.com/news/articles/air-france-flight-makes-u-154253610.html)
 - Aug 21 - [Exclusive-Putin's demand to Ukraine: give up Donbas, no NATO and no Western troops, sources say](https://www.yahoo.com/news/articles/exclusive-putins-demand-ukraine-donbas-150626626.html)
-- Aug 21 - [Russia bombs US factory in one of war’s largest attacks](https://www.yahoo.com/news/articles/russia-bombs-us-factory-one-104750986.html)
-- Aug 21 - [MAGA loyalist warns ‘declining’ Trump: ‘Collapse’ is coming](https://www.yahoo.com/news/articles/maga-loyalist-warns-declining-trump-145818446.html)
 <!-- feed end -->
 
 ---
