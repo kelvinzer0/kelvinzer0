@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Russia orders state-backed app, WhatsApp rival, to be pre-installed on all phones and tablets](https://finance.yahoo.com/news/russia-orders-state-backed-app-080441765.html)
-- Aug 21 - [Ten hurt, 90 arrested as match abandoned following fan violence in Argentina](https://sports.yahoo.com/article/ten-hurt-90-arrested-match-072503092.html)
-- Aug 21 - [The remote captain: How technology is steering inland shipping](https://tech.yahoo.com/transportation/articles/remote-captain-technology-steering-inland-070238456.html)
+- Aug 21 - [McDonald's cuts prices as US consumers feel the pinch: WSJ](https://finance.yahoo.com/video/mcdonalds-cuts-prices-us-consumers-082826386.html)
+- Aug 21 - [Russia hits Ukraine with 'massive' drone, missile attack, Kyiv says](https://www.yahoo.com/news/articles/russia-hits-ukraine-massive-drone-080935065.html)
+- Aug 21 - [‘Condescending P***k’: JD Vance’s Zelenskyy-Oval Office Anecdote Backfires Online](https://www.yahoo.com/news/articles/condescending-p-k-jd-vance-074405496.html)
+- Aug 21 - [Gymnast who sparked abuse inquiry into coach at elite US academy says she 'needed to speak out'](https://www.yahoo.com/news/articles/gymnast-sparked-abuse-inquiry-coach-040427784.html)
 - Aug 20 - [Gov. Newsom reacts to Bed Bath & Beyond's refusal to open stores in California](https://www.yahoo.com/news/articles/gov-newsom-reacts-bed-bath-232617492.html)
-- Aug 20 - [Former Michigan State student sues college for $100 million after cancer diagnosis due to alleged chemical exposure](https://www.yahoo.com/news/articles/former-michigan-state-student-sues-163830775.html)
 <!-- feed end -->
 
 ---
