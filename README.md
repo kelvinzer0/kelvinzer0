@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Netanyahu escalates attack on Australia's Albanese as Jewish group urges calm](https://www.yahoo.com/news/articles/netanyahu-escalates-attack-australias-albanese-050926349.html)
-- Aug 21 - [Rescued infant gorilla recuperating at Istanbul zoo set for return to natural habitat in Nigeria](https://www.yahoo.com/news/videos/rescued-infant-gorilla-recuperating-istanbul-050103078.html)
-- Aug 20 - [Former Michigan State student sues college for $100 million after cancer diagnosis due to alleged chemical exposure](https://www.yahoo.com/news/articles/former-michigan-state-student-sues-163830775.html)
+- Aug 21 - [Ben-Gvir hangs images of ruined Gaza in jails to intimidate Palestinian prisoners, Barghouti claims](https://www.yahoo.com/news/articles/ben-gvir-hangs-pictures-ruined-035509437.html)
+- Aug 20 - [Part of Delta Air Lines 737’s wing breaks off during flight](https://www.yahoo.com/news/articles/part-delta-air-lines-737-214711191.html)
 - Aug 20 - [“I know we have a crisis,” said the Infowars conspiracy theorist, who urged the president to reduce his work hours and rest—or else.](https://www.yahoo.com/news/videos/know-crisis-said-infowars-conspiracy-214452837.html)
-- Aug 20 - [Kentucky judge killed in chambers accused of trading sexual favors for influence at wild parties](https://www.yahoo.com/news/articles/kentucky-judge-killed-chambers-accused-212348599.html)
+- Aug 20 - [US attorney will no longer bring felony charges against people for carrying rifles or shotguns in DC](https://www.yahoo.com/news/articles/us-attorney-no-longer-bring-194458425.html)
+- Aug 20 - [Hennessey’s 1,700-HP Demon V8 Targets Buyers After Dodge Ends Challenger Run](https://autos.yahoo.com/articles/hennessey-1-700-hp-demon-190058214.html)
 <!-- feed end -->
 
 ---
