@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 20 - [21-year-old University of Oregon student dies after crash near campus](https://www.yahoo.com/news/articles/21-old-university-oregon-student-212101715.html)
-- Aug 20 - [French streamer dies live online after apparent extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
-- Aug 20 - [Peru's gold exports to China through June overtake all 2024](https://finance.yahoo.com/news/perus-gold-exports-china-june-191719595.html)
-- Aug 20 - [Hurricane Erin Swallows Homes, ‘20ft Waves’ Incoming (Video)](https://www.yahoo.com/news/articles/hurricane-erin-swallows-homes-20ft-191031141.html)
-- Aug 20 - [Hennessey’s 1,700-HP Demon V8 Targets Buyers After Dodge Ends Challenger Run](https://autos.yahoo.com/articles/hennessey-1-700-hp-demon-190058214.html)
+- Aug 21 - [Dow Jones Futures: Palantir Leads Rally Off Lows, But Look At This; Walmart Earnings Due.](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-palantir-rally-off-lows-walmart-earnings-due/?src=A00220&yptr=yahoo)
+- Aug 20 - [Gov. Newsom reacts to Bed Bath & Beyond's refusal to open stores in California](https://www.yahoo.com/news/articles/gov-newsom-reacts-bed-bath-232617492.html)
+- Aug 20 - [Former Michigan State student sues college for $100 million after cancer diagnosis due to alleged chemical exposure](https://www.yahoo.com/news/articles/former-michigan-state-student-sues-163830775.html)
+- Aug 20 - [UPDATE: Husband arrested, charged in murder of Nikki McCain](https://www.yahoo.com/news/articles/husband-arrested-charged-murder-nikki-213055169.html)
+- Aug 20 - [Kentucky judge killed in chambers accused of trading sexual favors for influence at wild parties](https://www.yahoo.com/news/articles/kentucky-judge-killed-chambers-accused-212348599.html)
 <!-- feed end -->
 
 ---
