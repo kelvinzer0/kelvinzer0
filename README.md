@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Drew Molly, at the forefront of Corpus Christi water supply projects, has resigned](https://www.yahoo.com/news/articles/drew-molly-forefront-corpus-christi-152638478.html)
-- Aug 21 - [Bernstein Raises TechnipFMC Price Target After Strong Q2 Results and Robotics Growth](https://finance.yahoo.com/news/bernstein-raises-technipfmc-price-target-151519391.html)
+- Aug 21 - [Federal investigators demanded details on transgender patients from at least 1 hospital](https://www.yahoo.com/news/articles/federal-investigators-demanded-details-transgender-170035617.html)
+- Aug 21 - [Leaker Claims iPhone 17 Cases May Switch To Synthetic TechWoven Material](https://tech.yahoo.com/phones/articles/leaker-claims-iphone-17-cases-160000776.html)
 - Aug 21 - [Exclusive-Putin's demand to Ukraine: give up Donbas, no NATO and no Western troops, sources say](https://www.yahoo.com/news/articles/exclusive-putins-demand-ukraine-donbas-150626626.html)
 - Aug 21 - [Russia bombs US factory in one of war’s largest attacks](https://www.yahoo.com/news/articles/russia-bombs-us-factory-one-104750986.html)
-- Aug 21 - [Italian divers water-blast the popular underwater statue of Christ off Portofino](https://www.yahoo.com/news/articles/italian-divers-water-blast-popular-145151676.html)
+- Aug 21 - [Appeals court throws out massive civil fraud penalty against President Donald Trump](https://www.yahoo.com/news/articles/appeals-court-throws-massive-civil-144304109.html)
 <!-- feed end -->
 
 ---
