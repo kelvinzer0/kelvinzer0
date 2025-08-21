@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Salina Tech partners with local company to offer apprenticeships](https://www.yahoo.com/news/articles/salina-tech-partners-local-company-090621137.html)
-- Aug 21 - [Trump Has A 'Massive' Midnight Meltdown In Flurry Of Social Media Posts](https://www.yahoo.com/news/articles/trump-massive-midnight-meltdown-flurry-083741122.html)
-- Aug 21 - [‘Condescending P***k’: JD Vance’s Zelenskyy-Oval Office Anecdote Backfires Online](https://www.yahoo.com/news/articles/condescending-p-k-jd-vance-074405496.html)
+- Aug 21 - [Dow Jones Futures Fall Amid Walmart Earnings, Meta News After Palantir-Led Rally Off Lows](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-palantir-rally-off-lows-walmart-earnings-due/?src=A00220&yptr=yahoo)
 - Aug 21 - [A Ukrainian startup develops long-range drones and missiles to take the battle to Russia](https://www.yahoo.com/news/articles/ukrainian-startup-makes-drones-soon-051801344.html)
 - Aug 21 - [Netanyahu escalates attack on Australia's Albanese as Jewish group urges calm](https://www.yahoo.com/news/articles/netanyahu-escalates-attack-australias-albanese-050926349.html)
+- Aug 21 - [Ukraine’s answer to Russia’s drone blitz](https://www.yahoo.com/news/articles/ukraine-answer-russia-drone-blitz-050000268.html)
+- Aug 20 - [Part of Delta Air Lines 737’s wing breaks off during flight](https://www.yahoo.com/news/articles/part-delta-air-lines-737-214711191.html)
 <!-- feed end -->
 
 ---
