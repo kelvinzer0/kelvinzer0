@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Dow Jones Futures: Palantir Leads Rally Off Lows, But Look At This; Walmart Earnings Due.](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-palantir-rally-off-lows-walmart-earnings-due/?src=A00220&yptr=yahoo)
-- Aug 20 - [‘Nothing’s going to bring my son back’: A grieving family fighting for justice after son’s death](https://www.yahoo.com/news/articles/nothing-going-bring-son-back-233301791.html)
-- Aug 20 - [French streamer dies live online during extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 20 - [Part of Delta Air Lines 737’s wing breaks off during flight](https://www.yahoo.com/news/articles/part-delta-air-lines-737-214711191.html)
 - Aug 20 - [Barcelona ready to accept €30m offers for two players](https://sports.yahoo.com/article/barcelona-ready-accept-30m-offers-210000123.html)
-- Aug 20 - [Peru's gold exports to China through June overtake all 2024](https://finance.yahoo.com/news/perus-gold-exports-china-june-191719595.html)
+- Aug 20 - [Navy pilot rescued after ejecting from jet off Virginia coast](https://www.yahoo.com/news/articles/navy-pilot-rescued-ejecting-jet-182548552.html)
+- Aug 20 - [One Body Language Expert Spotted Something Very Telling When Donald Trump Put "His Palm Almost Under" Volodymyr Zelenskyy's Chin](https://www.yahoo.com/news/articles/one-body-language-expert-spotted-173552645.html)
+- Aug 20 - [New report: 2 NE Ohio public high schools named among Top 5 in state](https://www.yahoo.com/news/articles/report-2-ne-ohio-public-171215768.html)
 <!-- feed end -->
 
 ---
