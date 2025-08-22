@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Kentucky Transportation Cabinet announces lane and ramp closures on Gene Snyder Freeway](https://www.yahoo.com/news/articles/kentucky-transportation-cabinet-announces-lane-160539015.html)
-- Aug 22 - [West Allis man gets 20-year sentence for OWI crash that killed 17-year-old Megan Voss](https://www.yahoo.com/news/articles/west-allis-man-gets-20-155603004.html)
-- Aug 22 - [Powell opens the door to a rate cut](https://finance.yahoo.com/video/powell-opens-door-rate-cut-140609527.html)
-- Aug 22 - [‘I learned a hard lesson’: My ex-husband gambled away our $900,000 life savings. Do I use my 401(k) to buy a home?](https://finance.yahoo.com/news/learned-hard-lesson-ex-husband-231400092.html)
+- Aug 22 - [Fed Chair Jerome Powell talks inflation, employment, no firm rate cut details](https://finance.yahoo.com/news/fed-chair-jerome-powell-talks-155038181.html)
+- Aug 22 - [25 photos show what life looked like for Americans 150 years ago](https://www.yahoo.com/news/articles/25-photos-show-life-looked-131309947.html)
+- Aug 22 - [Fox News host Jesse Watters—long rumored to wear eyeliner on TV—disparaged Gavin Newsom’s manliness and strength.](https://www.yahoo.com/news/videos/fox-news-host-jesse-watters-115446464.html)
 - Aug 22 - [FBI searches home and office of ex-Trump national security adviser John Bolton](https://www.yahoo.com/news/articles/fbi-searches-home-former-trump-113837080.html)
+- Aug 22 - [Satellite images show Russia's got a new front-line drone launch site that cuts Ukraine's reaction time but puts the base at risk](https://www.yahoo.com/news/articles/satellite-images-show-russias-got-102901885.html)
 <!-- feed end -->
 
 ---
