@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Fed Rate Cut Will Slow Economy Down, JPMorgan's Kelly Warns](https://finance.yahoo.com/video/fed-rate-cut-slow-economy-200302414.html)
+- Aug 22 - [Multiple fatalities, including children, after tour bus with about 50 people crashes in New York State, officials say](https://www.yahoo.com/news/articles/multiple-fatalities-including-children-tour-184206885.html)
 - Aug 22 - [Shipping giant hit with $1 billion fine after causing one of worst marine disasters in history: 'Unprecedented devastation'](https://www.yahoo.com/news/articles/shipping-giant-hit-1-billion-194500541.html)
 - Aug 22 - [Hegseth fires general whose agency's intel assessment of damage from Iran strikes angered Trump](https://www.yahoo.com/news/articles/hegseth-fires-general-whose-agencys-191904638.html)
-- Aug 22 - [Parents of Missing Baby Emmanuel Haro Arrested for Suspicion of Murder After Shocking Twist in Case](https://www.yahoo.com/news/articles/parents-missing-baby-emmanuel-haro-174626201.html)
-- Aug 22 - [Ron DeSantis scoffs at judge’s order shutting down “Alligator Alcatraz”](https://www.yahoo.com/news/articles/ron-desantis-scoffs-judge-order-163048537.html)
-- Aug 22 - [Eating This Vegetable Could Lower Your Dementia Risk, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/eating-vegetable-could-lower-dementia-133000903.html)
+- Aug 22 - [Hundreds Of Microsoft Employees Just Revealed Their Pay — From $111K To $340K — As Company Fights To Keep AI Talent From Meta](https://finance.yahoo.com/news/hundreds-microsoft-employees-just-revealed-183103012.html)
 <!-- feed end -->
 
 ---
