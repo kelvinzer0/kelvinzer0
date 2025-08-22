@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [How Palm Beach Gardens is growing: Aldi, shops, restaurants coming to Coconut Crossing](https://www.yahoo.com/news/articles/palm-beach-gardens-growing-aldi-090741994.html)
-- Aug 22 - [Thai court dismisses royal insult case against former prime minister](https://www.yahoo.com/news/videos/thai-court-dismisses-royal-insult-083657577.html)
-- Aug 22 - [Israel's defense minister says Gaza City could be destroyed](https://www.yahoo.com/news/articles/israels-defense-minister-says-gaza-062845170.html)
-- Aug 22 - [Katie Couric Dismisses Jillian Michaels’ Claim That Slavery Isn’t That Big a Deal: ‘She’s a Fitness Instructor, Not a Historian’ | Video](https://www.yahoo.com/news/articles/katie-couric-dismisses-jillian-michaels-010159326.html)
-- Aug 21 - [French streamer dies live online during extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 22 - [Ex-pastor at Pete Hegseth’s church calls for public executions and says Bible backs Ice raids](https://www.yahoo.com/news/articles/ex-pastor-pete-hegseth-church-110030335.html)
+- Aug 22 - [Top European diplomat says Putin is setting 'a trap' by demanding Ukraine concessions](https://www.yahoo.com/news/articles/top-european-diplomat-says-putin-095455897.html)
+- Aug 22 - [Fact Check: US Senate Democrats introduced resolution to eliminate Electoral College and 'restore democracy.' Here's what we know](https://www.yahoo.com/news/articles/fact-check-us-senate-democrats-013000179.html)
+- Aug 22 - [Nvidia orders suppliers to halt work on China-focussed H20 AI chip, The Information says](https://finance.yahoo.com/news/nvidia-orders-halt-h20-chip-001843935.html)
+- Aug 21 - [Meta signs over $10 billion cloud deal with Google, source says](https://finance.yahoo.com/news/meta-signs-10-billion-plus-230020207.html)
 <!-- feed end -->
 
 ---
