@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Fed Chair Jerome Powell talks inflation, employment, no firm rate cut details](https://finance.yahoo.com/news/fed-chair-jerome-powell-talks-155038181.html)
-- Aug 22 - [25 photos show what life looked like for Americans 150 years ago](https://www.yahoo.com/news/articles/25-photos-show-life-looked-131309947.html)
-- Aug 22 - [Fox News host Jesse Watters—long rumored to wear eyeliner on TV—disparaged Gavin Newsom’s manliness and strength.](https://www.yahoo.com/news/videos/fox-news-host-jesse-watters-115446464.html)
+- Aug 22 - [Famine in Gaza declared despite Israeli denials as UN calls it ‘moment of collective shame for world’](https://www.yahoo.com/news/articles/un-backed-body-formally-declare-072709577.html)
+- Aug 22 - [Missing baby Emmanuel Haro’s parents arrested for murder in Cabazon](https://www.yahoo.com/news/articles/missing-baby-emmanuel-haro-parents-171710896.html)
+- Aug 22 - [Eating This Vegetable Could Lower Your Dementia Risk, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/eating-vegetable-could-lower-dementia-133000903.html)
+- Aug 22 - [Scientists Found an Undersea Metropolis That Dwarfs the Atlantic’s ‘Lost City’](https://www.yahoo.com/news/articles/scientists-found-undersea-metropolis-dwarfs-120000722.html)
 - Aug 22 - [FBI searches home and office of ex-Trump national security adviser John Bolton](https://www.yahoo.com/news/articles/fbi-searches-home-former-trump-113837080.html)
-- Aug 22 - [Satellite images show Russia's got a new front-line drone launch site that cuts Ukraine's reaction time but puts the base at risk](https://www.yahoo.com/news/articles/satellite-images-show-russias-got-102901885.html)
 <!-- feed end -->
 
 ---
