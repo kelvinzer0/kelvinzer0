@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Famine in Gaza declared despite Israeli denials as UN calls it ‘moment of collective shame for world’](https://www.yahoo.com/news/articles/un-backed-body-formally-declare-072709577.html)
-- Aug 22 - [New Bodycam Footage Shows Cops Discovering Scene of Bryan Kohberger’s Stabbing Spree: ‘Oh, Man’](https://www.yahoo.com/news/articles/bodycam-footage-shows-cops-discovering-182941371.html)
-- Aug 22 - [Bolton investigated over classified documents, not politics: VP Vance tells NBC](https://www.yahoo.com/news/articles/bolton-investigated-over-classified-documents-181821631.html)
-- Aug 22 - [25 photos show what life looked like for Americans 150 years ago](https://www.yahoo.com/news/articles/25-photos-show-life-looked-131309405.html)
-- Aug 22 - [Missing baby Emmanuel Haro’s parents arrested for murder in Cabazon](https://www.yahoo.com/news/articles/missing-baby-emmanuel-haro-parents-171710896.html)
+- Aug 22 - [Shipping giant hit with $1 billion fine after causing one of worst marine disasters in history: 'Unprecedented devastation'](https://www.yahoo.com/news/articles/shipping-giant-hit-1-billion-194500541.html)
+- Aug 22 - [Hegseth fires general whose agency's intel assessment of damage from Iran strikes angered Trump](https://www.yahoo.com/news/articles/hegseth-fires-general-whose-agencys-191904638.html)
+- Aug 22 - [Parents of Missing Baby Emmanuel Haro Arrested for Suspicion of Murder After Shocking Twist in Case](https://www.yahoo.com/news/articles/parents-missing-baby-emmanuel-haro-174626201.html)
+- Aug 22 - [Ron DeSantis scoffs at judge’s order shutting down “Alligator Alcatraz”](https://www.yahoo.com/news/articles/ron-desantis-scoffs-judge-order-163048537.html)
+- Aug 22 - [Eating This Vegetable Could Lower Your Dementia Risk, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/eating-vegetable-could-lower-dementia-133000903.html)
 <!-- feed end -->
 
 ---
