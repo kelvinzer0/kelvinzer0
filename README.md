@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Nvidia chief says H20 chip shipments to China not a security concern](https://finance.yahoo.com/news/nvidia-chief-says-h20-chip-033538435.html)
-- Aug 22 - [Nvidia CEO in Taipei to visit TSMC, says in talks with US over new China chip](https://finance.yahoo.com/news/nvidia-ceo-taipei-visit-tsmc-025303358.html)
-- Aug 22 - [Getting In The Ring With A Chinese Robot Boxer](https://finance.yahoo.com/video/getting-ring-chinese-robot-boxer-010722236.html)
 - Aug 22 - [Nvidia orders suppliers to halt work on China-focussed H20 AI chip, The Information says](https://finance.yahoo.com/news/nvidia-orders-halt-h20-chip-001843935.html)
 - Aug 21 - [Meta signs over $10 billion cloud deal with Google, source says](https://finance.yahoo.com/news/meta-signs-10-billion-plus-230020207.html)
+- Aug 21 - [America's last living ace pilot from World War II dies at age 103](https://www.yahoo.com/news/articles/americas-last-living-ace-pilot-222220035.html)
+- Aug 21 - [Cracker Barrel loses $94 million in a day after disastrous rebrand sparks MAGA outrage](https://finance.yahoo.com/news/cracker-barrel-loses-94-million-203057114.html)
+- Aug 21 - [Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push](https://www.yahoo.com/news/articles/supreme-court-lets-trump-administration-204843959.html)
 <!-- feed end -->
 
 ---
