@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Trump’s MAGA corners Musk over new report, which would be embarrassing if true](https://www.yahoo.com/news/articles/trump-maga-corners-musk-over-140640011.html)
+- Aug 22 - [Kentucky Transportation Cabinet announces lane and ramp closures on Gene Snyder Freeway](https://www.yahoo.com/news/articles/kentucky-transportation-cabinet-announces-lane-160539015.html)
+- Aug 22 - [West Allis man gets 20-year sentence for OWI crash that killed 17-year-old Megan Voss](https://www.yahoo.com/news/articles/west-allis-man-gets-20-155603004.html)
+- Aug 22 - [Powell opens the door to a rate cut](https://finance.yahoo.com/video/powell-opens-door-rate-cut-140609527.html)
 - Aug 22 - [‘I learned a hard lesson’: My ex-husband gambled away our $900,000 life savings. Do I use my 401(k) to buy a home?](https://finance.yahoo.com/news/learned-hard-lesson-ex-husband-231400092.html)
 - Aug 22 - [FBI searches home and office of ex-Trump national security adviser John Bolton](https://www.yahoo.com/news/articles/fbi-searches-home-former-trump-113837080.html)
-- Aug 22 - [Three Broome County eateries have flawless health inspections; two marked with critical violations in July](https://www.yahoo.com/news/articles/three-broome-county-eateries-flawless-091916973.html)
-- Aug 22 - [1 Glorious Growth Stock Down 75% to Buy Hand Over Fist, According to Wall Street](https://finance.yahoo.com/news/1-glorious-growth-stock-down-080900052.html)
 <!-- feed end -->
 
 ---
