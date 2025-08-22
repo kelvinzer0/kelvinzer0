@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 21 - [Video: MSP helicopter team spots missing man with dementia](https://www.yahoo.com/news/videos/video-msp-helicopter-team-spots-220942509.html)
-- Aug 21 - [Man arrested in terrifying dawn raid after sharing Facebook posts backing Palestine Action](https://www.yahoo.com/news/articles/man-arrested-terrifying-dawn-raid-185514291.html)
-- Aug 21 - [Lil Nas X arrested, hospitalized for reported overdose after being seen roaming Los Angeles streets in his underwear](https://www.yahoo.com/entertainment/celebrity/article/lil-nas-x-arrested-hospitalized-for-reported-overdose-after-being-seen-roaming-los-angeles-streets-in-his-underwear-213926892.html)
+- Aug 22 - [Opinion | James Dobson’s harsh, disciplinarian Christianity changed GOP politics](https://www.yahoo.com/news/articles/opinion-james-dobson-harsh-disciplinarian-004615431.html)
+- Aug 22 - [Nvidia orders suppliers to halt work on China-focussed H20 AI chip, The Information says](https://finance.yahoo.com/news/nvidia-orders-halt-h20-chip-001843935.html)
+- Aug 21 - [French streamer dies live online during extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 21 - [America's last living ace pilot from World War II dies at age 103](https://www.yahoo.com/news/articles/americas-last-living-ace-pilot-222220035.html)
 - Aug 21 - [Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push](https://www.yahoo.com/news/articles/supreme-court-lets-trump-administration-204843959.html)
-- Aug 21 - [Judge rules former Trump lawyer Alina Habba was unlawfully appointed as US Attorney](https://www.yahoo.com/news/articles/judge-rules-alina-habba-unlawfully-193930474.html)
 <!-- feed end -->
 
 ---
