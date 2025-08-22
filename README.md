@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 22 - [Five policemen killed in attack in restive southeast Iran](https://www.yahoo.com/news/articles/five-policemen-killed-attack-restive-205335094.html)
+- Aug 22 - [Vietnam island building in Spratlys may soon surpass China's, report says](https://www.yahoo.com/news/articles/vietnam-island-building-spratlys-may-204550371.html)
+- Aug 22 - [North Carolina Supreme Court says bars' COVID-19 lawsuits can continue](https://www.yahoo.com/news/articles/north-carolina-supreme-court-says-204036036.html)
+- Aug 22 - [What Ghislaine Maxwell told deputy AG about former President Bill Clinton](https://www.yahoo.com/news/articles/ghislaine-maxwell-told-deputy-ag-202000641.html)
 - Aug 22 - [Fed Rate Cut Will Slow Economy Down, JPMorgan's Kelly Warns](https://finance.yahoo.com/video/fed-rate-cut-slow-economy-200302414.html)
-- Aug 22 - [Multiple fatalities, including children, after tour bus with about 50 people crashes in New York State, officials say](https://www.yahoo.com/news/articles/multiple-fatalities-including-children-tour-184206885.html)
-- Aug 22 - [Shipping giant hit with $1 billion fine after causing one of worst marine disasters in history: 'Unprecedented devastation'](https://www.yahoo.com/news/articles/shipping-giant-hit-1-billion-194500541.html)
-- Aug 22 - [Hegseth fires general whose agency's intel assessment of damage from Iran strikes angered Trump](https://www.yahoo.com/news/articles/hegseth-fires-general-whose-agencys-191904638.html)
-- Aug 22 - [Hundreds Of Microsoft Employees Just Revealed Their Pay — From $111K To $340K — As Company Fights To Keep AI Talent From Meta](https://finance.yahoo.com/news/hundreds-microsoft-employees-just-revealed-183103012.html)
 <!-- feed end -->
 
 ---
