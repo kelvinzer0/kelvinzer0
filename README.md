@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 22 - [Famine in Gaza declared despite Israeli denials as UN calls it ‘moment of collective shame for world’](https://www.yahoo.com/news/articles/un-backed-body-formally-declare-072709577.html)
+- Aug 22 - [New Bodycam Footage Shows Cops Discovering Scene of Bryan Kohberger’s Stabbing Spree: ‘Oh, Man’](https://www.yahoo.com/news/articles/bodycam-footage-shows-cops-discovering-182941371.html)
+- Aug 22 - [Bolton investigated over classified documents, not politics: VP Vance tells NBC](https://www.yahoo.com/news/articles/bolton-investigated-over-classified-documents-181821631.html)
+- Aug 22 - [25 photos show what life looked like for Americans 150 years ago](https://www.yahoo.com/news/articles/25-photos-show-life-looked-131309405.html)
 - Aug 22 - [Missing baby Emmanuel Haro’s parents arrested for murder in Cabazon](https://www.yahoo.com/news/articles/missing-baby-emmanuel-haro-parents-171710896.html)
-- Aug 22 - [Eating This Vegetable Could Lower Your Dementia Risk, According to Dietitians](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/eating-vegetable-could-lower-dementia-133000903.html)
-- Aug 22 - [Scientists Found an Undersea Metropolis That Dwarfs the Atlantic’s ‘Lost City’](https://www.yahoo.com/news/articles/scientists-found-undersea-metropolis-dwarfs-120000722.html)
-- Aug 22 - [FBI searches home and office of ex-Trump national security adviser John Bolton](https://www.yahoo.com/news/articles/fbi-searches-home-former-trump-113837080.html)
 <!-- feed end -->
 
 ---
