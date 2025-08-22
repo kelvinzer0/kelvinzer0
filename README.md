@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 22 - [FBI searches home and office of ex-Trump national security adviser John Bolton, AP source says](https://www.yahoo.com/news/articles/fbi-searches-home-former-trump-113837080.html)
-- Aug 22 - [Russia's chief diplomat says no Putin-Zelenskyy meeting is planned, despite Trump's efforts](https://www.yahoo.com/news/articles/top-european-diplomat-says-putin-095455897.html)
-- Aug 22 - [Man, 23, arrested in brutal beating of woman at sold-out Rose Bowl concert](https://www.yahoo.com/news/articles/man-23-arrested-brutal-beating-025307635.html)
-- Aug 22 - [Why Trump’s Bedtime Habits Rub White House the Wrong Way: Author](https://www.yahoo.com/news/articles/why-trump-bedtime-habits-rub-015923451.html)
-- Aug 22 - [Nvidia orders suppliers to halt work on China-focussed H20 AI chip, The Information says](https://finance.yahoo.com/news/nvidia-orders-halt-h20-chip-001843935.html)
+- Aug 22 - [Investors zero in on Nvidia results as US tech stocks waver](https://finance.yahoo.com/news/investors-zero-nvidia-results-us-101052967.html)
+- Aug 22 - [Zacks Investment Ideas feature highlights: NVIDIA](https://finance.yahoo.com/news/zacks-investment-ideas-feature-highlights-080700988.html)
+- Aug 22 - [China's imports of US rare earth ore surge in July](https://finance.yahoo.com/news/chinas-imports-us-rare-earth-074426831.html)
+- Aug 22 - [Kim Jong Un says his ‘heart aches’ over North Korean soldiers killed fighting for Russia, in rare admission of losses](https://www.yahoo.com/news/articles/kim-jong-un-says-heart-031526226.html)
 <!-- feed end -->
 
 ---
