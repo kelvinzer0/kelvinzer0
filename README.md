@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 22 - [FBI searches home and office of ex-Trump national security adviser John Bolton, AP source says](https://www.yahoo.com/news/articles/fbi-searches-home-former-trump-113837080.html)
-- Aug 22 - [Investors zero in on Nvidia results as US tech stocks waver](https://finance.yahoo.com/news/investors-zero-nvidia-results-us-101052967.html)
-- Aug 22 - [Zacks Investment Ideas feature highlights: NVIDIA](https://finance.yahoo.com/news/zacks-investment-ideas-feature-highlights-080700988.html)
+- Aug 22 - [Satellite images show Russia's got a new front-line drone launch site that cuts Ukraine's reaction time but puts the base at risk](https://www.yahoo.com/news/articles/satellite-images-show-russias-got-102901885.html)
 - Aug 22 - [China's imports of US rare earth ore surge in July](https://finance.yahoo.com/news/chinas-imports-us-rare-earth-074426831.html)
-- Aug 22 - [Kim Jong Un says his ‘heart aches’ over North Korean soldiers killed fighting for Russia, in rare admission of losses](https://www.yahoo.com/news/articles/kim-jong-un-says-heart-031526226.html)
+- Aug 22 - [Norway makes one of biggest North Sea discoveries in a decade](https://finance.yahoo.com/news/norway-makes-one-biggest-north-060000049.html)
+- Aug 22 - [Man, 23, arrested in brutal beating of woman at sold-out Rose Bowl concert](https://www.yahoo.com/news/articles/man-23-arrested-brutal-beating-025307635.html)
 <!-- feed end -->
 
 ---
