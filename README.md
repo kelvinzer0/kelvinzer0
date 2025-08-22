@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Hours before interviewing Patel and Bondi, Hannity bragged he wouldn’t ask about Epstein. He stayed true to his word](https://www.yahoo.com/news/articles/hours-interviewing-patel-bondi-hannity-162333829.html)
-- Aug 22 - [Kim Jong Un says his ‘heart aches’ over North Korean soldiers killed fighting for Russia, in rare admission of losses](https://www.yahoo.com/news/articles/kim-jong-un-says-heart-031526226.html)
-- Aug 22 - [Nvidia CEO in Taipei to visit TSMC, says in talks with US over new China chip](https://finance.yahoo.com/news/nvidia-ceo-taipei-visit-tsmc-025303358.html)
+- Aug 22 - [How Palm Beach Gardens is growing: Aldi, shops, restaurants coming to Coconut Crossing](https://www.yahoo.com/news/articles/palm-beach-gardens-growing-aldi-090741994.html)
+- Aug 22 - [Thai court dismisses royal insult case against former prime minister](https://www.yahoo.com/news/videos/thai-court-dismisses-royal-insult-083657577.html)
+- Aug 22 - [Israel's defense minister says Gaza City could be destroyed](https://www.yahoo.com/news/articles/israels-defense-minister-says-gaza-062845170.html)
+- Aug 22 - [Katie Couric Dismisses Jillian Michaels’ Claim That Slavery Isn’t That Big a Deal: ‘She’s a Fitness Instructor, Not a Historian’ | Video](https://www.yahoo.com/news/articles/katie-couric-dismisses-jillian-michaels-010159326.html)
 - Aug 21 - [French streamer dies live online during extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
-- Aug 21 - ["It’s Like McDonald’s Telling You Not To Eat Fast Food": The Internet Is Dragging Sean Hannity For His Total Lack Of Self-Awareness](https://www.yahoo.com/news/articles/clip-sean-hannity-trying-down-230019816.html)
 <!-- feed end -->
 
 ---
