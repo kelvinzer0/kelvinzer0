@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Kim Jong Un says his ‘heart aches’ over North Korean soldiers killed fighting for Russia, in rare admission of losses](https://www.yahoo.com/news/articles/kim-jong-un-says-heart-031526226.html)
-- Aug 22 - [Nvidia CEO in Taipei to visit TSMC, says in talks with US over new China chip](https://finance.yahoo.com/news/nvidia-ceo-taipei-visit-tsmc-025303358.html)
+- Aug 22 - [Whales and dolphins are increasingly getting stranded around Scotland’s shores, study warns](https://www.yahoo.com/news/articles/whales-dolphins-increasingly-getting-stranded-073232361.html)
 - Aug 22 - [Nvidia orders suppliers to halt work on China-focussed H20 AI chip, The Information says](https://finance.yahoo.com/news/nvidia-orders-halt-h20-chip-001843935.html)
-- Aug 21 - [America's last living ace pilot from World War II dies at age 103](https://www.yahoo.com/news/articles/americas-last-living-ace-pilot-222220035.html)
-- Aug 21 - [Cracker Barrel loses $94 million in a day after disastrous rebrand sparks MAGA outrage](https://finance.yahoo.com/news/cracker-barrel-loses-94-million-203057114.html)
+- Aug 21 - [French streamer dies live online during extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 21 - [BREAKING: Trump administration immediately pausing all new commercial truck driver work visas](https://www.yahoo.com/news/articles/breaking-trump-administration-immediately-pausing-232620898.html)
+- Aug 21 - ["It’s Like McDonald’s Telling You Not To Eat Fast Food": The Internet Is Dragging Sean Hannity For His Total Lack Of Self-Awareness](https://www.yahoo.com/news/articles/clip-sean-hannity-trying-down-230019816.html)
 <!-- feed end -->
 
 ---
