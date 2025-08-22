@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Opinion | James Dobson’s harsh, disciplinarian Christianity changed GOP politics](https://www.yahoo.com/news/articles/opinion-james-dobson-harsh-disciplinarian-004615431.html)
+- Aug 22 - [Netanyahu says he will push ahead with Gaza City takeover and renewed ceasefire talks](https://www.yahoo.com/news/articles/netanyahu-says-push-ahead-gaza-023408855.html)
 - Aug 22 - [Nvidia orders suppliers to halt work on China-focussed H20 AI chip, The Information says](https://finance.yahoo.com/news/nvidia-orders-halt-h20-chip-001843935.html)
-- Aug 21 - [French streamer dies live online during extreme challenge](https://www.yahoo.com/news/articles/french-streamer-dies-live-online-195025290.html)
+- Aug 22 - [The president lasted less than an hour handing out fast food to cops after teasing he would patrol the streets of D.C. Thursday night.](https://www.yahoo.com/news/videos/president-lasted-less-hour-handing-000446047.html)
 - Aug 21 - [America's last living ace pilot from World War II dies at age 103](https://www.yahoo.com/news/articles/americas-last-living-ace-pilot-222220035.html)
 - Aug 21 - [Supreme Court lets Trump administration cut $783 million of research funding in anti-DEI push](https://www.yahoo.com/news/articles/supreme-court-lets-trump-administration-204843959.html)
 <!-- feed end -->
