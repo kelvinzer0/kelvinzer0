@@ -31,7 +31,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Aug 22 - [Judge sentences former NBA star Shawn Kemp for shooting at stolen car in Tacoma](https://www.yahoo.com/news/articles/judge-sentences-former-nba-star-222547673.html)
 - Aug 22 - [Elusive rainbow snake spotted by residents in Florida: See pictures](https://www.yahoo.com/news/articles/elusive-rainbow-snake-spotted-residents-213937983.html)
 - Aug 22 - [Vietnam island building in Spratlys may soon surpass China's, report says](https://www.yahoo.com/news/articles/vietnam-island-building-spratlys-may-204550371.html)
-- Aug 22 - [What Ghislaine Maxwell told deputy AG about former President Bill Clinton](https://www.yahoo.com/news/articles/ghislaine-maxwell-told-deputy-ag-202000641.html)
+- Aug 22 - [FBI closes Leavenworth, WA trails, campgrounds where Travis Decker search began](https://www.yahoo.com/news/articles/fbi-closes-leavenworth-wa-trails-204411093.html)
 <!-- feed end -->
 
 ---
