@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [A baby boomer who retired early turned to trading meme stocks to fight the boredom. Here's how he's successfully navigated the market.](https://finance.yahoo.com/news/baby-boomer-retired-early-turned-171502948.html)
-- Aug 23 - [Wisconsin woman out for walk ‘viciously’ attacked by pack of dogs, one killed by officer](https://www.yahoo.com/news/articles/wisconsin-woman-walk-viciously-attacked-162633140.html)
-- Aug 23 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
 - Aug 23 - [The Menendez brothers were denied parole. These are the factors that are keeping them behind bars](https://www.yahoo.com/news/articles/menendez-brothers-were-denied-parole-142216555.html)
-- Aug 23 - [India's federal investigator opens criminal case against Anil Ambani, his company](https://finance.yahoo.com/news/indias-federal-investigator-opens-criminal-130137534.html)
+- Aug 23 - [A baby boomer who retired early turned to trading meme stocks to fight the boredom. Here's how he's successfully navigated the market.](https://finance.yahoo.com/news/baby-boomer-retired-early-turned-171502948.html)
+- Aug 23 - [Trump halts work on New England offshore wind project that's nearly complete](https://www.yahoo.com/news/articles/trump-halts-england-offshore-wind-165512460.html)
+- Aug 23 - [Wisconsin woman out for walk ‘viciously’ attacked by pack of dogs, one killed by officer](https://www.yahoo.com/news/articles/wisconsin-woman-walk-viciously-attacked-162633140.html)
+- Aug 23 - [Watch How NASA’s Lucy Spacecraft Flew By Asteroid Dinkinesh](https://www.yahoo.com/news/videos/watch-nasa-lucy-spacecraft-flew-170000331.html)
 <!-- feed end -->
 
 ---
