@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [A Florida woman's car insurance provider charged her $222 after she missed this 1 thing — how to avoid hidden fees](https://www.yahoo.com/lifestyle/articles/florida-womans-car-insurance-provider-133300000.html)
+- Aug 23 - [Trump halts work on New England offshore wind project that's nearly complete](https://www.yahoo.com/news/articles/trump-halts-england-offshore-wind-165512460.html)
+- Aug 23 - [JD Vance's Recent "Icebreaker" With President Zelensky Is Going Viral Because People Think It's "Very, Very Weird"](https://www.yahoo.com/news/articles/jd-vances-recent-icebreaker-president-153203607.html)
 - Aug 23 - [Traveler frustrated after noticing absurd trend taking over public beaches: 'We all knew this would be the future'](https://www.yahoo.com/lifestyle/articles/traveler-frustrated-noticing-absurd-trend-115000428.html)
 - Aug 23 - [How Bad Is It To Walk Around Barefoot At Home? Doctors' Answers May Surprise You.](https://health.yahoo.com/your-body/foot-health/articles/bad-walk-around-barefoot-home-110018426.html)
-- Aug 23 - [California elementary teacher filmed himself sexually assaulting kids at school, authorities say](https://www.yahoo.com/news/articles/california-elementary-teacher-filmed-himself-110000469.html)
-- Aug 23 - [Mortgage and refinance interest rates today, August 23, 2025: Rates tick down](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-august-23-2025-100003027.html)
+- Aug 23 - [Woman Is ‘Livid’ After Returning from Weekend Away to Find Her Garden Furniture in Her Neighbor’s Yard: 'Borderline Theft'](https://www.yahoo.com/news/articles/woman-livid-returning-weekend-away-100000477.html)
 <!-- feed end -->
 
 ---
