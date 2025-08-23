@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Irish folk band The Mary Wallopers say they were muted at festival for showing Palestinian flag on stage](https://www.yahoo.com/news/articles/irish-folk-band-mary-wallopers-132432088.html)
+- Aug 23 - [3 Dividend Stocks That Could Help You Retire Rich](https://finance.yahoo.com/news/3-dividend-stocks-could-help-120000989.html)
+- Aug 23 - [Chinese bridge collapse kills at least 12 construction workers](https://www.yahoo.com/news/articles/chinese-bridge-collapse-kills-least-084119165.html)
 - Aug 23 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
 - Aug 23 - [Michael Cohen Has Blunt Advice For John Bolton After FBI Raid On Home](https://www.yahoo.com/news/articles/michael-cohen-blunt-advice-john-054824698.html)
-- Aug 23 - [Kudlow on Trump Intel agreement: ‘I am very, very uncomfortable ‘](https://finance.yahoo.com/news/kudlow-trump-intel-agreement-am-013200571.html)
-- Aug 23 - [Tesla Cybertruck owner shocked by discovery while trying to wash his vehicle: 'Seems they rely too much on glue'](https://autos.yahoo.com/articles/tesla-cybertruck-owner-shocked-discovery-004500466.html)
-- Aug 22 - [Elusive rainbow snake spotted by residents in Florida: See pictures](https://www.yahoo.com/news/articles/elusive-rainbow-snake-spotted-residents-213937983.html)
 <!-- feed end -->
 
 ---
