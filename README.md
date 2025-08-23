@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Americans aren't drinking anymore. Alcohol giants are scrambling to manage the fallout.](https://finance.yahoo.com/news/americans-arent-drinking-anymore-alcohol-giants-are-scrambling-to-manage-the-fallout-203502516.html)
-- Aug 23 - [Venice Film Festival Responds to Pro-Palestine Open Letter From International Filmmakers, Saying It Is ‘Open to Dialogue’](https://www.yahoo.com/news/articles/venice-film-festival-responds-pro-165432808.html)
-- Aug 23 - [JD Vance's Recent "Icebreaker" With President Zelensky Is Going Viral Because People Think It's "Very, Very Weird"](https://www.yahoo.com/news/articles/jd-vances-recent-icebreaker-president-153203607.html)
+- Aug 23 - [California ‘butt sniffer’ is back in jail days after he was released](https://www.yahoo.com/news/articles/california-butt-sniffer-back-jail-214315862.html)
+- Aug 23 - [Rapist nurse allowed to work with vulnerable hospital patients for a year – despite police warning he was a suspect](https://www.yahoo.com/news/articles/rapist-nurse-allowed-vulnerable-hospital-184246641.html)
+- Aug 23 - [Trump Rages About ‘Fat Black Women’ in Revenge Rants: Author](https://www.yahoo.com/news/articles/trump-rages-fat-black-women-084625566.html)
+- Aug 23 - [Trump halts work on New England offshore wind project that's nearly complete](https://www.yahoo.com/news/articles/trump-halts-england-offshore-wind-165512460.html)
 - Aug 23 - [ICE released this Mass. mom with no phone, 30 miles from home in the rain after detainment for a sealed marijuana conviction](https://www.yahoo.com/news/articles/ice-released-mass-mom-no-144711395.html)
-- Aug 23 - [I’m a Mechanic: These 6 SUVs Will Cost You a Fortune in Year 2 and Beyond](https://autos.yahoo.com/articles/m-mechanic-6-suvs-cost-131524310.html)
 <!-- feed end -->
 
 ---
