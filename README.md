@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
-- Aug 23 - [Bryan Kohberger's busted-up car seen in newly released pics | Banfield](https://www.yahoo.com/news/videos/bryan-kohbergers-busted-car-seen-030140111.html)
+- Aug 23 - [Las Vegas neighborhood stunned with 600+ illegally parked cars at growing church](https://www.yahoo.com/news/articles/las-vegas-neighborhood-stunned-600-060949590.html)
+- Aug 23 - [Michael Cohen Has Blunt Advice For John Bolton After FBI Raid On Home](https://www.yahoo.com/news/articles/michael-cohen-blunt-advice-john-054824698.html)
+- Aug 23 - [Kudlow on Trump Intel agreement: ‘I am very, very uncomfortable ‘](https://finance.yahoo.com/news/kudlow-trump-intel-agreement-am-013200571.html)
 - Aug 23 - [Tesla Cybertruck owner shocked by discovery while trying to wash his vehicle: 'Seems they rely too much on glue'](https://autos.yahoo.com/articles/tesla-cybertruck-owner-shocked-discovery-004500466.html)
-- Aug 22 - [Judge sentences former NBA star Shawn Kemp for shooting at stolen car in Tacoma](https://www.yahoo.com/news/articles/judge-sentences-former-nba-star-222547673.html)
-- Aug 22 - [Elusive rainbow snake spotted by residents in Florida: See pictures](https://www.yahoo.com/news/articles/elusive-rainbow-snake-spotted-residents-213937983.html)
+- Aug 22 - [‘I learned a hard lesson’: My ex-husband gambled away our $900,000 life savings. Do I use my 401(k) to buy a home?](https://finance.yahoo.com/news/learned-hard-lesson-ex-husband-231400092.html)
 <!-- feed end -->
 
 ---
