@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 22 - [Trinitarios gang member charged with possessing machinegun, feds say](https://www.yahoo.com/news/articles/trinitarios-gang-member-charged-possessing-221352001.html)
+- Aug 23 - [Tesla Cybertruck owner shocked by discovery while trying to wash his vehicle: 'Seems they rely too much on glue'](https://autos.yahoo.com/articles/tesla-cybertruck-owner-shocked-discovery-004500466.html)
+- Aug 22 - [Judge sentences former NBA star Shawn Kemp for shooting at stolen car in Tacoma](https://www.yahoo.com/news/articles/judge-sentences-former-nba-star-222547673.html)
+- Aug 22 - [Elusive rainbow snake spotted by residents in Florida: See pictures](https://www.yahoo.com/news/articles/elusive-rainbow-snake-spotted-residents-213937983.html)
 - Aug 22 - [Vietnam island building in Spratlys may soon surpass China's, report says](https://www.yahoo.com/news/articles/vietnam-island-building-spratlys-may-204550371.html)
 - Aug 22 - [What Ghislaine Maxwell told deputy AG about former President Bill Clinton](https://www.yahoo.com/news/articles/ghislaine-maxwell-told-deputy-ag-202000641.html)
-- Aug 22 - [Russia Bombed a U.S. Factory in Ukraine. Here’s How Trump Responded.](https://www.yahoo.com/news/articles/russia-bombed-u-factory-ukraine-200236677.html)
-- Aug 22 - [Shipping giant hit with $1 billion fine after causing one of worst marine disasters in history: 'Unprecedented devastation'](https://www.yahoo.com/news/articles/shipping-giant-hit-1-billion-194500541.html)
 <!-- feed end -->
 
 ---
