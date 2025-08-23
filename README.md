@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Texas Gov. Abbott vows to approve GOP-leaning congressional voting map](https://www.yahoo.com/news/articles/texas-gov-abbott-vows-approve-145719487.html)
+- Aug 23 - [A Florida woman's car insurance provider charged her $222 after she missed this 1 thing — how to avoid hidden fees](https://www.yahoo.com/lifestyle/articles/florida-womans-car-insurance-provider-133300000.html)
 - Aug 23 - [Traveler frustrated after noticing absurd trend taking over public beaches: 'We all knew this would be the future'](https://www.yahoo.com/lifestyle/articles/traveler-frustrated-noticing-absurd-trend-115000428.html)
+- Aug 23 - [How Bad Is It To Walk Around Barefoot At Home? Doctors' Answers May Surprise You.](https://health.yahoo.com/your-body/foot-health/articles/bad-walk-around-barefoot-home-110018426.html)
+- Aug 23 - [California elementary teacher filmed himself sexually assaulting kids at school, authorities say](https://www.yahoo.com/news/articles/california-elementary-teacher-filmed-himself-110000469.html)
 - Aug 23 - [Mortgage and refinance interest rates today, August 23, 2025: Rates tick down](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-august-23-2025-100003027.html)
-- Aug 23 - [18 months after becoming the first human implanted with Elon Musk’s brain chip, Neuralink ‘Participant 1’ Noland Arbaugh says his whole life has changed](https://tech.yahoo.com/ai/articles/18-months-becoming-first-human-090000432.html)
-- Aug 23 - [Chinese bridge collapse kills at least 12 construction workers](https://www.yahoo.com/news/articles/chinese-bridge-collapse-kills-least-084119165.html)
 <!-- feed end -->
 
 ---
