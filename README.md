@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [I’m 66 and retiring next month — but now my boss wants me to stay on to train my replacement. What do I do?](https://finance.yahoo.com/news/m-66-retiring-next-month-150000457.html)
-- Aug 23 - [Car expert finds Tesla with original powerpack and nearly half a million miles on it: 'People aren't understanding how significant this is'](https://autos.yahoo.com/articles/car-expert-finds-tesla-original-115500804.html)
-- Aug 23 - [Traveler frustrated after noticing absurd trend taking over public beaches: 'We all knew this would be the future'](https://www.yahoo.com/lifestyle/articles/traveler-frustrated-noticing-absurd-trend-115000428.html)
-- Aug 23 - [How Bad Is It To Walk Around Barefoot At Home? Doctors' Answers May Surprise You.](https://health.yahoo.com/your-body/foot-health/articles/bad-walk-around-barefoot-home-110018426.html)
-- Aug 23 - [California elementary teacher filmed himself sexually assaulting kids at school, authorities say](https://www.yahoo.com/news/articles/california-elementary-teacher-filmed-himself-110000469.html)
+- Aug 23 - [A baby boomer who retired early turned to trading meme stocks to fight the boredom. Here's how he's successfully navigated the market.](https://finance.yahoo.com/news/baby-boomer-retired-early-turned-171502948.html)
+- Aug 23 - [Wisconsin woman out for walk ‘viciously’ attacked by pack of dogs, one killed by officer](https://www.yahoo.com/news/articles/wisconsin-woman-walk-viciously-attacked-162633140.html)
+- Aug 23 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
+- Aug 23 - [The Menendez brothers were denied parole. These are the factors that are keeping them behind bars](https://www.yahoo.com/news/articles/menendez-brothers-were-denied-parole-142216555.html)
+- Aug 23 - [India's federal investigator opens criminal case against Anil Ambani, his company](https://finance.yahoo.com/news/indias-federal-investigator-opens-criminal-130137534.html)
 <!-- feed end -->
 
 ---
