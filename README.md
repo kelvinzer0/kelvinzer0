@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [The Menendez brothers were denied parole. These are the factors that are keeping them behind bars](https://www.yahoo.com/news/articles/menendez-brothers-were-denied-parole-142216555.html)
-- Aug 23 - [A baby boomer who retired early turned to trading meme stocks to fight the boredom. Here's how he's successfully navigated the market.](https://finance.yahoo.com/news/baby-boomer-retired-early-turned-171502948.html)
-- Aug 23 - [Trump halts work on New England offshore wind project that's nearly complete](https://www.yahoo.com/news/articles/trump-halts-england-offshore-wind-165512460.html)
-- Aug 23 - [Wisconsin woman out for walk ‘viciously’ attacked by pack of dogs, one killed by officer](https://www.yahoo.com/news/articles/wisconsin-woman-walk-viciously-attacked-162633140.html)
-- Aug 23 - [Watch How NASA’s Lucy Spacecraft Flew By Asteroid Dinkinesh](https://www.yahoo.com/news/videos/watch-nasa-lucy-spacecraft-flew-170000331.html)
+- Aug 23 - [JD Vance's Recent "Icebreaker" With President Zelensky Is Going Viral Because People Think It's "Very, Very Weird"](https://www.yahoo.com/news/articles/jd-vances-recent-icebreaker-president-153203607.html)
+- Aug 23 - [I’m 66 and retiring next month — but now my boss wants me to stay on to train my replacement. What do I do?](https://finance.yahoo.com/news/m-66-retiring-next-month-150000457.html)
+- Aug 23 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
+- Aug 23 - [I’m a Mechanic: These 6 SUVs Will Cost You a Fortune in Year 2 and Beyond](https://autos.yahoo.com/articles/m-mechanic-6-suvs-cost-131524310.html)
+- Aug 23 - [How Bad Is It To Walk Around Barefoot At Home? Doctors' Answers May Surprise You.](https://health.yahoo.com/your-body/foot-health/articles/bad-walk-around-barefoot-home-110018426.html)
 <!-- feed end -->
 
 ---
