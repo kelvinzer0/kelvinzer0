@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [Irish folk band The Mary Wallopers say they were muted at festival for showing Palestinian flag on stage](https://www.yahoo.com/news/articles/irish-folk-band-mary-wallopers-132432088.html)
-- Aug 23 - [3 Dividend Stocks That Could Help You Retire Rich](https://finance.yahoo.com/news/3-dividend-stocks-could-help-120000989.html)
+- Aug 23 - [Texas Gov. Abbott vows to approve GOP-leaning congressional voting map](https://www.yahoo.com/news/articles/texas-gov-abbott-vows-approve-145719487.html)
+- Aug 23 - [Traveler frustrated after noticing absurd trend taking over public beaches: 'We all knew this would be the future'](https://www.yahoo.com/lifestyle/articles/traveler-frustrated-noticing-absurd-trend-115000428.html)
+- Aug 23 - [Mortgage and refinance interest rates today, August 23, 2025: Rates tick down](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-saturday-august-23-2025-100003027.html)
+- Aug 23 - [18 months after becoming the first human implanted with Elon Musk’s brain chip, Neuralink ‘Participant 1’ Noland Arbaugh says his whole life has changed](https://tech.yahoo.com/ai/articles/18-months-becoming-first-human-090000432.html)
 - Aug 23 - [Chinese bridge collapse kills at least 12 construction workers](https://www.yahoo.com/news/articles/chinese-bridge-collapse-kills-least-084119165.html)
-- Aug 23 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
-- Aug 23 - [Michael Cohen Has Blunt Advice For John Bolton After FBI Raid On Home](https://www.yahoo.com/news/articles/michael-cohen-blunt-advice-john-054824698.html)
 <!-- feed end -->
 
 ---
