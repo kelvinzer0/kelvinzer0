@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 23 - [Tesla Cybertruck owner shocked by discovery while trying to wash his vehicle: 'Seems they rely too much on glue'](https://autos.yahoo.com/articles/tesla-cybertruck-owner-shocked-discovery-004500466.html)
-- Aug 22 - [Judge sentences former NBA star Shawn Kemp for shooting at stolen car in Tacoma](https://www.yahoo.com/news/articles/judge-sentences-former-nba-star-222547673.html)
 - Aug 22 - [Elusive rainbow snake spotted by residents in Florida: See pictures](https://www.yahoo.com/news/articles/elusive-rainbow-snake-spotted-residents-213937983.html)
-- Aug 22 - [Vietnam island building in Spratlys may soon surpass China's, report says](https://www.yahoo.com/news/articles/vietnam-island-building-spratlys-may-204550371.html)
-- Aug 22 - [What Ghislaine Maxwell told deputy AG about former President Bill Clinton](https://www.yahoo.com/news/articles/ghislaine-maxwell-told-deputy-ag-202000641.html)
+- Aug 22 - [Prediction: Jensen Huang Says Agentic AI Is a Multitrillion-Dollar Market. This Palantir Rival Could Be the Biggest Winner -- at Just One-Third the Price](https://finance.yahoo.com/news/prediction-jensen-huang-says-agentic-211500442.html)
+- Aug 22 - [Fed Rate Cut Will Slow Economy Down, JPMorgan's Kelly Warns](https://finance.yahoo.com/video/fed-rate-cut-slow-economy-200302414.html)
+- Aug 22 - [Russia Bombed a U.S. Factory in Ukraine. Here’s How Trump Responded.](https://www.yahoo.com/news/articles/russia-bombed-u-factory-ukraine-200236677.html)
 <!-- feed end -->
 
 ---
