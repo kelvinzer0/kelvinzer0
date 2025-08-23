@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 23 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
+- Aug 23 - [Bryan Kohberger's busted-up car seen in newly released pics | Banfield](https://www.yahoo.com/news/videos/bryan-kohbergers-busted-car-seen-030140111.html)
 - Aug 23 - [Tesla Cybertruck owner shocked by discovery while trying to wash his vehicle: 'Seems they rely too much on glue'](https://autos.yahoo.com/articles/tesla-cybertruck-owner-shocked-discovery-004500466.html)
+- Aug 22 - [Judge sentences former NBA star Shawn Kemp for shooting at stolen car in Tacoma](https://www.yahoo.com/news/articles/judge-sentences-former-nba-star-222547673.html)
 - Aug 22 - [Elusive rainbow snake spotted by residents in Florida: See pictures](https://www.yahoo.com/news/articles/elusive-rainbow-snake-spotted-residents-213937983.html)
-- Aug 22 - [Vietnam island building in Spratlys may soon surpass China's, report says](https://www.yahoo.com/news/articles/vietnam-island-building-spratlys-may-204550371.html)
-- Aug 22 - [What Ghislaine Maxwell told deputy AG about former President Bill Clinton](https://www.yahoo.com/news/articles/ghislaine-maxwell-told-deputy-ag-202000641.html)
-- Aug 22 - [Russia Bombed a U.S. Factory in Ukraine. Here’s How Trump Responded.](https://www.yahoo.com/news/articles/russia-bombed-u-factory-ukraine-200236677.html)
 <!-- feed end -->
 
 ---
