@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Columbia University student from China among those killed in the NY bus crash. Here’s what we know](https://www.yahoo.com/news/articles/multiple-fatalities-including-children-tour-184206885.html)
+- Aug 24 - [Former Rep. George Santos Cries Out About Harsh Reality Of Life In Prison After His Sentencing For Wire Fraud](https://www.yahoo.com/news/articles/former-rep-george-santos-cries-001509465.html)
+- Aug 23 - [House Oversight Committee Democrats say most Epstein files turned over by DOJ were already public](https://www.yahoo.com/news/articles/house-oversight-committee-democrats-most-222557158.html)
+- Aug 23 - [Russia is ‘teetering on the brink of a recession’ and headed for a disastrous harvest, while Putin’s other top source of cash plunges](https://finance.yahoo.com/news/russia-teetering-brink-recession-headed-221324804.html)
 - Aug 23 - [Americans aren't drinking anymore. Alcohol giants are scrambling to manage the fallout.](https://finance.yahoo.com/news/americans-arent-drinking-anymore-alcohol-giants-are-scrambling-to-manage-the-fallout-203502516.html)
 - Aug 23 - [Judge strikes down Minnesota law banning religious tests for college credit program](https://www.yahoo.com/news/articles/judge-strikes-down-minnesota-law-190058953.html)
-- Aug 23 - [Trump sees growing disapproval rating among Americans, survey shows](https://www.yahoo.com/news/articles/trump-sees-growing-disapproval-rating-185619737.html)
-- Aug 23 - [Dunkin' Customer Warns to Check Receipt After Spotting 'Wellness' Fee](https://www.yahoo.com/news/articles/dunkin-customer-warns-check-receipt-180437455.html)
 <!-- feed end -->
 
 ---
