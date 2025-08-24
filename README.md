@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 24 - [The president fumed that Maryland Gov. Wes Moore’s invitation to perform light cardio was “nasty and provocative.”](https://www.yahoo.com/news/videos/president-fumed-maryland-gov-wes-184653178.html)
-- Aug 24 - [How Camilla Araujo Set Mr Beast Up with a Million Dollar Donation From Sophie Rain](https://www.yahoo.com/entertainment/celebrity/articles/camilla-araujo-set-mr-beast-180950981.html)
-- Aug 24 - [A shocking 19% of retirees say they’re living a ‘nightmare’ — how to save yourself from the same terrible fate](https://finance.yahoo.com/news/shocking-19-retirees-living-nightmare-180000279.html)
 - Aug 24 - [Lawyer, 22, dies after suffering severe allergic reaction during CT scan](https://www.yahoo.com/news/articles/lawyer-22-dies-suffering-severe-174122522.html)
-- Aug 24 - [New report on James Comey suggests ‘ongoing conspiracy’ against Republicans, John Solomon argues](https://www.yahoo.com/news/videos/report-james-comey-suggests-ongoing-162518069.html)
+- Aug 24 - [Another false active shooter reported at Villanova University: police](https://www.yahoo.com/news/articles/another-false-active-shooter-reported-163053247.html)
+- Aug 24 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
+- Aug 24 - [Trump’s devastating Medicare cuts will force your grandparents out of their homes in 2026 | Opinion](https://www.yahoo.com/news/articles/trump-devastating-medicare-cuts-force-160100435.html)
 <!-- feed end -->
 
 ---
