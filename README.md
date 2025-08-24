@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [Exclusive-First human screwworm case in US traced to person in Maryland who traveled from Guatemala, sources say](https://www.yahoo.com/news/articles/exclusive-first-human-screwworm-case-222639321.html)
+- Aug 24 - [France summons US Ambassador Kushner over 'unacceptable' letter about rising antisemitism](https://www.yahoo.com/news/articles/france-summons-us-ambassador-kushner-222620561.html)
+- Aug 24 - [Shaq's Record-Breaking Walmart Spree Ends In Credit Card Decline: 'I Told Them I'd Be Back, Then The American Express Security Guard Called Me'](https://finance.yahoo.com/news/shaqs-record-breaking-walmart-spree-192117685.html)
 - Aug 24 - [The president fumed that Maryland Gov. Wes Moore’s invitation to perform light cardio was “nasty and provocative.”](https://www.yahoo.com/news/videos/president-fumed-maryland-gov-wes-184653178.html)
-- Aug 24 - [Lawyer, 22, dies after suffering severe allergic reaction during CT scan](https://www.yahoo.com/news/articles/lawyer-22-dies-suffering-severe-174122522.html)
-- Aug 24 - [Another false active shooter reported at Villanova University: police](https://www.yahoo.com/news/articles/another-false-active-shooter-reported-163053247.html)
-- Aug 24 - [The spice linked to lower blood sugar - and it’s probably already in your kitchen](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/spice-linked-low-blood-sugar-150653518.html)
-- Aug 24 - [Trump’s devastating Medicare cuts will force your grandparents out of their homes in 2026 | Opinion](https://www.yahoo.com/news/articles/trump-devastating-medicare-cuts-force-160100435.html)
+- Aug 24 - [Cardiologists Are Begging You To Eat Less of This High-Protein Food if You're Over 50](https://health.yahoo.com/conditions/cardiovascular-health/articles/cardiologists-begging-eat-less-high-182500380.html)
 <!-- feed end -->
 
 ---
