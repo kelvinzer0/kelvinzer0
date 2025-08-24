@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [How experiences as Katrina evacuees shaped these people as New Orleans educators](https://www.yahoo.com/news/videos/experiences-katrina-evacuees-shaped-people-040211656.html)
 - Aug 24 - [Mother and Stepfather Charged with Child Neglect After 11-Year-Old Was Allegedly Forced to Give Birth at Home Without a Doctor](https://www.yahoo.com/news/articles/mother-stepfather-charged-child-neglect-035443151.html)
-- Aug 24 - [My trip to North Korea's 'Benidorm' - flanked by guards and full of rules](https://www.yahoo.com/news/articles/trip-north-koreas-benidorm-flanked-230559255.html)
+- Aug 24 - [The actor joined up as an “honorary” agent after age caps were removed earlier this month.](https://www.yahoo.com/news/videos/actor-signed-agency-age-caps-003656638.html)
 - Aug 23 - [Russia is ‘teetering on the brink of a recession’ and headed for a disastrous harvest, while Putin’s other top source of cash plunges](https://finance.yahoo.com/news/russia-teetering-brink-recession-headed-221324804.html)
 - Aug 23 - [Americans aren't drinking anymore. Alcohol giants are scrambling to manage the fallout.](https://finance.yahoo.com/news/americans-arent-drinking-anymore-alcohol-giants-are-scrambling-to-manage-the-fallout-203502516.html)
+- Aug 23 - [Dunkin' Customer Warns to Check Receipt After Spotting 'Wellness' Fee](https://www.yahoo.com/news/articles/dunkin-customer-warns-check-receipt-180437455.html)
 <!-- feed end -->
 
 ---
