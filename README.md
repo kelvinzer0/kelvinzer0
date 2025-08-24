@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [Lawyer, 22, dies after suffering severe allergic reaction during CT scan](https://www.yahoo.com/news/articles/lawyer-22-dies-suffering-severe-174122522.html)
+- Aug 24 - [2 Men Killed During Attempted Home Invasion After They Posed as Police Officers — and Residents Returned Gunfire](https://www.yahoo.com/news/articles/2-men-killed-during-attempted-163705552.html)
 - Aug 24 - [One of Donald Trump’s Pals Claims He Had a ‘Confrontation’ With the Secret Service About His Sleeping Habits](https://www.yahoo.com/entertainment/celebrity/articles/one-donald-trump-pals-claims-153158746.html)
-- Aug 24 - [My trip to North Korea's 'Benidorm' - flanked by guards and full of rules](https://www.yahoo.com/news/articles/trip-north-koreas-benidorm-flanked-230559255.html)
-- Aug 24 - [This Harvard Economist Once Predicted That Bitcoin Had A Greater Chance Of Falling To $100 Than Hitting $100K—Here's What He Says He Missed](https://finance.yahoo.com/news/harvard-economist-once-predicted-bitcoin-144609669.html)
 - Aug 24 - [The ex-husband of former Trump adviser Kellyanne Conway live-streamed the search.](https://www.yahoo.com/news/videos/ex-husband-former-trump-adviser-140735452.html)
-- Aug 24 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
+- Aug 24 - [Scientists Sequenced the DNA of the ‘Last Neanderthal’—and It Alters Human History](https://www.yahoo.com/news/articles/scientists-sequenced-dna-last-neanderthal-140000469.html)
 <!-- feed end -->
 
 ---
