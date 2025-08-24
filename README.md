@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Seaside funfair worker dies in 'tragic accident'](https://www.yahoo.com/news/articles/man-injured-funfair-dies-head-210531801.html)
-- Aug 24 - [Typhoon Kajiki drenches southern China's Hainan island and heads toward Vietnam](https://www.yahoo.com/news/articles/typhoon-kajiki-drenches-southern-chinas-104013365.html)
-- Aug 24 - [WHO reports release of staff member detained by Israeli forces in Gaza](https://www.yahoo.com/news/articles/reports-release-staff-member-detained-102109816.html)
-- Aug 24 - [These 6 Americans are 401(k) millionaires. Here are their secrets.](https://finance.yahoo.com/news/6-americans-401-k-millionaires-090152363.html)
-- Aug 24 - [Columbia University student from China among those killed in the NY bus crash. Here’s what we know](https://www.yahoo.com/news/articles/multiple-fatalities-including-children-tour-184206885.html)
+- Aug 24 - [Gardener delighted as rare plant flowers after 25 years](https://www.yahoo.com/news/videos/gardener-delighted-rare-plant-flowers-123351619.html)
+- Aug 24 - [Trump sends shocking threat to top Dem: ‘She won’t be mayor very long’](https://www.yahoo.com/news/articles/trump-sends-shocking-threat-top-100000771.html)
+- Aug 24 - [Three young sisters drown, dozens rescued from boat carrying migrants to Italy](https://www.yahoo.com/news/articles/three-young-sisters-drown-dozens-095816868.html)
+- Aug 24 - [Mother and Stepfather Charged with Child Neglect After 11-Year-Old Was Allegedly Forced to Give Birth at Home Without a Doctor](https://www.yahoo.com/news/articles/mother-stepfather-charged-child-neglect-035443151.html)
+- Aug 24 - [World Health Organization warns of epidemic threat as dangerous virus spreads: 'We are seeing history repeating itself'](https://www.yahoo.com/news/articles/world-health-organization-warns-epidemic-030000069.html)
 <!-- feed end -->
 
 ---
