@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Gardener delighted as rare plant flowers after 25 years](https://www.yahoo.com/news/videos/gardener-delighted-rare-plant-flowers-123351619.html)
-- Aug 24 - [Trump sends shocking threat to top Dem: ‘She won’t be mayor very long’](https://www.yahoo.com/news/articles/trump-sends-shocking-threat-top-100000771.html)
-- Aug 24 - [Three young sisters drown, dozens rescued from boat carrying migrants to Italy](https://www.yahoo.com/news/articles/three-young-sisters-drown-dozens-095816868.html)
-- Aug 24 - [Mother and Stepfather Charged with Child Neglect After 11-Year-Old Was Allegedly Forced to Give Birth at Home Without a Doctor](https://www.yahoo.com/news/articles/mother-stepfather-charged-child-neglect-035443151.html)
-- Aug 24 - [World Health Organization warns of epidemic threat as dangerous virus spreads: 'We are seeing history repeating itself'](https://www.yahoo.com/news/articles/world-health-organization-warns-epidemic-030000069.html)
+- Aug 24 - [‘Fire with fire’: The doomsday scenarios of Texas and California launching political warheads over redistricting](https://www.yahoo.com/news/articles/fire-fire-doomsday-scenarios-texas-130236069.html)
+- Aug 24 - [This U.S. State Just Passed A Stunning New Law That Will Change Women's Lives](https://www.yahoo.com/news/articles/u-state-just-passed-stunning-120436306.html)
+- Aug 24 - [Tesla owner shares honest review after year of electric driving: 'The more I drive this car...'](https://www.yahoo.com/lifestyle/articles/tesla-owner-shares-honest-review-114500568.html)
+- Aug 24 - [After 8 years of payments, Ohio woman still owes $17K on her car — and Dave Ramsey says she may want a lawyer](https://finance.yahoo.com/news/8-years-payments-ohio-woman-110000230.html)
+- Aug 24 - [Analysis-Trump's redistricting push could bring decades of Republican rule to the US House](https://www.yahoo.com/news/articles/analysis-trumps-redistricting-push-could-100315117.html)
 <!-- feed end -->
 
 ---
