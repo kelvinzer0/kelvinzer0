@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [I’m a Dietitian and This Is the High-Protein Snack I Always Buy at Costco](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/m-dietitian-high-protein-snack-130000372.html)
+- Aug 24 - [My trip to North Korea's 'Benidorm' - flanked by guards and full of rules](https://www.yahoo.com/news/articles/trip-north-koreas-benidorm-flanked-230559255.html)
 - Aug 24 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
 - Aug 24 - [Social Security COLA 2026: There's Bad News and Even More Bad News for Retirees](https://finance.yahoo.com/news/social-security-cola-2026-theres-120500845.html)
-- Aug 24 - [Tesla owner shares honest review after year of electric driving: 'The more I drive this car...'](https://www.yahoo.com/lifestyle/articles/tesla-owner-shares-honest-review-114500568.html)
-- Aug 24 - [Experts thrilled after deep-sea camera captures 'first-ever record' of elusive predator species](https://www.yahoo.com/news/articles/experts-thrilled-deep-sea-camera-114500118.html)
+- Aug 24 - [This U.S. State Just Passed A Stunning New Law That Will Change Women's Lives](https://www.yahoo.com/news/articles/u-state-just-passed-stunning-120436306.html)
+- Aug 24 - [FBI warns seniors about billion-dollar scam draining retirement funds, expert says AI driving it](https://www.yahoo.com/news/articles/fbi-warns-seniors-billion-dollar-120058364.html)
 <!-- feed end -->
 
 ---
