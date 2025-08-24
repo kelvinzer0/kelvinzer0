@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 23 - [California ‘butt sniffer’ is back in jail days after he was released](https://www.yahoo.com/news/articles/california-butt-sniffer-back-jail-214315862.html)
-- Aug 23 - [Rapist nurse allowed to work with vulnerable hospital patients for a year – despite police warning he was a suspect](https://www.yahoo.com/news/articles/rapist-nurse-allowed-vulnerable-hospital-184246641.html)
-- Aug 23 - [Trump Rages About ‘Fat Black Women’ in Revenge Rants: Author](https://www.yahoo.com/news/articles/trump-rages-fat-black-women-084625566.html)
-- Aug 23 - [Trump halts work on New England offshore wind project that's nearly complete](https://www.yahoo.com/news/articles/trump-halts-england-offshore-wind-165512460.html)
-- Aug 23 - [ICE released this Mass. mom with no phone, 30 miles from home in the rain after detainment for a sealed marijuana conviction](https://www.yahoo.com/news/articles/ice-released-mass-mom-no-144711395.html)
+- Aug 24 - [Columbia University student from China among those killed in the NY bus crash. Here’s what we know](https://www.yahoo.com/news/articles/multiple-fatalities-including-children-tour-184206885.html)
+- Aug 23 - [Americans aren't drinking anymore. Alcohol giants are scrambling to manage the fallout.](https://finance.yahoo.com/news/americans-arent-drinking-anymore-alcohol-giants-are-scrambling-to-manage-the-fallout-203502516.html)
+- Aug 23 - [Judge strikes down Minnesota law banning religious tests for college credit program](https://www.yahoo.com/news/articles/judge-strikes-down-minnesota-law-190058953.html)
+- Aug 23 - [Trump sees growing disapproval rating among Americans, survey shows](https://www.yahoo.com/news/articles/trump-sees-growing-disapproval-rating-185619737.html)
+- Aug 23 - [Dunkin' Customer Warns to Check Receipt After Spotting 'Wellness' Fee](https://www.yahoo.com/news/articles/dunkin-customer-warns-check-receipt-180437455.html)
 <!-- feed end -->
 
 ---
