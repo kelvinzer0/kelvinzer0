@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [The president fumed that Maryland Gov. Wes Moore’s invitation to perform light cardio was “nasty and provocative.”](https://www.yahoo.com/news/videos/president-fumed-maryland-gov-wes-184653178.html)
+- Aug 24 - [A shocking 19% of retirees say they’re living a ‘nightmare’ — how to save yourself from the same terrible fate](https://finance.yahoo.com/news/shocking-19-retirees-living-nightmare-180000279.html)
 - Aug 24 - [Lawyer, 22, dies after suffering severe allergic reaction during CT scan](https://www.yahoo.com/news/articles/lawyer-22-dies-suffering-severe-174122522.html)
-- Aug 24 - [2 Men Killed During Attempted Home Invasion After They Posed as Police Officers — and Residents Returned Gunfire](https://www.yahoo.com/news/articles/2-men-killed-during-attempted-163705552.html)
-- Aug 24 - [One of Donald Trump’s Pals Claims He Had a ‘Confrontation’ With the Secret Service About His Sleeping Habits](https://www.yahoo.com/entertainment/celebrity/articles/one-donald-trump-pals-claims-153158746.html)
-- Aug 24 - [The ex-husband of former Trump adviser Kellyanne Conway live-streamed the search.](https://www.yahoo.com/news/videos/ex-husband-former-trump-adviser-140735452.html)
-- Aug 24 - [Scientists Sequenced the DNA of the ‘Last Neanderthal’—and It Alters Human History](https://www.yahoo.com/news/articles/scientists-sequenced-dna-last-neanderthal-140000469.html)
+- Aug 24 - [Rangers clear thousands of illegal marijuana plants from popular national park](https://www.yahoo.com/news/articles/rangers-clear-thousands-illegal-marijuana-173609300.html)
+- Aug 24 - [New report on James Comey suggests ‘ongoing conspiracy’ against Republicans, John Solomon argues](https://www.yahoo.com/news/videos/report-james-comey-suggests-ongoing-162518069.html)
 <!-- feed end -->
 
 ---
