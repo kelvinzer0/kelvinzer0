@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [World Health Organization warns of epidemic threat as dangerous virus spreads: 'We are seeing history repeating itself'](https://www.yahoo.com/news/articles/world-health-organization-warns-epidemic-030000069.html)
-- Aug 23 - [House Oversight Committee Democrats say most Epstein files turned over by DOJ were already public](https://www.yahoo.com/news/articles/house-oversight-committee-democrats-most-222557158.html)
-- Aug 23 - [Russia is ‘teetering on the brink of a recession’ and headed for a disastrous harvest, while Putin’s other top source of cash plunges](https://finance.yahoo.com/news/russia-teetering-brink-recession-headed-221324804.html)
-- Aug 23 - [Trump Rages About ‘Fat Black Women’ in Revenge Rants: Author](https://www.yahoo.com/news/articles/trump-rages-fat-black-women-084625566.html)
-- Aug 23 - [4K Webb Telescope's Amazing Imagery Of Star-Forming Region NGC 346](https://www.yahoo.com/news/videos/4k-webb-telescopes-amazing-imagery-150000204.html)
+- Aug 24 - [Mother and Stepfather Charged with Child Neglect After 11-Year-Old Was Allegedly Forced to Give Birth at Home Without a Doctor](https://www.yahoo.com/news/articles/mother-stepfather-charged-child-neglect-035443151.html)
+- Aug 24 - [2 missing boys from California found in Las Vegas: police](https://www.yahoo.com/news/articles/2-missing-boys-california-found-001010631.html)
+- Aug 24 - [My trip to North Korea's 'Benidorm' - flanked by guards and full of rules](https://www.yahoo.com/news/articles/trip-north-koreas-benidorm-flanked-230559255.html)
+- Aug 23 - [Pentagon restricts Ukraine's use of US missiles against Russia, WSJ reports](https://www.yahoo.com/news/articles/pentagon-restricts-ukraines-us-missiles-211324391.html)
+- Aug 23 - [Judge strikes down Minnesota law banning religious tests for college credit program](https://www.yahoo.com/news/articles/judge-strikes-down-minnesota-law-190058953.html)
 <!-- feed end -->
 
 ---
