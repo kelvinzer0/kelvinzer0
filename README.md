@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 24 - [Former Rep. George Santos Cries Out About Harsh Reality Of Life In Prison After His Sentencing For Wire Fraud](https://www.yahoo.com/news/articles/former-rep-george-santos-cries-001509465.html)
+- Aug 24 - [World Health Organization warns of epidemic threat as dangerous virus spreads: 'We are seeing history repeating itself'](https://www.yahoo.com/news/articles/world-health-organization-warns-epidemic-030000069.html)
 - Aug 23 - [House Oversight Committee Democrats say most Epstein files turned over by DOJ were already public](https://www.yahoo.com/news/articles/house-oversight-committee-democrats-most-222557158.html)
 - Aug 23 - [Russia is ‘teetering on the brink of a recession’ and headed for a disastrous harvest, while Putin’s other top source of cash plunges](https://finance.yahoo.com/news/russia-teetering-brink-recession-headed-221324804.html)
-- Aug 23 - [Americans aren't drinking anymore. Alcohol giants are scrambling to manage the fallout.](https://finance.yahoo.com/news/americans-arent-drinking-anymore-alcohol-giants-are-scrambling-to-manage-the-fallout-203502516.html)
-- Aug 23 - [Judge strikes down Minnesota law banning religious tests for college credit program](https://www.yahoo.com/news/articles/judge-strikes-down-minnesota-law-190058953.html)
+- Aug 23 - [Trump Rages About ‘Fat Black Women’ in Revenge Rants: Author](https://www.yahoo.com/news/articles/trump-rages-fat-black-women-084625566.html)
+- Aug 23 - [4K Webb Telescope's Amazing Imagery Of Star-Forming Region NGC 346](https://www.yahoo.com/news/videos/4k-webb-telescopes-amazing-imagery-150000204.html)
 <!-- feed end -->
 
 ---
