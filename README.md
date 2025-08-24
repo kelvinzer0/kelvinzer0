@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Aug 24 - [How experiences as Katrina evacuees shaped these people as New Orleans educators](https://www.yahoo.com/news/videos/experiences-katrina-evacuees-shaped-people-040211656.html)
 - Aug 24 - [Mother and Stepfather Charged with Child Neglect After 11-Year-Old Was Allegedly Forced to Give Birth at Home Without a Doctor](https://www.yahoo.com/news/articles/mother-stepfather-charged-child-neglect-035443151.html)
-- Aug 24 - [2 missing boys from California found in Las Vegas: police](https://www.yahoo.com/news/articles/2-missing-boys-california-found-001010631.html)
 - Aug 24 - [My trip to North Korea's 'Benidorm' - flanked by guards and full of rules](https://www.yahoo.com/news/articles/trip-north-koreas-benidorm-flanked-230559255.html)
 - Aug 23 - [Russia is ‘teetering on the brink of a recession’ and headed for a disastrous harvest, while Putin’s other top source of cash plunges](https://finance.yahoo.com/news/russia-teetering-brink-recession-headed-221324804.html)
+- Aug 23 - [Americans aren't drinking anymore. Alcohol giants are scrambling to manage the fallout.](https://finance.yahoo.com/news/americans-arent-drinking-anymore-alcohol-giants-are-scrambling-to-manage-the-fallout-203502516.html)
 <!-- feed end -->
 
 ---
