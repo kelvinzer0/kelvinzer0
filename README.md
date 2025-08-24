@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Aug 24 - [My trip to North Korea's 'Benidorm' - flanked by guards and full of rules](https://www.yahoo.com/news/articles/trip-north-koreas-benidorm-flanked-230559255.html)
 - Aug 24 - [Mother and Stepfather Charged with Child Neglect After 11-Year-Old Was Allegedly Forced to Give Birth at Home Without a Doctor](https://www.yahoo.com/news/articles/mother-stepfather-charged-child-neglect-035443151.html)
-- Aug 24 - [Ukraine drone hits Russian nuclear plant, sparks huge fire at Novatek's Ust-Luga terminal](https://www.yahoo.com/news/articles/ukraine-drone-attack-causes-fire-013649221.html)
-- Aug 24 - [Former Rep. George Santos Cries Out About Harsh Reality Of Life In Prison After His Sentencing For Wire Fraud](https://www.yahoo.com/news/articles/former-rep-george-santos-cries-001509465.html)
 - Aug 23 - [Russia is ‘teetering on the brink of a recession’ and headed for a disastrous harvest, while Putin’s other top source of cash plunges](https://finance.yahoo.com/news/russia-teetering-brink-recession-headed-221324804.html)
+- Aug 23 - [Judge strikes down Minnesota law banning religious tests for college credit program](https://www.yahoo.com/news/articles/judge-strikes-down-minnesota-law-190058953.html)
+- Aug 23 - [Dunkin' Customer Warns to Check Receipt After Spotting 'Wellness' Fee](https://www.yahoo.com/news/articles/dunkin-customer-warns-check-receipt-180437455.html)
 <!-- feed end -->
 
 ---
