@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 24 - [One of Donald Trump’s Pals Claims He Had a ‘Confrontation’ With the Secret Service About His Sleeping Habits](https://www.yahoo.com/entertainment/celebrity/articles/one-donald-trump-pals-claims-153158746.html)
 - Aug 24 - [My trip to North Korea's 'Benidorm' - flanked by guards and full of rules](https://www.yahoo.com/news/articles/trip-north-koreas-benidorm-flanked-230559255.html)
+- Aug 24 - [The ex-husband of former Trump adviser Kellyanne Conway live-streamed the search.](https://www.yahoo.com/news/videos/ex-husband-former-trump-adviser-140735452.html)
 - Aug 24 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
 - Aug 24 - [Social Security COLA 2026: There's Bad News and Even More Bad News for Retirees](https://finance.yahoo.com/news/social-security-cola-2026-theres-120500845.html)
-- Aug 24 - [This U.S. State Just Passed A Stunning New Law That Will Change Women's Lives](https://www.yahoo.com/news/articles/u-state-just-passed-stunning-120436306.html)
-- Aug 24 - [FBI warns seniors about billion-dollar scam draining retirement funds, expert says AI driving it](https://www.yahoo.com/news/articles/fbi-warns-seniors-billion-dollar-120058364.html)
 <!-- feed end -->
 
 ---
