@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Oil prices climb after Ukraine attacks hit Russian energy sites](https://finance.yahoo.com/news/oil-prices-climb-ukraine-attacks-012835994.html)
-- Aug 24 - [Stock market today: Dow, S&P 500, Nasdaq futures steady after record surge with Nvidia earnings in focus](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-steady-after-record-surge-with-nvidia-earnings-in-focus-235831657.html)
+- Aug 25 - [Sole survivor of Australian mushroom poisoning grieves loss of wife and friends](https://www.yahoo.com/news/articles/sole-survivor-australian-mushroom-poisoning-025304972.html)
+- Aug 25 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
+- Aug 24 - [Stock market today: Dow, S&P 500, Nasdaq futures slide after record surge with Nvidia earnings in focus](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-futures-slide-after-record-surge-with-nvidia-earnings-in-focus-235831166.html)
 - Aug 24 - [New human screwworm case in US traced to person in Maryland who traveled from Guatemala, sources say](https://www.yahoo.com/news/articles/exclusive-first-human-screwworm-case-222639321.html)
 - Aug 24 - [France summons US Ambassador Kushner over 'unacceptable' letter about rising antisemitism](https://www.yahoo.com/news/articles/france-summons-us-ambassador-kushner-222620561.html)
-- Aug 24 - [Young Dad Was Getting Ready to Leap from Golden Gate Bridge — Then the 'Miracle' of a Stranger's Voice Stopped Him](https://www.yahoo.com/news/articles/young-dad-getting-ready-leap-212546460.html)
 <!-- feed end -->
 
 ---
