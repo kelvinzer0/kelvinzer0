@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Stock market today: Dow, S&P 500, Nasdaq slip after record-setting surge as Nvidia earnings loom](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-slip-after-record-setting-surge-as-nvidia-earnings-loom-133205126.html)
+- Aug 25 - [Turkey calls Israel's strike on Gaza hospital 'attack on press freedom'](https://www.yahoo.com/news/articles/turkey-calls-israels-strike-gaza-123929077.html)
 - Aug 25 - [Market Sunrise Exclusive: Synthesia](https://finance.yahoo.com/video/market-sunrise-exclusive-synthesia-122410661.html)
-- Aug 25 - [Wall Street Journal Flags Donald Trump Risk ‘Turning Out To Be Worse Than We Imagined’](https://www.yahoo.com/news/articles/wall-street-journal-flags-donald-092205696.html)
-- Aug 25 - [China screened 600 million for disease, keeping up COVID-era controls](https://www.yahoo.com/news/articles/china-screened-600-million-disease-090910262.html)
-- Aug 25 - [Sole survivor of Australian mushroom poisoning grieves loss of wife and friends](https://www.yahoo.com/news/articles/sole-survivor-australian-mushroom-poisoning-025304972.html)
-- Aug 25 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
+- Aug 25 - [Latest Russian missile and drone attacks across Ukraine kill at least two and injure 33](https://www.yahoo.com/news/articles/latest-russian-missile-drone-attacks-121858507.html)
+- Aug 25 - [India warns foe Pakistan of potential flooding as both battle torrential rains](https://www.yahoo.com/news/articles/india-shares-flood-warning-foe-112102174.html)
 <!-- feed end -->
 
 ---
