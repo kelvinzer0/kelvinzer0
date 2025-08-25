@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Is the monsoon ready to cut loose in Phoenix? Rain, wind, flooding possible](https://www.yahoo.com/news/articles/monsoon-ready-cut-loose-phoenix-175957630.html)
+- Aug 25 - [Earnings Update: Here's Why Analysts Just Lifted Their Kraken Robotics Inc. (CVE:PNG) Price Target To CA$4.25](https://finance.yahoo.com/news/earnings-heres-why-analysts-just-184920253.html)
+- Aug 25 - [US Interior Department proposes adding copper to critical minerals list](https://finance.yahoo.com/news/us-interior-department-proposes-adding-181222433.html)
 - Aug 25 - [The president appeared to confuse multiple officials, invented a governor, and warned of invasive fish in a chaotic Oval Office appearance.](https://www.yahoo.com/news/videos/president-appeared-confuse-multiple-officials-173521490.html)
-- Aug 25 - [This Is the Worst Thing to See On Your Boarding Pass—and No, It's Not SSSS](https://www.yahoo.com/lifestyle/articles/worst-thing-see-boarding-pass-172852293.html)
-- Aug 25 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
-- Aug 25 - [Trump moves to ban flag burning despite Supreme Court ruling that Constitution allows it](https://www.yahoo.com/news/articles/trump-moves-ban-flag-burning-170838486.html)
+- Aug 25 - [This Guy Shared Just How High The Minimum Wage Would Have To Be To Match The Homes That Boomers Could Afford In The '70s, And My Mind Is Absolutely Blown](https://www.yahoo.com/news/articles/guy-shared-just-high-minimum-165308542.html)
+- Aug 25 - [Trump vows lawsuits against California redistricting, blue slips](https://www.yahoo.com/news/articles/trump-vows-lawsuits-against-california-161221708.html)
 <!-- feed end -->
 
 ---
