@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [An Enormous Data Center In Wyoming Will Consume 5x More Power Than The State's People. The Owner Remains A Mystery](https://finance.yahoo.com/news/enormous-data-center-wyoming-consume-154608830.html)
-- Aug 25 - ['Recognizing a state, not a government': Belgium's deputy PM urges Palestinian state recognition](https://www.yahoo.com/news/articles/recognizing-state-not-government-belgiums-153419627.html)
-- Aug 25 - [No one hurt in fire at The Cork 1794. When will the Erie restaurant reopen?](https://www.yahoo.com/news/articles/no-one-hurt-fire-cork-153350722.html)
-- Aug 25 - [Hollie Strano, Mix 94.1 weather forecaster, to miss time after weekend injury, ER trip](https://www.yahoo.com/news/articles/hollie-strano-mix-94-1-151548955.html)
-- Aug 25 - ['We are fighting Jews, not Zionism,' Palestinian activist Ahed Tamimi declares](https://www.yahoo.com/news/articles/fighting-jews-not-zionism-palestinian-144428764.html)
+- Aug 25 - [Former Mexican drug kingpin Ismael 'El Mayo' Zambada pleads guilty to US charges](https://www.yahoo.com/news/articles/former-mexican-drug-kingpin-ismael-165504955.html)
+- Aug 25 - [Feds fight to keep 'Alligator Alcatraz' open amid legal battle as 3rd challenge is filed](https://www.yahoo.com/news/articles/feds-fight-keep-alligator-alcatraz-164942532.html)
+- Aug 25 - [South African women warned about viral Russian job videos](https://www.yahoo.com/news/articles/south-african-women-warned-viral-163607221.html)
+- Aug 25 - [Mariam Dagga, AP freelance journalist in Gaza, was killed by an Israeli strike](https://www.yahoo.com/news/articles/mariam-dagga-ap-freelance-journalist-162754681.html)
+- Aug 25 - [Nvidia to report second quarter earnings, expecting $8 billion hit from China chip ban](https://finance.yahoo.com/news/nvidia-to-report-second-quarter-earnings-expecting-8-billion-hit-from-china-chip-ban-162719043.html)
 <!-- feed end -->
 
 ---
