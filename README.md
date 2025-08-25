@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Former Mexican drug kingpin Ismael 'El Mayo' Zambada pleads guilty to US charges](https://www.yahoo.com/news/articles/former-mexican-drug-kingpin-ismael-165504955.html)
-- Aug 25 - [Feds fight to keep 'Alligator Alcatraz' open amid legal battle as 3rd challenge is filed](https://www.yahoo.com/news/articles/feds-fight-keep-alligator-alcatraz-164942532.html)
-- Aug 25 - [South African women warned about viral Russian job videos](https://www.yahoo.com/news/articles/south-african-women-warned-viral-163607221.html)
-- Aug 25 - [Mariam Dagga, AP freelance journalist in Gaza, was killed by an Israeli strike](https://www.yahoo.com/news/articles/mariam-dagga-ap-freelance-journalist-162754681.html)
-- Aug 25 - [Nvidia to report second quarter earnings, expecting $8 billion hit from China chip ban](https://finance.yahoo.com/news/nvidia-to-report-second-quarter-earnings-expecting-8-billion-hit-from-china-chip-ban-162719043.html)
+- Aug 25 - [Is the monsoon ready to cut loose in Phoenix? Rain, wind, flooding possible](https://www.yahoo.com/news/articles/monsoon-ready-cut-loose-phoenix-175957630.html)
+- Aug 25 - [The president appeared to confuse multiple officials, invented a governor, and warned of invasive fish in a chaotic Oval Office appearance.](https://www.yahoo.com/news/videos/president-appeared-confuse-multiple-officials-173521490.html)
+- Aug 25 - [This Is the Worst Thing to See On Your Boarding Pass—and No, It's Not SSSS](https://www.yahoo.com/lifestyle/articles/worst-thing-see-boarding-pass-172852293.html)
+- Aug 25 - [Reporter’s Notebook: I stopped for gas and witnessed an ICE arrest. Then, I spent days looking for the man who was detained](https://www.yahoo.com/news/articles/reporter-notebook-stopped-gas-witnessed-083043878.html)
+- Aug 25 - [Trump moves to ban flag burning despite Supreme Court ruling that Constitution allows it](https://www.yahoo.com/news/articles/trump-moves-ban-flag-burning-170838486.html)
 <!-- feed end -->
 
 ---
