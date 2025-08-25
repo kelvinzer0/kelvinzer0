@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Man with same name as Babe Ruth charged with using old baseball players' names for settlement fraud](https://www.yahoo.com/news/articles/man-same-name-babe-ruth-195212813.html)
-- Aug 25 - [Your 401(k) Won’t Be Enough — Here’s the Backup Plan Financial Advisors Recommend](https://finance.yahoo.com/news/401-k-won-t-enough-193814748.html)
+- Aug 25 - [Trump administration plans to cancel approval of Maryland offshore wind project](https://www.yahoo.com/news/articles/trump-administration-plans-cancel-approval-205655425.html)
+- Aug 25 - [University of Arkansas ‘all clear’ after police investigate active shooter reports](https://www.yahoo.com/news/articles/university-arkansas-clear-police-investigate-201659620.html)
+- Aug 25 - [Weakening Russia's war machine: Why Kyiv is targeting Moscow's energy sector](https://www.yahoo.com/news/articles/weakening-russian-war-machine-why-161635510.html)
 - Aug 25 - [The president appeared to confuse multiple officials, invented a governor, and warned of invasive fish in a chaotic Oval Office appearance.](https://www.yahoo.com/news/videos/president-appeared-confuse-multiple-officials-173521490.html)
 - Aug 25 - [The Object at the Center of Jupiter Is So Strange That It Defies Comprehension](https://www.yahoo.com/news/articles/object-center-jupiter-strange-defies-171559655.html)
-- Aug 25 - [Oklahoma man arrested after 11-year-old stepdaughter gives birth, mother charged with enabling abuse](https://www.yahoo.com/news/articles/oklahoma-man-arrested-11-old-165821666.html)
 <!-- feed end -->
 
 ---
