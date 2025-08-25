@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Here's who gets Social Security payments this week on Aug. 27](https://www.yahoo.com/news/articles/heres-gets-social-security-payments-090236625.html)
-- Aug 25 - [Israel hits Gaza hospital, killing at least 15 people, including journalists](https://www.yahoo.com/news/articles/israel-hits-gaza-hospital-killing-082417018.html)
-- Aug 25 - [Health experts warn of 'grave' danger lingering in our everyday lives: 'It is incumbent on us to act'](https://www.yahoo.com/news/articles/health-experts-warn-grave-danger-030000216.html)
+- Aug 25 - [Australia mushroom murderer Erin Patterson left me 'half alive', lone surviving victim says](https://www.yahoo.com/news/articles/australia-mushroom-murderer-erin-patterson-025410518.html)
 - Aug 25 - [Sole survivor of Australian mushroom poisoning grieves loss of wife and friends](https://www.yahoo.com/news/articles/sole-survivor-australian-mushroom-poisoning-025304972.html)
 - Aug 25 - [Donald Trump Threatens To Investigate Chris Christie After Former New Jersey Governor Criticizes Him On ABC’s ‘This Week’](https://www.yahoo.com/news/articles/donald-trump-threatens-investigate-chris-022600554.html)
+- Aug 25 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
+- Aug 25 - [Nearly 2.5M people sign petition supporting illegal immigrant truck driver charged in fatal crash](https://www.yahoo.com/news/articles/nearly-2-5m-people-sign-000457066.html)
 <!-- feed end -->
 
 ---
