@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Indonesia hosts annual US-led combat drills with Indo-Pacific allies](https://www.yahoo.com/news/articles/indonesia-hosts-annual-us-led-065222199.html)
-- Aug 25 - [Donald Trump Threatens To Investigate Chris Christie After Former New Jersey Governor Criticizes Him On ABC’s ‘This Week’](https://www.yahoo.com/news/articles/donald-trump-threatens-investigate-chris-022600554.html)
-- Aug 25 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
-- Aug 25 - [Nearly 2.5M people sign petition supporting illegal immigrant truck driver charged in fatal crash](https://www.yahoo.com/news/articles/nearly-2-5m-people-sign-000457066.html)
-- Aug 24 - [Fact Check: Breaking down claim Nobel Committee 'quietly removed' Trump from Peace Prize nominee list](https://www.yahoo.com/news/articles/fact-check-breaking-down-claim-230000493.html)
+- Aug 25 - [Bangladesh exhausts resources for Rohingya refugees, chief adviser Yunus warns](https://www.yahoo.com/news/articles/bangladesh-cannot-mobilise-more-resources-054215063.html)
+- Aug 25 - [Health experts warn of 'grave' danger lingering in our everyday lives: 'It is incumbent on us to act'](https://www.yahoo.com/news/articles/health-experts-warn-grave-danger-030000216.html)
+- Aug 25 - [Australia mushroom murderer Erin Patterson left me 'half alive', lone surviving victim says](https://www.yahoo.com/news/articles/australia-mushroom-murderer-erin-patterson-025410518.html)
+- Aug 25 - [Sole survivor of Australian mushroom poisoning grieves loss of wife and friends](https://www.yahoo.com/news/articles/sole-survivor-australian-mushroom-poisoning-025304972.html)
+- Aug 25 - [Exclusive-China's new mega dam triggers fears of water war in India](https://www.yahoo.com/news/articles/exclusive-chinas-mega-dam-triggers-023252980.html)
 <!-- feed end -->
 
 ---
