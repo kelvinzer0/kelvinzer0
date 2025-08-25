@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Ethereum hit a record high over the weekend: Here's what to know](https://finance.yahoo.com/video/ethereum-hit-record-high-over-134308964.html)
-- Aug 25 - [Stock market today: Dow, S&P 500, Nasdaq slip after record-setting surge as Nvidia earnings loom](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-slip-after-record-setting-surge-as-nvidia-earnings-loom-133205126.html)
-- Aug 25 - [Trump Apparently Has A New Bruise And Karoline Leavitt Has An Explanation](https://www.yahoo.com/entertainment/celebrity/articles/trump-apparently-bruise-karoline-leavitt-130548697.html)
-- Aug 25 - [Trump to sign executive order directing AG to prosecute flag desecration](https://www.yahoo.com/news/articles/trump-sign-executive-order-flag-122701500.html)
-- Aug 25 - [Donna Adelson trial live updates: Wendi Adelson testifies in her mother's trial](https://www.yahoo.com/news/articles/donna-adelson-trial-live-updates-122558592.html)
+- Aug 25 - [An Enormous Data Center In Wyoming Will Consume 5x More Power Than The State's People. The Owner Remains A Mystery](https://finance.yahoo.com/news/enormous-data-center-wyoming-consume-154608830.html)
+- Aug 25 - ['Recognizing a state, not a government': Belgium's deputy PM urges Palestinian state recognition](https://www.yahoo.com/news/articles/recognizing-state-not-government-belgiums-153419627.html)
+- Aug 25 - [No one hurt in fire at The Cork 1794. When will the Erie restaurant reopen?](https://www.yahoo.com/news/articles/no-one-hurt-fire-cork-153350722.html)
+- Aug 25 - [Hollie Strano, Mix 94.1 weather forecaster, to miss time after weekend injury, ER trip](https://www.yahoo.com/news/articles/hollie-strano-mix-94-1-151548955.html)
+- Aug 25 - ['We are fighting Jews, not Zionism,' Palestinian activist Ahed Tamimi declares](https://www.yahoo.com/news/articles/fighting-jews-not-zionism-palestinian-144428764.html)
 <!-- feed end -->
 
 ---
