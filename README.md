@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 25 - [Ethereum hit a record high over the weekend: Here's what to know](https://finance.yahoo.com/video/ethereum-hit-record-high-over-134308964.html)
+- Aug 25 - [Russian-backed head of Donetsk says Moscow must capture canal from Ukraine to solve water crisis](https://www.yahoo.com/news/articles/russian-backed-head-donetsk-says-133227119.html)
 - Aug 25 - [Stock market today: Dow, S&P 500, Nasdaq slip after record-setting surge as Nvidia earnings loom](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-slip-after-record-setting-surge-as-nvidia-earnings-loom-133205126.html)
-- Aug 25 - [Turkey calls Israel's strike on Gaza hospital 'attack on press freedom'](https://www.yahoo.com/news/articles/turkey-calls-israels-strike-gaza-123929077.html)
-- Aug 25 - [Market Sunrise Exclusive: Synthesia](https://finance.yahoo.com/video/market-sunrise-exclusive-synthesia-122410661.html)
-- Aug 25 - [Latest Russian missile and drone attacks across Ukraine kill at least two and injure 33](https://www.yahoo.com/news/articles/latest-russian-missile-drone-attacks-121858507.html)
-- Aug 25 - [India warns foe Pakistan of potential flooding as both battle torrential rains](https://www.yahoo.com/news/articles/india-shares-flood-warning-foe-112102174.html)
+- Aug 25 - [Heading to the UP for Labor Day? Here's how long it takes to reach the Mackinac Bridge](https://www.yahoo.com/lifestyle/articles/heading-labor-day-heres-long-131149520.html)
+- Aug 25 - [Trump Apparently Has A New Bruise And Karoline Leavitt Has An Explanation](https://www.yahoo.com/entertainment/celebrity/articles/trump-apparently-bruise-karoline-leavitt-130548697.html)
 <!-- feed end -->
 
 ---
