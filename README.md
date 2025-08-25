@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 25 - [Ethereum hit a record high over the weekend: Here's what to know](https://finance.yahoo.com/video/ethereum-hit-record-high-over-134308964.html)
-- Aug 25 - [Russian-backed head of Donetsk says Moscow must capture canal from Ukraine to solve water crisis](https://www.yahoo.com/news/articles/russian-backed-head-donetsk-says-133227119.html)
 - Aug 25 - [Stock market today: Dow, S&P 500, Nasdaq slip after record-setting surge as Nvidia earnings loom](https://finance.yahoo.com/news/live/stock-market-today-dow-sp-500-nasdaq-slip-after-record-setting-surge-as-nvidia-earnings-loom-133205126.html)
-- Aug 25 - [Heading to the UP for Labor Day? Here's how long it takes to reach the Mackinac Bridge](https://www.yahoo.com/lifestyle/articles/heading-labor-day-heres-long-131149520.html)
 - Aug 25 - [Trump Apparently Has A New Bruise And Karoline Leavitt Has An Explanation](https://www.yahoo.com/entertainment/celebrity/articles/trump-apparently-bruise-karoline-leavitt-130548697.html)
+- Aug 25 - [Trump to sign executive order directing AG to prosecute flag desecration](https://www.yahoo.com/news/articles/trump-sign-executive-order-flag-122701500.html)
+- Aug 25 - [Donna Adelson trial live updates: Wendi Adelson testifies in her mother's trial](https://www.yahoo.com/news/articles/donna-adelson-trial-live-updates-122558592.html)
 <!-- feed end -->
 
 ---
