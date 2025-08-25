@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Earnings Update: Here's Why Analysts Just Lifted Their Kraken Robotics Inc. (CVE:PNG) Price Target To CA$4.25](https://finance.yahoo.com/news/earnings-heres-why-analysts-just-184920253.html)
-- Aug 25 - [US Interior Department proposes adding copper to critical minerals list](https://finance.yahoo.com/news/us-interior-department-proposes-adding-181222433.html)
+- Aug 25 - [Man with same name as Babe Ruth charged with using old baseball players' names for settlement fraud](https://www.yahoo.com/news/articles/man-same-name-babe-ruth-195212813.html)
+- Aug 25 - [Your 401(k) Won’t Be Enough — Here’s the Backup Plan Financial Advisors Recommend](https://finance.yahoo.com/news/401-k-won-t-enough-193814748.html)
 - Aug 25 - [The president appeared to confuse multiple officials, invented a governor, and warned of invasive fish in a chaotic Oval Office appearance.](https://www.yahoo.com/news/videos/president-appeared-confuse-multiple-officials-173521490.html)
-- Aug 25 - [This Guy Shared Just How High The Minimum Wage Would Have To Be To Match The Homes That Boomers Could Afford In The '70s, And My Mind Is Absolutely Blown](https://www.yahoo.com/news/articles/guy-shared-just-high-minimum-165308542.html)
-- Aug 25 - [Trump vows lawsuits against California redistricting, blue slips](https://www.yahoo.com/news/articles/trump-vows-lawsuits-against-california-161221708.html)
+- Aug 25 - [The Object at the Center of Jupiter Is So Strange That It Defies Comprehension](https://www.yahoo.com/news/articles/object-center-jupiter-strange-defies-171559655.html)
+- Aug 25 - [Oklahoma man arrested after 11-year-old stepdaughter gives birth, mother charged with enabling abuse](https://www.yahoo.com/news/articles/oklahoma-man-arrested-11-old-165821666.html)
 <!-- feed end -->
 
 ---
