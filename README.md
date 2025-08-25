@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [US stock futures dip after Powell-led rally on September cut expectations](https://finance.yahoo.com/news/us-stock-futures-dip-powell-102633933.html)
+- Aug 25 - [Market Sunrise Exclusive: Synthesia](https://finance.yahoo.com/video/market-sunrise-exclusive-synthesia-122410661.html)
+- Aug 25 - [Wall Street Journal Flags Donald Trump Risk ‘Turning Out To Be Worse Than We Imagined’](https://www.yahoo.com/news/articles/wall-street-journal-flags-donald-092205696.html)
 - Aug 25 - [China screened 600 million for disease, keeping up COVID-era controls](https://www.yahoo.com/news/articles/china-screened-600-million-disease-090910262.html)
-- Aug 25 - [Health experts warn of 'grave' danger lingering in our everyday lives: 'It is incumbent on us to act'](https://www.yahoo.com/news/articles/health-experts-warn-grave-danger-030000216.html)
 - Aug 25 - [Sole survivor of Australian mushroom poisoning grieves loss of wife and friends](https://www.yahoo.com/news/articles/sole-survivor-australian-mushroom-poisoning-025304972.html)
-- Aug 25 - [Donald Trump Threatens To Investigate Chris Christie After Former New Jersey Governor Criticizes Him On ABC’s ‘This Week’](https://www.yahoo.com/news/articles/donald-trump-threatens-investigate-chris-022600554.html)
+- Aug 25 - [Hopes fade for injured climber stuck up an icy mountain for 12 days after breaking her leg](https://www.yahoo.com/news/articles/hopes-fade-injured-climber-stuck-123753523.html)
 <!-- feed end -->
 
 ---
