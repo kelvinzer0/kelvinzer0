@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Duffy threatens states that don't enforce English language requirements for truck drivers](https://www.yahoo.com/news/videos/duffy-threatens-states-dont-enforce-180100922.html)
-- Aug 26 - [Trump cracks bizarre joke about what could ‘end’ his political career](https://www.yahoo.com/news/articles/trump-cracks-bizarre-joke-could-173245598.html)
-- Aug 26 - [Trump's letter firing the Fed's Lisa Cook is different. Here's why](https://finance.yahoo.com/news/trumps-letter-firing-feds-lisa-164612305.html)
 - Aug 26 - [Rhode Island prosecutor put on unpaid leave after warning ‘You’re gonna regret this’ during arrest](https://www.yahoo.com/news/articles/rhode-island-prosecutor-put-unpaid-164149657.html)
-- Aug 26 - [The Army is replacing the M240 machine gun. Here’s what could come next](https://www.yahoo.com/news/articles/army-replacing-m240-machine-gun-160910294.html)
+- Aug 26 - [Trump's New Flag-Burning Law Has One Glaring Contradiction, And Gavin Newsom Obviously Pointed That Out](https://www.yahoo.com/news/articles/gavin-newsom-pointed-one-very-162733716.html)
+- Aug 26 - [Court tosses lawsuit by Trump against Maryland federal judges, calling it 'potentially calamitous'](https://www.yahoo.com/news/articles/court-throws-lawsuit-trump-administration-144112352.html)
+- Aug 26 - [Former Patriots coach Bill Belichick selling Nantucket home for $3.9 million. Take a look](https://www.yahoo.com/entertainment/celebrity/articles/former-patriots-coach-bill-belichick-143753478.html)
+- Aug 26 - [Fed’s Jerome Powell Just Painted a Grim Picture of the U.S. Economy After GDP ‘Slowed Notably’ and Job Growth Stalls: Here’s Why It’s Bullish](https://finance.yahoo.com/news/fed-jerome-powell-just-painted-141824088.html)
 <!-- feed end -->
 
 ---
