@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Workday (WDAY) Dips Despite Q2 Beat; RBC Analyst Stays Bullish on AI Outlook](https://finance.yahoo.com/news/workday-wday-dips-despite-q2-162410886.html)
 - Aug 26 - [CEO Answers Startup Questions](https://www.yahoo.com/news/videos/ceo-answers-startup-questions-160000665.html)
 - Aug 26 - [Plus Size Model Ashley Alexiss Says It’s ‘Really Sad’ She’s Not Considered a Role Model After 100-Lb. Weight Loss (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/plus-size-model-ashley-alexiss-153100550.html)
-- Aug 26 - [Fox News analyst slams Trump’s latest executive order: ‘C’mon man’](https://www.yahoo.com/news/articles/fox-news-analyst-slams-trump-151052180.html)
 - Aug 26 - [Court throws out lawsuit by Trump administration against all Maryland federal judges](https://www.yahoo.com/news/articles/court-throws-lawsuit-trump-administration-144112352.html)
-- Aug 26 - [Tense scenes as Israeli military vehicles enter downtown Ramallah in latest raid on West Bank](https://www.yahoo.com/news/videos/tense-scenes-israeli-military-vehicles-135730569.html)
+- Aug 26 - [A Homeowner Is Surrounded After Refusing To Sell Their Property—'Be Very Careful, Your Land Is Likely Worthless To Anyone Else'](https://finance.yahoo.com/news/homeowner-surrounded-refusing-sell-property-140104788.html)
 <!-- feed end -->
 
 ---
