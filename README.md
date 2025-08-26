@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Philippine president fires police chief, who led the arrests of Duterte and televangelist Quiboloy](https://www.yahoo.com/news/articles/philippine-president-fires-police-chief-044609246.html)
 - Aug 26 - [Judge rules Utah's congressional map must be redrawn for the 2026 elections](https://www.yahoo.com/news/articles/judge-rules-utahs-congressional-map-012653882.html)
-- Aug 26 - [Series of events unfolds in Grand Junction, leaving one man seriously injured](https://www.yahoo.com/news/articles/series-events-unfolds-grand-junction-000500851.html)
+- Aug 26 - [Analysts' reaction to Trump firing Fed's Cook](https://finance.yahoo.com/news/instant-view-analyst-reaction-trump-005322877.html)
 - Aug 25 - [Vice President JD Vance faces backlash over shocking allegations about birthday party: 'Pretty outrageous'](https://www.yahoo.com/news/articles/vice-president-jd-vance-faces-233000418.html)
 - Aug 25 - [License plate camera company halts cooperation with federal agencies among investigation concerns](https://www.yahoo.com/news/articles/license-plate-camera-company-halts-225436172.html)
-- Aug 25 - [Piles of human cremated remains discovered outside Las Vegas](https://www.yahoo.com/news/articles/piles-human-cremated-remains-discovered-221700125.html)
 <!-- feed end -->
 
 ---
