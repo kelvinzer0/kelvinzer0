@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Manhunt for ‘sovereign citizen’ in rural Australia after two police officers shot dead](https://www.yahoo.com/news/articles/manhunt-sovereign-citizen-rural-australia-114612867.html)
-- Aug 26 - [Men charged with hugging and kissing are among group publicly caned by Indonesian Islamic court](https://www.yahoo.com/news/articles/men-charged-hugging-kissing-among-110923217.html)
-- Aug 26 - [Ex-Trump White House Lawyer's Deadpan Response To John Bolton Raid Has NPR Host Howling](https://www.yahoo.com/news/articles/ex-trump-white-house-lawyers-105620431.html)
-- Aug 26 - [Nvidia set for $260 billion price swing after earnings, options indicate](https://finance.yahoo.com/news/nvidia-set-260-billion-price-100108300.html)
-- Aug 26 - [Hiltzik: Why are all these leading Democrats suddenly facing mortgage fraud charges? Guess who's behind it](https://www.yahoo.com/news/articles/hiltzik-why-leading-democrats-suddenly-100000706.html)
+- Aug 26 - [More homeowners are pulling their properties off the market. Here's why.](https://www.yahoo.com/news/articles/more-sellers-pulling-homes-off-215029219.html)
+- Aug 26 - [Rare earth prices hit two-year peak after MP Materials stops China shipments](https://finance.yahoo.com/news/rare-earth-prices-hit-two-121206554.html)
+- Aug 26 - [Gavin Newsom has a new group of fans — the far-right. And it’s for all the wrong reasons](https://www.yahoo.com/news/articles/gavin-newsom-group-fans-far-113737195.html)
+- Aug 26 - [‘Private zoo’ of Asia’s richest family investigated](https://www.yahoo.com/news/articles/private-zoo-asia-richest-family-113228366.html)
+- Aug 26 - [Mark Zuckerberg gifted noise-canceling headphones to his Palo Alto neighbors because of the non-stop construction around his 11 homes](https://www.yahoo.com/news/articles/mark-zuckerberg-gifted-noise-canceling-100300758.html)
 <!-- feed end -->
 
 ---
