@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 26 - [Rhode Island prosecutor put on unpaid leave after warning ‘You’re gonna regret this’ during arrest](https://www.yahoo.com/news/articles/rhode-island-prosecutor-put-unpaid-164149657.html)
+- Aug 26 - [Trump just did the one thing the Supreme Court said he can’t do](https://www.yahoo.com/news/articles/trump-just-did-one-thing-163000414.html)
 - Aug 26 - [Trump's New Flag-Burning Law Has One Glaring Contradiction, And Gavin Newsom Obviously Pointed That Out](https://www.yahoo.com/news/articles/gavin-newsom-pointed-one-very-162733716.html)
-- Aug 26 - [Court tosses lawsuit by Trump against Maryland federal judges, calling it 'potentially calamitous'](https://www.yahoo.com/news/articles/court-throws-lawsuit-trump-administration-144112352.html)
-- Aug 26 - [Former Patriots coach Bill Belichick selling Nantucket home for $3.9 million. Take a look](https://www.yahoo.com/entertainment/celebrity/articles/former-patriots-coach-bill-belichick-143753478.html)
-- Aug 26 - [Fed’s Jerome Powell Just Painted a Grim Picture of the U.S. Economy After GDP ‘Slowed Notably’ and Job Growth Stalls: Here’s Why It’s Bullish](https://finance.yahoo.com/news/fed-jerome-powell-just-painted-141824088.html)
+- Aug 26 - [First-of-its-kind Stanford study says AI is starting to have a ‘significant and disproportionate impact’ on entry-level workers in the U.S.](https://www.yahoo.com/news/articles/first-kind-stanford-study-says-154521204.html)
+- Aug 26 - [Scientists Say There’s an ‘Anti-Universe’ Running Backward in Time](https://www.yahoo.com/news/articles/scientists-anti-universe-running-backward-153000191.html)
 <!-- feed end -->
 
 ---
