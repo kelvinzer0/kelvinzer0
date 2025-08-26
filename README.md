@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Aug 26 - [Minnesota woman charged for using racial slur against Black child as her fundraising tops $800,000](https://www.yahoo.com/news/articles/minnesota-woman-charged-using-racial-212039698.html)
 - Aug 26 - [Donald Trump's Latest Comments About Autism Are So Shocking You'll Have To Re-Read What He Said](https://www.yahoo.com/news/articles/donald-trumps-latest-comments-autism-210345350.html)
-- Aug 26 - [Passenger attacked in viral hair-pulling incident sues Southwest, blaming the airline’s ‘free-for-all’ seating policy](https://www.yahoo.com/news/articles/passenger-attacked-viral-hair-pulling-201429630.html)
 - Aug 26 - [Former special counsel Jack Smith responds to federal investigation against him about his prosecution of Donald Trump](https://www.yahoo.com/news/articles/former-special-counsel-jack-smith-195620095.html)
-- Aug 26 - ["I Am Pissed!": This Voter Told A GOP Lawmaker To "Get Your Head Out Of Trump’s Ass" At A Town Hall, And People Are Saying This Is The Energy We Need](https://www.yahoo.com/news/articles/am-pissed-voter-told-gop-195153348.html)
+- Aug 26 - [Trump saying 600,000 Chinese students could come to the US draws MAGA backlash](https://www.yahoo.com/news/articles/trump-saying-600-000-chinese-193828056.html)
+- Aug 26 - [NASA Artemis Rocket Booster Suffers Anomaly During Test](https://www.yahoo.com/news/videos/nasa-artemis-rocket-booster-suffers-190000696.html)
 <!-- feed end -->
 
 ---
