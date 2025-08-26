@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [French PM Bayrou risks cabinet collapse with confidence vote on major budget cuts](https://www.yahoo.com/news/articles/french-pm-bayrou-seeks-confidence-062819748.html)
-- Aug 26 - ['Powerful optics': China's Xi to welcome Putin, Modi in grand show of solidarity](https://www.yahoo.com/news/articles/powerful-optics-chinas-xi-welcome-051027647.html)
+- Aug 26 - [On This Date: Chicago's Midnight Derecho Follows Strong Iowa Tornadoes](https://www.yahoo.com/news/articles/date-chicagos-midnight-derecho-follows-100000654.html)
+- Aug 26 - [Mass evacuations in eastern Pakistan as India releases water from swollen rivers](https://www.yahoo.com/news/articles/mass-evacuations-eastern-pakistan-india-072527266.html)
+- Aug 26 - [Morgan Stanley joins global peers with September Fed rate cut outlook as Powell shifts tone](https://finance.yahoo.com/news/morgan-stanley-expects-us-fed-055731754.html)
 - Aug 26 - [Philippine president fires police chief, who led the arrests of Duterte and televangelist Quiboloy](https://www.yahoo.com/news/articles/philippine-president-fires-police-chief-044609246.html)
 - Aug 26 - [Towering wall of dust rolls through metro Phoenix, leaving thousands without power](https://www.yahoo.com/news/articles/towering-wall-dust-rolls-metro-024857305.html)
-- Aug 26 - [Judge rules Utah's congressional map must be redrawn for the 2026 elections](https://www.yahoo.com/news/articles/judge-rules-utahs-congressional-map-012653882.html)
 <!-- feed end -->
 
 ---
