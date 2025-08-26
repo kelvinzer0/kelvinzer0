@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Rhode Island prosecutor put on unpaid leave after warning ‘You’re gonna regret this’ during arrest](https://www.yahoo.com/news/articles/rhode-island-prosecutor-put-unpaid-164149657.html)
-- Aug 26 - [Trump just did the one thing the Supreme Court said he can’t do](https://www.yahoo.com/news/articles/trump-just-did-one-thing-163000414.html)
-- Aug 26 - [Trump's New Flag-Burning Law Has One Glaring Contradiction, And Gavin Newsom Obviously Pointed That Out](https://www.yahoo.com/news/articles/gavin-newsom-pointed-one-very-162733716.html)
-- Aug 26 - [First-of-its-kind Stanford study says AI is starting to have a ‘significant and disproportionate impact’ on entry-level workers in the U.S.](https://www.yahoo.com/news/articles/first-kind-stanford-study-says-154521204.html)
-- Aug 26 - [Scientists Say There’s an ‘Anti-Universe’ Running Backward in Time](https://www.yahoo.com/news/articles/scientists-anti-universe-running-backward-153000191.html)
+- Aug 26 - [Three states could lose millions in federal funding if English is not enforced for truck drivers, Duffy says](https://www.yahoo.com/news/articles/three-states-could-lose-millions-205538422.html)
+- Aug 26 - [Factbox-Fed Governor Cook's mortgages: What's known and what's not](https://finance.yahoo.com/news/factbox-fed-governor-cooks-mortgages-205434500.html)
+- Aug 26 - [California restauranter accused of hiring biker gang to burn down eatery](https://www.yahoo.com/news/articles/california-restauranter-accused-hiring-biker-202548225.html)
+- Aug 26 - [The Governor Of Illinois Is Going Viral For His Response To Donald Trump's Fat Joke](https://www.yahoo.com/news/articles/governor-illinois-going-viral-response-202209390.html)
+- Aug 26 - [Ethereum price will hit $7,500 by year-end, says Standard Chartered analyst](https://finance.yahoo.com/news/ethereum-price-hit-7-500-200810531.html)
 <!-- feed end -->
 
 ---
