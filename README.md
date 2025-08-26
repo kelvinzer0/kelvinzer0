@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [CEO Answers Startup Questions](https://www.yahoo.com/news/videos/ceo-answers-startup-questions-160000665.html)
+- Aug 26 - [Plus Size Model Ashley Alexiss Says It’s ‘Really Sad’ She’s Not Considered a Role Model After 100-Lb. Weight Loss (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/plus-size-model-ashley-alexiss-153100550.html)
+- Aug 26 - [Fox News analyst slams Trump’s latest executive order: ‘C’mon man’](https://www.yahoo.com/news/articles/fox-news-analyst-slams-trump-151052180.html)
 - Aug 26 - [Court throws out lawsuit by Trump administration against all Maryland federal judges](https://www.yahoo.com/news/articles/court-throws-lawsuit-trump-administration-144112352.html)
-- Aug 26 - [Carnival cruise ship tilts amid rough weather, scattering dishes, flooding elevator](https://www.yahoo.com/news/articles/carnival-cruise-ship-tilts-amid-143805900.html)
-- Aug 26 - [Guernsey flight mysteriously tracked by 1.3m online](https://www.yahoo.com/news/articles/guernsey-flight-mysteriously-tracked-1-142822681.html)
-- Aug 26 - [Nvidia stock soared 35,000% over the past decade — but it's not the only top chip stock for the future](https://finance.yahoo.com/news/nvidia-stock-soared-35000-over-the-past-decade--but-its-not-the-only-top-chip-stock-for-the-future-131446604.html)
-- Aug 26 - [Ex-Trump White House Lawyer's Deadpan Response To John Bolton Raid Has NPR Host Howling](https://www.yahoo.com/news/articles/ex-trump-white-house-lawyers-105620431.html)
+- Aug 26 - [Tense scenes as Israeli military vehicles enter downtown Ramallah in latest raid on West Bank](https://www.yahoo.com/news/videos/tense-scenes-israeli-military-vehicles-135730569.html)
 <!-- feed end -->
 
 ---
