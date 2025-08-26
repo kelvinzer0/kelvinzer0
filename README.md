@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 26 - [Manhunt for ‘sovereign citizen’ in rural Australia after two police officers shot dead](https://www.yahoo.com/news/articles/manhunt-sovereign-citizen-rural-australia-114612867.html)
+- Aug 26 - [Men charged with hugging and kissing are among group publicly caned by Indonesian Islamic court](https://www.yahoo.com/news/articles/men-charged-hugging-kissing-among-110923217.html)
+- Aug 26 - [Ex-Trump White House Lawyer's Deadpan Response To John Bolton Raid Has NPR Host Howling](https://www.yahoo.com/news/articles/ex-trump-white-house-lawyers-105620431.html)
+- Aug 26 - [Nvidia set for $260 billion price swing after earnings, options indicate](https://finance.yahoo.com/news/nvidia-set-260-billion-price-100108300.html)
 - Aug 26 - [Hiltzik: Why are all these leading Democrats suddenly facing mortgage fraud charges? Guess who's behind it](https://www.yahoo.com/news/articles/hiltzik-why-leading-democrats-suddenly-100000706.html)
-- Aug 26 - [Mass evacuations in eastern Pakistan as India releases water from swollen rivers](https://www.yahoo.com/news/articles/mass-evacuations-eastern-pakistan-india-072527266.html)
-- Aug 26 - [Morgan Stanley joins global peers with September Fed rate cut outlook as Powell shifts tone](https://finance.yahoo.com/news/morgan-stanley-expects-us-fed-055731754.html)
-- Aug 26 - [Towering wall of dust rolls through metro Phoenix, leaving thousands without power](https://www.yahoo.com/news/articles/towering-wall-dust-rolls-metro-024857305.html)
-- Aug 26 - [38 tons of narcotics worth $470M seized in historic bust off South Florida coast](https://www.yahoo.com/news/articles/38-tons-narcotics-worth-470m-012814415.html)
 <!-- feed end -->
 
 ---
