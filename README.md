@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [More homeowners are pulling their properties off the market. Here's why.](https://www.yahoo.com/news/articles/more-sellers-pulling-homes-off-215029219.html)
-- Aug 26 - [Rare earth prices hit two-year peak after MP Materials stops China shipments](https://finance.yahoo.com/news/rare-earth-prices-hit-two-121206554.html)
-- Aug 26 - [Gavin Newsom has a new group of fans — the far-right. And it’s for all the wrong reasons](https://www.yahoo.com/news/articles/gavin-newsom-group-fans-far-113737195.html)
-- Aug 26 - [‘Private zoo’ of Asia’s richest family investigated](https://www.yahoo.com/news/articles/private-zoo-asia-richest-family-113228366.html)
-- Aug 26 - [Mark Zuckerberg gifted noise-canceling headphones to his Palo Alto neighbors because of the non-stop construction around his 11 homes](https://www.yahoo.com/news/articles/mark-zuckerberg-gifted-noise-canceling-100300758.html)
+- Aug 26 - [Scientists Detected Signs of a Structure Hiding Inside Earth's Core](https://www.yahoo.com/news/articles/scientists-detected-signs-structure-hiding-130050688.html)
+- Aug 26 - [Charlie Munger Said 'You're A Total Idiot' If You're Surprised When You Lose To People Like This](https://finance.yahoo.com/news/charlie-munger-said-youre-total-113102699.html)
+- Aug 26 - [Ex-Trump White House Lawyer's Deadpan Response To John Bolton Raid Has NPR Host Howling](https://www.yahoo.com/news/articles/ex-trump-white-house-lawyers-105620431.html)
+- Aug 26 - [Mark Zuckerberg gifted noise-canceling headphones to his Palo Alto neighbors because of the nonstop construction around his 11 homes](https://www.yahoo.com/news/articles/mark-zuckerberg-gifted-noise-canceling-100300758.html)
+- Aug 26 - [Nvidia set for $260 billion price swing after earnings, options indicate](https://finance.yahoo.com/news/nvidia-set-260-billion-price-100108300.html)
 <!-- feed end -->
 
 ---
