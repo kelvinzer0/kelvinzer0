@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [On This Date: Chicago's Midnight Derecho Follows Strong Iowa Tornadoes](https://www.yahoo.com/news/articles/date-chicagos-midnight-derecho-follows-100000654.html)
+- Aug 26 - [Hiltzik: Why are all these leading Democrats suddenly facing mortgage fraud charges? Guess who's behind it](https://www.yahoo.com/news/articles/hiltzik-why-leading-democrats-suddenly-100000706.html)
 - Aug 26 - [Mass evacuations in eastern Pakistan as India releases water from swollen rivers](https://www.yahoo.com/news/articles/mass-evacuations-eastern-pakistan-india-072527266.html)
 - Aug 26 - [Morgan Stanley joins global peers with September Fed rate cut outlook as Powell shifts tone](https://finance.yahoo.com/news/morgan-stanley-expects-us-fed-055731754.html)
-- Aug 26 - [Philippine president fires police chief, who led the arrests of Duterte and televangelist Quiboloy](https://www.yahoo.com/news/articles/philippine-president-fires-police-chief-044609246.html)
 - Aug 26 - [Towering wall of dust rolls through metro Phoenix, leaving thousands without power](https://www.yahoo.com/news/articles/towering-wall-dust-rolls-metro-024857305.html)
+- Aug 26 - [38 tons of narcotics worth $470M seized in historic bust off South Florida coast](https://www.yahoo.com/news/articles/38-tons-narcotics-worth-470m-012814415.html)
 <!-- feed end -->
 
 ---
