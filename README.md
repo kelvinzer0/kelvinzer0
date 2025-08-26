@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 25 - [Man beaten, slashed by three men in Lower Manhattan: NYPD](https://www.yahoo.com/news/articles/man-beaten-slashed-three-men-215005213.html)
-- Aug 25 - [Two elderly women rescued from remote cabin hot tub after girls trip goes dangerously wrong](https://www.yahoo.com/news/articles/two-elderly-women-rescued-remote-214427094.html)
-- Aug 25 - [What is ‘Gender Exploratory Therapy,’ the HHS’s alternative to gender-affirming care?](https://www.yahoo.com/news/articles/gender-exploratory-therapy-hhs-alternative-214326302.html)
-- Aug 25 - [Donald Trump Kicks His Own Staffer Out of Oval Office After Phone Noise Interrupts His Speech: 'Get Out of the Room'](https://www.yahoo.com/news/articles/donald-trump-kicks-own-staffer-212209042.html)
-- Aug 25 - [Former Shelton High School teacher accused of sexually assaulting student appears in court, released on bond](https://www.yahoo.com/news/articles/former-shelton-high-school-teacher-205113280.html)
+- Aug 26 - [Brazil judge grants injunction against soy moratorium suspension](https://finance.yahoo.com/news/brazil-judge-grants-injunction-against-004547120.html)
+- Aug 26 - [Are Cybertrucks Making People Sick?](https://autos.yahoo.com/articles/cybertrucks-making-people-sick-000000071.html)
+- Aug 25 - [Vice President JD Vance faces backlash over shocking allegations about birthday party: 'Pretty outrageous'](https://www.yahoo.com/news/articles/vice-president-jd-vance-faces-233000418.html)
+- Aug 25 - [License plate camera company halts cooperation with federal agencies among investigation concerns](https://www.yahoo.com/news/articles/license-plate-camera-company-halts-225436172.html)
+- Aug 25 - [KC-46’s Refueling Boom “Nozzle Binding” Issues Are Costing The USAF Tens Of Millions In Damage](https://www.yahoo.com/news/articles/kc-46-refueling-boom-nozzle-221113275.html)
 <!-- feed end -->
 
 ---
