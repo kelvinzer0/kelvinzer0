@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [2 police officers killed and another shot in a rural Australian town](https://www.yahoo.com/news/articles/2-police-officers-killed-another-073734118.html)
+- Aug 26 - [French PM Bayrou risks cabinet collapse with confidence vote on major budget cuts](https://www.yahoo.com/news/articles/french-pm-bayrou-seeks-confidence-062819748.html)
 - Aug 26 - ['Powerful optics': China's Xi to welcome Putin, Modi in grand show of solidarity](https://www.yahoo.com/news/articles/powerful-optics-chinas-xi-welcome-051027647.html)
 - Aug 26 - [Philippine president fires police chief, who led the arrests of Duterte and televangelist Quiboloy](https://www.yahoo.com/news/articles/philippine-president-fires-police-chief-044609246.html)
+- Aug 26 - [Towering wall of dust rolls through metro Phoenix, leaving thousands without power](https://www.yahoo.com/news/articles/towering-wall-dust-rolls-metro-024857305.html)
 - Aug 26 - [Judge rules Utah's congressional map must be redrawn for the 2026 elections](https://www.yahoo.com/news/articles/judge-rules-utahs-congressional-map-012653882.html)
-- Aug 25 - [Vice President JD Vance faces backlash over shocking allegations about birthday party: 'Pretty outrageous'](https://www.yahoo.com/news/articles/vice-president-jd-vance-faces-233000418.html)
 <!-- feed end -->
 
 ---
