@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Workday (WDAY) Dips Despite Q2 Beat; RBC Analyst Stays Bullish on AI Outlook](https://finance.yahoo.com/news/workday-wday-dips-despite-q2-162410886.html)
-- Aug 26 - [CEO Answers Startup Questions](https://www.yahoo.com/news/videos/ceo-answers-startup-questions-160000665.html)
-- Aug 26 - [Plus Size Model Ashley Alexiss Says It’s ‘Really Sad’ She’s Not Considered a Role Model After 100-Lb. Weight Loss (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/plus-size-model-ashley-alexiss-153100550.html)
-- Aug 26 - [Court throws out lawsuit by Trump administration against all Maryland federal judges](https://www.yahoo.com/news/articles/court-throws-lawsuit-trump-administration-144112352.html)
-- Aug 26 - [A Homeowner Is Surrounded After Refusing To Sell Their Property—'Be Very Careful, Your Land Is Likely Worthless To Anyone Else'](https://finance.yahoo.com/news/homeowner-surrounded-refusing-sell-property-140104788.html)
+- Aug 26 - [Duffy threatens states that don't enforce English language requirements for truck drivers](https://www.yahoo.com/news/videos/duffy-threatens-states-dont-enforce-180100922.html)
+- Aug 26 - [Trump cracks bizarre joke about what could ‘end’ his political career](https://www.yahoo.com/news/articles/trump-cracks-bizarre-joke-could-173245598.html)
+- Aug 26 - [Trump's letter firing the Fed's Lisa Cook is different. Here's why](https://finance.yahoo.com/news/trumps-letter-firing-feds-lisa-164612305.html)
+- Aug 26 - [Rhode Island prosecutor put on unpaid leave after warning ‘You’re gonna regret this’ during arrest](https://www.yahoo.com/news/articles/rhode-island-prosecutor-put-unpaid-164149657.html)
+- Aug 26 - [The Army is replacing the M240 machine gun. Here’s what could come next](https://www.yahoo.com/news/articles/army-replacing-m240-machine-gun-160910294.html)
 <!-- feed end -->
 
 ---
