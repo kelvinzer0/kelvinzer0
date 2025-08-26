@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Three states could lose millions in federal funding if English is not enforced for truck drivers, Duffy says](https://www.yahoo.com/news/articles/three-states-could-lose-millions-205538422.html)
-- Aug 26 - [Factbox-Fed Governor Cook's mortgages: What's known and what's not](https://finance.yahoo.com/news/factbox-fed-governor-cooks-mortgages-205434500.html)
-- Aug 26 - [California restauranter accused of hiring biker gang to burn down eatery](https://www.yahoo.com/news/articles/california-restauranter-accused-hiring-biker-202548225.html)
-- Aug 26 - [The Governor Of Illinois Is Going Viral For His Response To Donald Trump's Fat Joke](https://www.yahoo.com/news/articles/governor-illinois-going-viral-response-202209390.html)
-- Aug 26 - [Ethereum price will hit $7,500 by year-end, says Standard Chartered analyst](https://finance.yahoo.com/news/ethereum-price-hit-7-500-200810531.html)
+- Aug 26 - [Minnesota woman charged for using racial slur against Black child as her fundraising tops $800,000](https://www.yahoo.com/news/articles/minnesota-woman-charged-using-racial-212039698.html)
+- Aug 26 - [Donald Trump's Latest Comments About Autism Are So Shocking You'll Have To Re-Read What He Said](https://www.yahoo.com/news/articles/donald-trumps-latest-comments-autism-210345350.html)
+- Aug 26 - [Passenger attacked in viral hair-pulling incident sues Southwest, blaming the airline’s ‘free-for-all’ seating policy](https://www.yahoo.com/news/articles/passenger-attacked-viral-hair-pulling-201429630.html)
+- Aug 26 - [Former special counsel Jack Smith responds to federal investigation against him about his prosecution of Donald Trump](https://www.yahoo.com/news/articles/former-special-counsel-jack-smith-195620095.html)
+- Aug 26 - ["I Am Pissed!": This Voter Told A GOP Lawmaker To "Get Your Head Out Of Trump’s Ass" At A Town Hall, And People Are Saying This Is The Energy We Need](https://www.yahoo.com/news/articles/am-pissed-voter-told-gop-195153348.html)
 <!-- feed end -->
 
 ---
