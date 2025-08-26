@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Brazil judge grants injunction against soy moratorium suspension](https://finance.yahoo.com/news/brazil-judge-grants-injunction-against-004547120.html)
-- Aug 26 - [Are Cybertrucks Making People Sick?](https://autos.yahoo.com/articles/cybertrucks-making-people-sick-000000071.html)
+- Aug 26 - [Scientists 'baffled' over concerning phenomenon on 18-mile-long glacier: 'The stability of the glacier has come to an end'](https://www.yahoo.com/news/articles/scientists-baffled-over-concerning-phenomenon-021500852.html)
+- Aug 26 - [Ultra-Orthodox MK Goldknopf asks PM Netanyahu to finance Chabad's trip to New York](https://www.yahoo.com/news/articles/ultra-orthodox-mk-goldknopf-asks-012833536.html)
+- Aug 26 - [Judge rules Utah's congressional map must be redrawn for the 2026 elections](https://www.yahoo.com/news/articles/judge-rules-utahs-congressional-map-012653882.html)
 - Aug 25 - [Vice President JD Vance faces backlash over shocking allegations about birthday party: 'Pretty outrageous'](https://www.yahoo.com/news/articles/vice-president-jd-vance-faces-233000418.html)
 - Aug 25 - [License plate camera company halts cooperation with federal agencies among investigation concerns](https://www.yahoo.com/news/articles/license-plate-camera-company-halts-225436172.html)
-- Aug 25 - [KC-46’s Refueling Boom “Nozzle Binding” Issues Are Costing The USAF Tens Of Millions In Damage](https://www.yahoo.com/news/articles/kc-46-refueling-boom-nozzle-221113275.html)
 <!-- feed end -->
 
 ---
