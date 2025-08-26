@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 26 - [Scientists Detected Signs of a Structure Hiding Inside Earth's Core](https://www.yahoo.com/news/articles/scientists-detected-signs-structure-hiding-130050688.html)
-- Aug 26 - [Charlie Munger Said 'You're A Total Idiot' If You're Surprised When You Lose To People Like This](https://finance.yahoo.com/news/charlie-munger-said-youre-total-113102699.html)
+- Aug 26 - [Court throws out lawsuit by Trump administration against all Maryland federal judges](https://www.yahoo.com/news/articles/court-throws-lawsuit-trump-administration-144112352.html)
+- Aug 26 - [Carnival cruise ship tilts amid rough weather, scattering dishes, flooding elevator](https://www.yahoo.com/news/articles/carnival-cruise-ship-tilts-amid-143805900.html)
+- Aug 26 - [Guernsey flight mysteriously tracked by 1.3m online](https://www.yahoo.com/news/articles/guernsey-flight-mysteriously-tracked-1-142822681.html)
+- Aug 26 - [Nvidia stock soared 35,000% over the past decade — but it's not the only top chip stock for the future](https://finance.yahoo.com/news/nvidia-stock-soared-35000-over-the-past-decade--but-its-not-the-only-top-chip-stock-for-the-future-131446604.html)
 - Aug 26 - [Ex-Trump White House Lawyer's Deadpan Response To John Bolton Raid Has NPR Host Howling](https://www.yahoo.com/news/articles/ex-trump-white-house-lawyers-105620431.html)
-- Aug 26 - [Mark Zuckerberg gifted noise-canceling headphones to his Palo Alto neighbors because of the nonstop construction around his 11 homes](https://www.yahoo.com/news/articles/mark-zuckerberg-gifted-noise-canceling-100300758.html)
-- Aug 26 - [Nvidia set for $260 billion price swing after earnings, options indicate](https://finance.yahoo.com/news/nvidia-set-260-billion-price-100108300.html)
 <!-- feed end -->
 
 ---
