@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Denmark apologises for involuntary birth control in Greenland](https://www.yahoo.com/news/articles/denmark-apologises-involuntary-birth-control-124604338.html)
 - Aug 27 - [15 Classic Muscle Cars That Were Ahead of Their Time](https://autos.yahoo.com/articles/15-classic-muscle-cars-were-155241949.html)
 - Aug 27 - [Camper shares rude interaction after approaching rule-breakers in national park: 'Thought he was better than everyone'](https://www.yahoo.com/news/articles/camper-shares-rude-interaction-approaching-101000376.html)
-- Aug 27 - [Crash leaves Waikiki chef in ICU, family uncertain](https://www.yahoo.com/news/articles/crash-leaves-waikiki-chef-icu-072157421.html)
-- Aug 27 - [F-35 pilot held 50-minute airborne conference call with engineers before fighter jet crashed in Alaska](https://www.yahoo.com/news/articles/f-35-pilot-held-50-060019184.html)
+- Aug 27 - [Officials introduce voracious fish to fend off invasive species before it spreads to major lake: 'Ecologically important'](https://www.yahoo.com/news/articles/officials-introduce-voracious-fish-fend-100000553.html)
+- Aug 27 - [Exclusive-India steelmakers seek near-sevenfold rise in met coke import quota amid supply crunch](https://finance.yahoo.com/news/exclusive-india-steelmakers-seek-near-092305941.html)
+- Aug 27 - [9 Pensacola area restaurants receive major violations in latest inspection](https://www.yahoo.com/news/articles/9-pensacola-area-restaurants-receive-090201812.html)
 <!-- feed end -->
 
 ---
