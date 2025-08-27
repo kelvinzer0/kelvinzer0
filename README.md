@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [DC Mayor Muriel Bowser Praises Donald Trump’s Police Takeover](https://www.yahoo.com/news/articles/dc-mayor-muriel-bowser-praises-192403093.html)
-- Aug 27 - [Mallers on Adding Bitcoin, Going Public, Storing Wealth](https://finance.yahoo.com/video/mallers-adding-bitcoin-going-public-191456923.html)
-- Aug 27 - [Bengal-MC Air Cushion Catamaran Aims To Be The Navy’s Future Ultra-Adaptable Combat Ship](https://www.yahoo.com/news/articles/bengal-mc-air-cushion-catamaran-180231901.html)
-- Aug 27 - [Archaeologists Found a 1,400-Year-Old Cross That Solves a Christian Mystery](https://www.yahoo.com/news/articles/archaeologists-found-1-400-old-173000798.html)
-- Aug 27 - [The pile-on came after Cabinet members spent hours praising the president.](https://www.yahoo.com/news/videos/pile-came-cabinet-members-spent-170906253.html)
+- Aug 27 - [Georgia's Fulton County fined $10,000 a day for not appointing Republican election board nominees](https://www.yahoo.com/news/articles/georgias-fulton-county-fined-10-202450459.html)
+- Aug 27 - [US tariffs on Brazil will reshape global beef trade flows, analysts say](https://finance.yahoo.com/news/us-tariffs-brazil-reshape-global-192532355.html)
+- Aug 27 - [Baby likely died from abuse before parents reported him missing, prosecutor says](https://www.yahoo.com/news/articles/missing-baby-california-likely-died-191530078.html)
+- Aug 27 - [MAGA Loses It After Minneapolis Mayor’s Emotional Speech on Shooting](https://www.yahoo.com/news/articles/maga-loses-minneapolis-mayor-emotional-183257487.html)
+- Aug 27 - [Arrest made after shots fired outside Virginia Beach middle school](https://www.yahoo.com/news/articles/arrest-made-shots-fired-outside-181920935.html)
 <!-- feed end -->
 
 ---
