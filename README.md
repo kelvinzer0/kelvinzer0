@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Immigrants often help bring criminals to justice. Will that change with Trump crackdown?](https://www.yahoo.com/news/articles/immigrants-often-help-bring-criminals-100445882.html)
-- Aug 27 - [Nvidia earnings preview and the Trump chip tariff twist](https://finance.yahoo.com/video/nvidia-earnings-preview-trump-chip-100025160.html)
-- Aug 27 - [Japan remains cautious on economic impact of tariffs in August report](https://finance.yahoo.com/news/japan-remains-cautious-economic-impact-084148400.html)
-- Aug 27 - [Trump administration to revoke US Wind plans off Delaware coast](https://www.yahoo.com/news/articles/trump-administration-revoke-us-wind-082021787.html)
-- Aug 27 - [Nvidia Earnings Day Has Arrived, and This Metric Will Determine If It's Incredible or Terrible News (Hint: It's Not Sales or EPS)](https://finance.yahoo.com/news/nvidia-earnings-day-arrived-metric-075100991.html)
+- Aug 27 - [AI Weekly: grouchy Grok and the wizard of bots](https://finance.yahoo.com/video/ai-weekly-grouchy-grok-wizard-104312390.html)
+- Aug 27 - [Spirit Halloween location announced in San Angelo](https://www.yahoo.com/news/articles/spirit-halloween-location-announced-san-100440183.html)
+- Aug 27 - [F-35 pilot held 50-minute airborne conference call with engineers before fighter jet crashed in Alaska](https://www.yahoo.com/news/articles/f-35-pilot-held-50-060019184.html)
+- Aug 27 - [India releases water from dams, warns rival Pakistan of cross-border flooding, says source](https://www.yahoo.com/news/articles/india-releases-water-dams-warns-062451946.html)
+- Aug 27 - [Ukrainian drone attacks on oil refineries have some Russian regions running on empty](https://www.yahoo.com/news/articles/ukrainian-drone-attacks-oil-refineries-054203706.html)
 <!-- feed end -->
 
 ---
