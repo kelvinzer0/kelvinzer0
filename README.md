@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [US tariffs on Brazil will reshape global beef trade flows, analysts say](https://finance.yahoo.com/news/us-tariffs-brazil-reshape-global-192532525.html)
-- Aug 27 - [Baby likely died from abuse before parents reported him missing, prosecutor says](https://www.yahoo.com/news/articles/missing-baby-california-likely-died-191530078.html)
-- Aug 27 - [MAGA Loses It After Minneapolis Mayor’s Emotional Speech on Shooting](https://www.yahoo.com/news/articles/maga-loses-minneapolis-mayor-emotional-183257487.html)
-- Aug 27 - [Archaeologists Found a 1,400-Year-Old Cross That Solves a Christian Mystery](https://www.yahoo.com/news/articles/archaeologists-found-1-400-old-173000798.html)
-- Aug 27 - [The pile-on came after Cabinet members spent hours praising the president.](https://www.yahoo.com/news/videos/pile-came-cabinet-members-spent-170906253.html)
+- Aug 27 - [WBAY-TV announces new weekend meteorologist after Keith Gibson's departure](https://www.yahoo.com/news/articles/wbay-tv-announces-weekend-meteorologist-220225932.html)
+- Aug 27 - [New Jersey's massive American Dream mall sued for selling clothes on a Sunday](https://www.yahoo.com/news/articles/jerseys-massive-american-dream-mall-214826271.html)
+- Aug 27 - [Georgia's Fulton County fined $10,000 a day for not appointing Republican election board nominees](https://www.yahoo.com/news/articles/georgias-fulton-county-fined-10-202450459.html)
+- Aug 27 - [US tariffs on Brazil will reshape global beef trade flows, analysts say](https://finance.yahoo.com/news/us-tariffs-brazil-reshape-global-192532355.html)
+- Aug 27 - [Ford Recalls 355,000 Trucks After Dashboard Displays Go Dark](https://autos.yahoo.com/articles/ford-recalls-355-000-trucks-192423396.html)
 <!-- feed end -->
 
 ---
