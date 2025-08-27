@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [KTVX: Utah violinist arrested by ICE on wife’s birthday](https://www.yahoo.com/news/videos/ktvx-utah-violinist-arrested-ice-154500671.html)
+- Aug 27 - [Unleashed dog kills two dozen newly born sea turtles on Florida beach](https://www.yahoo.com/news/articles/unleashed-dog-kills-two-dozen-175654374.html)
+- Aug 27 - [The pile-on came after Cabinet members spent hours praising the president.](https://www.yahoo.com/news/videos/pile-came-cabinet-members-spent-170906253.html)
+- Aug 27 - [What’s known so far about suspect in Minneapolis church mass shooting](https://www.yahoo.com/news/videos/known-far-suspect-minneapolis-church-162725423.html)
+- Aug 27 - [‘Morning Joe’ Hosts Cringe Watching Trump’s Cabinet Heads Praise Him: ‘At What Point Does Personal Pride Come in?’ | Video](https://www.yahoo.com/news/articles/morning-joe-hosts-cringe-watching-152914930.html)
 - Aug 27 - [I'm 49 years old and was laid off from my six-figure sales job. I now make $52,000 in an entry-level role where I work alongside college grads.](https://www.yahoo.com/lifestyle/articles/im-49-years-old-laid-145240662.html)
-- Aug 27 - [Jen Psaki Makes Ominous Warning About Trump: ‘Let That Sink In For A Second’](https://www.yahoo.com/news/articles/jen-psaki-makes-ominous-warning-143226621.html)
-- Aug 27 - [Susan Collins Drowned Out in Boos as Protesters Disrupt Ceremony](https://www.yahoo.com/news/articles/protesters-pelt-chants-shame-susan-130504025.html)
-- Aug 27 - [I'm 67 With $870k in a 401(k), $120k in an IRA and a $2,200 Social Security Check. What's My Retirement Budget?](https://finance.yahoo.com/news/im-67-870k-401-k-123500319.html)
 <!-- feed end -->
 
 ---
