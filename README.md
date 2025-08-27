@@ -30,8 +30,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Aug 27 - [KTVX: Utah violinist arrested by ICE on wife’s birthday](https://www.yahoo.com/news/videos/ktvx-utah-violinist-arrested-ice-154500671.html)
 - Aug 27 - [I'm 49 years old and was laid off from my six-figure sales job. I now make $52,000 in an entry-level role where I work alongside college grads.](https://www.yahoo.com/lifestyle/articles/im-49-years-old-laid-145240662.html)
 - Aug 27 - [Jen Psaki Makes Ominous Warning About Trump: ‘Let That Sink In For A Second’](https://www.yahoo.com/news/articles/jen-psaki-makes-ominous-warning-143226621.html)
-- Aug 27 - [Israeli attacks on Gaza are 'beyond the principle of proportionality,' Italy's Meloni says](https://www.yahoo.com/news/articles/israeli-attacks-gaza-beyond-principle-130929083.html)
-- Aug 27 - [15 Classic Muscle Cars That Were Ahead of Their Time](https://autos.yahoo.com/articles/15-classic-muscle-cars-were-155241949.html)
+- Aug 27 - [Susan Collins Drowned Out in Boos as Protesters Disrupt Ceremony](https://www.yahoo.com/news/articles/protesters-pelt-chants-shame-susan-130504025.html)
+- Aug 27 - [I'm 67 With $870k in a 401(k), $120k in an IRA and a $2,200 Social Security Check. What's My Retirement Budget?](https://finance.yahoo.com/news/im-67-870k-401-k-123500319.html)
 <!-- feed end -->
 
 ---
