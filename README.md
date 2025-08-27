@@ -31,7 +31,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Aug 27 - [Trouble in paradise: Kapalua to close 'dying' PGA Tour course for 2 months amid Maui water dispute](https://sports.yahoo.com/article/trouble-paradise-kapalua-close-dying-000241246.html)
 - Aug 26 - [Pam Bondi trashed for ‘creepy’ way she keeps addressing Donald Trump to his face](https://www.yahoo.com/news/articles/pam-bondi-trashed-creepy-way-222513831.html)
 - Aug 26 - [FBI agents who had accused bureau of politicization during Biden administration reach settlements](https://www.yahoo.com/news/articles/fbi-agents-had-accused-bureau-231005125.html)
-- Aug 26 - [Ukrainian drone attack sparks fire, evacuations in Russia's Rostov, regional governor says](https://www.yahoo.com/news/articles/russian-anti-aircraft-units-destroy-212834141.html)
+- Aug 26 - [Gavin Newsom Attacks Trump, 79, With Dementia Post as Feud Goes Feral](https://www.yahoo.com/news/articles/gavin-newsom-attacks-trump-79-215701760.html)
 <!-- feed end -->
 
 ---
