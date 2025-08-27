@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [DC Mayor Muriel Bowser Praises Donald Trump’s Police Takeover](https://www.yahoo.com/news/articles/dc-mayor-muriel-bowser-praises-192403093.html)
+- Aug 27 - [Mallers on Adding Bitcoin, Going Public, Storing Wealth](https://finance.yahoo.com/video/mallers-adding-bitcoin-going-public-191456923.html)
+- Aug 27 - [Bengal-MC Air Cushion Catamaran Aims To Be The Navy’s Future Ultra-Adaptable Combat Ship](https://www.yahoo.com/news/articles/bengal-mc-air-cushion-catamaran-180231901.html)
+- Aug 27 - [Archaeologists Found a 1,400-Year-Old Cross That Solves a Christian Mystery](https://www.yahoo.com/news/articles/archaeologists-found-1-400-old-173000798.html)
 - Aug 27 - [The pile-on came after Cabinet members spent hours praising the president.](https://www.yahoo.com/news/videos/pile-came-cabinet-members-spent-170906253.html)
-- Aug 27 - [Analyst: Not Expecting Major Nvidia Beat](https://finance.yahoo.com/video/analyst-not-expecting-major-nvidia-160113465.html)
-- Aug 27 - [I'm 49 years old and was laid off from my six-figure sales job. I now make $52,000 in an entry-level role where I work alongside college grads.](https://www.yahoo.com/lifestyle/articles/im-49-years-old-laid-145240662.html)
-- Aug 27 - [Jen Psaki Makes Ominous Warning About Trump: ‘Let That Sink In For A Second’](https://www.yahoo.com/news/articles/jen-psaki-makes-ominous-warning-143226621.html)
-- Aug 27 - [World Leader Refuses to Take Trump’s Calls After Vicious Spat With Ally](https://www.yahoo.com/news/articles/world-leader-refuses-trump-calls-142616858.html)
 <!-- feed end -->
 
 ---
