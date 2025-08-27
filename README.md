@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [AI Weekly: grouchy Grok and the wizard of bots](https://finance.yahoo.com/video/ai-weekly-grouchy-grok-wizard-104312390.html)
-- Aug 27 - [Spirit Halloween location announced in San Angelo](https://www.yahoo.com/news/articles/spirit-halloween-location-announced-san-100440183.html)
+- Aug 27 - [Mortgage and refinance interest rates today, August 27, 2025: A few steps lower again](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-august-25-2025-100058439.html)
+- Aug 27 - [Year-long Bayfront Parkway detour starts Sept. 2. How other streets are impacted](https://www.yahoo.com/news/articles/long-bayfront-parkway-detour-starts-091231378.html)
+- Aug 27 - [Crash leaves Waikiki chef in ICU, family uncertain](https://www.yahoo.com/news/articles/crash-leaves-waikiki-chef-icu-072157421.html)
+- Aug 27 - [Ford to recall more than 355,000 trucks over instrument panel issue, NHTSA says](https://autos.yahoo.com/articles/ford-recall-more-355-000-071904792.html)
 - Aug 27 - [F-35 pilot held 50-minute airborne conference call with engineers before fighter jet crashed in Alaska](https://www.yahoo.com/news/articles/f-35-pilot-held-50-060019184.html)
-- Aug 27 - [India releases water from dams, warns rival Pakistan of cross-border flooding, says source](https://www.yahoo.com/news/articles/india-releases-water-dams-warns-062451946.html)
-- Aug 27 - [Ukrainian drone attacks on oil refineries have some Russian regions running on empty](https://www.yahoo.com/news/articles/ukrainian-drone-attacks-oil-refineries-054203706.html)
 <!-- feed end -->
 
 ---
