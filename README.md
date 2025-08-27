@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [F-35 pilot held 50-minute airborne conference call with engineers before fighter jet crashed in Alaska](https://www.yahoo.com/news/articles/f-35-pilot-held-50-060019184.html)
-- Aug 27 - [India releases water from dams, warns rival Pakistan of cross-border flooding, says source](https://www.yahoo.com/news/articles/india-releases-water-dams-warns-062451946.html)
-- Aug 27 - [Trouble in paradise: Kapalua to close 'dying' PGA Tour course for 2 months amid Maui water dispute](https://sports.yahoo.com/article/trouble-paradise-kapalua-close-dying-000241246.html)
-- Aug 26 - [FBI agents who had accused bureau of politicization during Biden administration reach settlements](https://www.yahoo.com/news/articles/fbi-agents-had-accused-bureau-231005125.html)
-- Aug 26 - [Ukrainian drone attack sparks fire, evacuations in Russia's Rostov, regional governor says](https://www.yahoo.com/news/articles/russian-anti-aircraft-units-destroy-212834141.html)
+- Aug 27 - [Immigrants often help bring criminals to justice. Will that change with Trump crackdown?](https://www.yahoo.com/news/articles/immigrants-often-help-bring-criminals-100445882.html)
+- Aug 27 - [Nvidia earnings preview and the Trump chip tariff twist](https://finance.yahoo.com/video/nvidia-earnings-preview-trump-chip-100025160.html)
+- Aug 27 - [Japan remains cautious on economic impact of tariffs in August report](https://finance.yahoo.com/news/japan-remains-cautious-economic-impact-084148400.html)
+- Aug 27 - [Trump administration to revoke US Wind plans off Delaware coast](https://www.yahoo.com/news/articles/trump-administration-revoke-us-wind-082021787.html)
+- Aug 27 - [Nvidia Earnings Day Has Arrived, and This Metric Will Determine If It's Incredible or Terrible News (Hint: It's Not Sales or EPS)](https://finance.yahoo.com/news/nvidia-earnings-day-arrived-metric-075100991.html)
 <!-- feed end -->
 
 ---
