@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Mortgage and refinance interest rates today, August 27, 2025: A few steps lower again](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-wednesday-august-25-2025-100058439.html)
-- Aug 27 - [Year-long Bayfront Parkway detour starts Sept. 2. How other streets are impacted](https://www.yahoo.com/news/articles/long-bayfront-parkway-detour-starts-091231378.html)
+- Aug 27 - [Denmark apologises for involuntary birth control in Greenland](https://www.yahoo.com/news/articles/denmark-apologises-involuntary-birth-control-124604338.html)
+- Aug 27 - [15 Classic Muscle Cars That Were Ahead of Their Time](https://autos.yahoo.com/articles/15-classic-muscle-cars-were-155241949.html)
+- Aug 27 - [Camper shares rude interaction after approaching rule-breakers in national park: 'Thought he was better than everyone'](https://www.yahoo.com/news/articles/camper-shares-rude-interaction-approaching-101000376.html)
 - Aug 27 - [Crash leaves Waikiki chef in ICU, family uncertain](https://www.yahoo.com/news/articles/crash-leaves-waikiki-chef-icu-072157421.html)
-- Aug 27 - [Ford to recall more than 355,000 trucks over instrument panel issue, NHTSA says](https://autos.yahoo.com/articles/ford-recall-more-355-000-071904792.html)
 - Aug 27 - [F-35 pilot held 50-minute airborne conference call with engineers before fighter jet crashed in Alaska](https://www.yahoo.com/news/articles/f-35-pilot-held-50-060019184.html)
 <!-- feed end -->
 
