@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [Statesville Planning Board approves 350-acre data center project](https://www.yahoo.com/news/articles/statesville-planning-board-review-350-142436620.html)
-- Aug 27 - [Here’s why more homeowners are delisting their properties rather than lowering their asking price](https://finance.yahoo.com/news/why-more-homeowners-delisting-properties-021754811.html)
 - Aug 27 - [Trouble in paradise: Kapalua to close 'dying' PGA Tour course for 2 months amid Maui water dispute](https://sports.yahoo.com/article/trouble-paradise-kapalua-close-dying-000241246.html)
 - Aug 26 - [FBI agents who had accused bureau of politicization during Biden administration reach settlements](https://www.yahoo.com/news/articles/fbi-agents-had-accused-bureau-231005125.html)
 - Aug 26 - [Ukrainian drone attack sparks fire, evacuations in Russia's Rostov, regional governor says](https://www.yahoo.com/news/articles/russian-anti-aircraft-units-destroy-212834141.html)
+- Aug 26 - [Minnesota woman charged for using racial slur against Black child as her fundraising tops $800,000](https://www.yahoo.com/news/articles/minnesota-woman-charged-using-racial-212039698.html)
+- Aug 26 - [Scientists issue warning after making disturbing discovery inside oysters — here's what they found](https://www.yahoo.com/news/articles/scientists-issue-warning-making-disturbing-211500286.html)
 <!-- feed end -->
 
 ---
