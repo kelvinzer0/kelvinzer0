@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 27 - [KTVX: Utah violinist arrested by ICE on wife’s birthday](https://www.yahoo.com/news/videos/ktvx-utah-violinist-arrested-ice-154500671.html)
+- Aug 27 - [I'm 49 years old and was laid off from my six-figure sales job. I now make $52,000 in an entry-level role where I work alongside college grads.](https://www.yahoo.com/lifestyle/articles/im-49-years-old-laid-145240662.html)
+- Aug 27 - [Jen Psaki Makes Ominous Warning About Trump: ‘Let That Sink In For A Second’](https://www.yahoo.com/news/articles/jen-psaki-makes-ominous-warning-143226621.html)
+- Aug 27 - [Israeli attacks on Gaza are 'beyond the principle of proportionality,' Italy's Meloni says](https://www.yahoo.com/news/articles/israeli-attacks-gaza-beyond-principle-130929083.html)
 - Aug 27 - [15 Classic Muscle Cars That Were Ahead of Their Time](https://autos.yahoo.com/articles/15-classic-muscle-cars-were-155241949.html)
-- Aug 27 - [Camper shares rude interaction after approaching rule-breakers in national park: 'Thought he was better than everyone'](https://www.yahoo.com/news/articles/camper-shares-rude-interaction-approaching-101000376.html)
-- Aug 27 - [F-35 pilot held 50-minute airborne conference call with engineers before fighter jet crashed in Alaska](https://www.yahoo.com/news/articles/f-35-pilot-held-50-060019184.html)
-- Aug 27 - [Analysis-India’s Russian oil gains wiped out by Trump’s tariffs](https://finance.yahoo.com/news/analysis-india-russian-oil-gains-063634260.html)
-- Aug 27 - [India’s Russian oil gains are set to get wiped out by Trump’s tariffs](https://finance.yahoo.com/news/analysis-india-russian-oil-gains-063634235.html)
 <!-- feed end -->
 
 ---
