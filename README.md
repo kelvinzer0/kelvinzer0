@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Autism in midlife going undiagnosed, study finds](https://www.yahoo.com/news/articles/autism-midlife-going-undiagnosed-202845878.html)
-- Aug 28 - [Gap CEO on earnings: One of our most important brands has begun its turnaround](https://finance.yahoo.com/news/gap-ceo-on-earnings-one-of-our-most-important-brands-has-begun-its-turnaround-201524417.html)
-- Aug 28 - [Neighbor watched cops take Minneapolis shooter’s family from their home as ‘surreal’ connection to killer set in](https://www.yahoo.com/news/articles/neighbor-watched-cops-minneapolis-shooter-193729468.html)
+- Aug 28 - [Giant ‘mutant blobs’ found floating through US waterways. Officials have now worked out what they are](https://www.yahoo.com/news/articles/giant-mutant-blobs-found-floating-204435737.html)
+- Aug 28 - [The comments came after the former Biden aide declared that prayer was not enough.](https://www.yahoo.com/news/videos/comments-came-former-biden-aide-194421579.html)
 - Aug 28 - [A Woman Went for a Casual Walk—and Accidentally Discovered a One-in-a-Million Treasure](https://www.yahoo.com/news/articles/woman-went-casual-walk-accidentally-185700972.html)
-- Aug 28 - [An Engineer Says He’s Found a Way to Overcome Earth’s Gravity](https://tech.yahoo.com/science/articles/engineer-says-found-way-overcome-183900634.html)
+- Aug 28 - [Now We Know Why RFK Jr. Wanted to Fire This CDC Director](https://www.yahoo.com/news/articles/now-know-why-rfk-jr-184212893.html)
+- Aug 28 - [Archaeologists Excavated the Tower of London—and Unearthed Dozens of Hidden Skeletons](https://www.yahoo.com/news/articles/archaeologists-excavated-tower-london-unearthed-180000143.html)
 <!-- feed end -->
 
 ---
