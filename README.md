@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 28 - [Robot rabbits the latest tool in Florida battle to control invasive Burmese pythons in Everglades](https://www.yahoo.com/news/articles/robot-rabbits-latest-tool-florida-040627863.html)
-- Aug 28 - [Breaking down rumor Trump only has 6 to 8 months to live](https://www.yahoo.com/news/articles/breaking-down-rumor-trump-only-013000014.html)
 - Aug 28 - [Robin Westman was critically mentally ill, should've been stopped: Social worker | CUOMO](https://www.yahoo.com/news/videos/robin-westman-critically-mentally-ill-010645105.html)
 - Aug 28 - [Sales numbers for pre-owned Tesla Cybertrucks reveal shocking trend: 'Unprecedented'](https://finance.yahoo.com/news/sales-numbers-pre-owned-tesla-003000083.html)
 - Aug 27 - [Navy P-8 Poseidon Carrying Secretive Radar Pod Seen In Russian Fighter’s Intercept Video](https://www.yahoo.com/news/articles/navy-p-8-poseidon-carrying-222855108.html)
+- Aug 27 - [Former GOP Rep. Trey Gowdy drew heat from his co-host and MAGA for saying it was time to have “a conversation of freedom versus protecting children.”](https://www.yahoo.com/news/videos/former-gop-rep-trey-gowdy-214826716.html)
 <!-- feed end -->
 
 ---
