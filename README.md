@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [US diplomat apologizes for using the word 'animalistic' in reference to Lebanese reporters](https://www.yahoo.com/news/articles/us-diplomat-apologizes-using-word-125330389.html)
+- Aug 28 - [US economy grows 3.3% in second quarter, government says, in second estimate of April-June growth](https://finance.yahoo.com/news/us-economy-grows-3-3-123811938.html)
 - Aug 28 - [Prince Harry to visit UK for first time since court defeat](https://www.yahoo.com/lifestyle/articles/prince-harry-visit-uk-first-115633733.html)
-- Aug 28 - [Kremlin says it is satisfied after Italy arrests Ukrainian man over Nord Stream attack](https://www.yahoo.com/news/articles/kremlin-says-satisfied-italy-arrests-113144608.html)
-- Aug 28 - [A United flight to Greenland U-turned after airport security staff were told they weren't properly trained to screen the passengers](https://www.yahoo.com/news/articles/united-flight-greenland-u-turned-105145711.html)
-- Aug 28 - [Exclusive-India’s Russian oil imports set to rise in September in defiance of US](https://finance.yahoo.com/news/exclusive-india-russian-oil-imports-103602322.html)
-- Aug 28 - [Often fatal EHD found in deer in Pennsylvania. Here's what you need to know](https://www.yahoo.com/news/articles/often-fatal-ehd-found-deer-090531694.html)
+- Aug 28 - [Are you having a stroke? Everyone should know this simple test](https://www.yahoo.com/news/articles/having-stroke-everyone-know-simple-115239561.html)
+- Aug 28 - [Ford recalls nearly 500,000 vehicles over brake fluid leak](https://autos.yahoo.com/articles/ford-recalls-nearly-500-000-114324245.html)
 <!-- feed end -->
 
 ---
