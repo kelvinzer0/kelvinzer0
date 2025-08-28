@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Trump Has A Wild 2 A.M. Freakout Over ‘Very Disrespectful’ Governor](https://www.yahoo.com/news/articles/trump-wild-2-m-freakout-090641934.html)
-- Aug 28 - [Robot rabbits the latest tool in Florida battle to control invasive Burmese pythons in Everglades](https://www.yahoo.com/news/articles/robot-rabbits-latest-tool-florida-040627863.html)
+- Aug 28 - [Shasta County sues social media companies, claiming apps are addictive, harm teens](https://www.yahoo.com/news/articles/shasta-county-sues-social-media-100442512.html)
+- Aug 28 - [CDC issues travel warning amid concerning surge of debilitating disease: 'Practice enhanced precautions'](https://www.yahoo.com/news/articles/cdc-issues-travel-warning-amid-090000423.html)
+- Aug 28 - [Scientists discover natural compounds found in popular hot drink that protect brain against Alzheimer’s](https://www.yahoo.com/news/articles/natural-compound-found-popular-hot-075155806.html)
+- Aug 28 - [The Stock Market Just Did Something for Only the 14th Time in 45 Years -- and It Has a 92% Success Rate of Forecasting the Direction the S&P 500 Will Move Next](https://finance.yahoo.com/news/stock-market-just-did-something-070200525.html)
 - Aug 28 - [Robin Westman was critically mentally ill, should've been stopped: Social worker | CUOMO](https://www.yahoo.com/news/videos/robin-westman-critically-mentally-ill-010645105.html)
-- Aug 28 - [Sales numbers for pre-owned Tesla Cybertrucks reveal shocking trend: 'Unprecedented'](https://finance.yahoo.com/news/sales-numbers-pre-owned-tesla-003000083.html)
-- Aug 27 - [Navy P-8 Poseidon Carrying Secretive Radar Pod Seen In Russian Fighter’s Intercept Video](https://www.yahoo.com/news/articles/navy-p-8-poseidon-carrying-222855108.html)
 <!-- feed end -->
 
 ---
