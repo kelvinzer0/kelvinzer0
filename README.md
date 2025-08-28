@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Breaking down rumor Trump only has 6 to 8 months to live](https://www.yahoo.com/news/articles/breaking-down-rumor-trump-only-013000014.html)
+- Aug 28 - [Israel conducts landing on former air defense base in southwest Damascus](https://www.yahoo.com/news/articles/israel-conducts-landing-former-air-021017748.html)
+- Aug 28 - [Robin Westman was critically mentally ill, should've been stopped: Social worker | CUOMO](https://www.yahoo.com/news/videos/robin-westman-critically-mentally-ill-010645105.html)
 - Aug 28 - [Sales numbers for pre-owned Tesla Cybertrucks reveal shocking trend: 'Unprecedented'](https://finance.yahoo.com/news/sales-numbers-pre-owned-tesla-003000083.html)
-- Aug 27 - [Navy P-8 Poseidon Carrying Secretive Radar Pod Seen In Russian Fighter’s Intercept Video](https://www.yahoo.com/news/articles/navy-p-8-poseidon-carrying-222855108.html)
-- Aug 27 - [New Jersey's massive American Dream mall sued for selling clothes on a Sunday](https://www.yahoo.com/news/articles/jerseys-massive-american-dream-mall-214826271.html)
-- Aug 27 - [Georgia's Fulton County fined $10,000 a day for not appointing Republican election board nominees](https://www.yahoo.com/news/articles/georgias-fulton-county-fined-10-202450459.html)
+- Aug 27 - [Tropical Storm Juliette to bring rain and bigger surf to San Diego](https://www.yahoo.com/news/articles/tropical-storm-juliette-bring-rain-214423723.html)
+- Aug 27 - [“This Is An Intentional Normalization Effort”: People Are Stunned Trump Keeps Repeating This Same Terrifying Statement Out Loud](https://www.yahoo.com/news/articles/welp-trump-casually-suggesting-americans-195803072.html)
 <!-- feed end -->
 
 ---
