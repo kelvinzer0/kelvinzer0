@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Isolated Amazon tribe seen near logging bridge site, alarming rights group](https://www.yahoo.com/news/articles/isolated-amazon-tribe-seen-near-170603449.html)
+- Aug 28 - [I quit Amazon for a $400,000 AI job offer from Meta at 22. Here's how I got into the industry and my advice for others.](https://www.yahoo.com/lifestyle/articles/quit-amazon-400-000-ai-164324902.html)
+- Aug 28 - [Average rate on a 30-year mortgage slips to 10-month low](https://finance.yahoo.com/news/average-rate-30-mortgage-slips-160323631.html)
 - Aug 28 - [Phillips 66 to begin winding down Los Angeles-area refinery next week, sources say](https://finance.yahoo.com/news/phillips-66-begin-winding-down-151846392.html)
-- Aug 28 - [I'm Not Kidding When I Say The Entire World Is Getting Dumber And Dumber, And These 65 Incredibly Dumb Posts Are All The Proof I Need](https://www.yahoo.com/entertainment/celebrity/articles/im-not-kidding-entire-world-151220646.html)
-- Aug 28 - [How to work until retirement when your body has already checked out](https://www.yahoo.com/lifestyle/article/work-retirement-state-pension-age-physical-mental-health-150606962.html)
-- Aug 28 - [“Stop Lying”: Voters Erupt at GOP Lawmaker’s Shocking Claim on Economy](https://www.yahoo.com/news/articles/stop-lying-voters-erupt-gop-144544776.html)
-- Aug 28 - [Major grocery chain to lay off nearly 1,000 workers amid store closure plans](https://finance.yahoo.com/news/major-grocery-chain-lay-off-142202732.html)
+- Aug 28 - [Powerball prize winning ticket sold at Hornell Wegmans. Here's how much it's worth](https://www.yahoo.com/news/articles/powerball-prize-winning-ticket-sold-151510684.html)
 <!-- feed end -->
 
 ---
