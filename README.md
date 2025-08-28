@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 28 - [Isolated Amazon tribe seen near logging bridge site, alarming rights group](https://www.yahoo.com/news/articles/isolated-amazon-tribe-seen-near-170603449.html)
+- Aug 28 - [Lubbock ISD approves 'historic' raise for teachers, staff. Here's when it goes into effect](https://www.yahoo.com/news/articles/lubbock-isd-approves-historic-raise-165847676.html)
 - Aug 28 - [I quit Amazon for a $400,000 AI job offer from Meta at 22. Here's how I got into the industry and my advice for others.](https://www.yahoo.com/lifestyle/articles/quit-amazon-400-000-ai-164324902.html)
 - Aug 28 - [Average rate on a 30-year mortgage slips to 10-month low](https://finance.yahoo.com/news/average-rate-30-mortgage-slips-160323631.html)
 - Aug 28 - [Phillips 66 to begin winding down Los Angeles-area refinery next week, sources say](https://finance.yahoo.com/news/phillips-66-begin-winding-down-151846392.html)
-- Aug 28 - [Powerball prize winning ticket sold at Hornell Wegmans. Here's how much it's worth](https://www.yahoo.com/news/articles/powerball-prize-winning-ticket-sold-151510684.html)
 <!-- feed end -->
 
 ---
