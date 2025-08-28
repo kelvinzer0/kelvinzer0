@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Isolated Amazon tribe seen near logging bridge site, alarming rights group](https://www.yahoo.com/news/articles/isolated-amazon-tribe-seen-near-170603449.html)
-- Aug 28 - [Lubbock ISD approves 'historic' raise for teachers, staff. Here's when it goes into effect](https://www.yahoo.com/news/articles/lubbock-isd-approves-historic-raise-165847676.html)
-- Aug 28 - [I quit Amazon for a $400,000 AI job offer from Meta at 22. Here's how I got into the industry and my advice for others.](https://www.yahoo.com/lifestyle/articles/quit-amazon-400-000-ai-164324902.html)
-- Aug 28 - [Average rate on a 30-year mortgage slips to 10-month low](https://finance.yahoo.com/news/average-rate-30-mortgage-slips-160323631.html)
-- Aug 28 - [Phillips 66 to begin winding down Los Angeles-area refinery next week, sources say](https://finance.yahoo.com/news/phillips-66-begin-winding-down-151846392.html)
+- Aug 28 - [Autism in midlife going undiagnosed, study finds](https://www.yahoo.com/news/articles/autism-midlife-going-undiagnosed-202845878.html)
+- Aug 28 - [Gap CEO on earnings: One of our most important brands has begun its turnaround](https://finance.yahoo.com/news/gap-ceo-on-earnings-one-of-our-most-important-brands-has-begun-its-turnaround-201524417.html)
+- Aug 28 - [Neighbor watched cops take Minneapolis shooter’s family from their home as ‘surreal’ connection to killer set in](https://www.yahoo.com/news/articles/neighbor-watched-cops-minneapolis-shooter-193729468.html)
+- Aug 28 - [A Woman Went for a Casual Walk—and Accidentally Discovered a One-in-a-Million Treasure](https://www.yahoo.com/news/articles/woman-went-casual-walk-accidentally-185700972.html)
+- Aug 28 - [An Engineer Says He’s Found a Way to Overcome Earth’s Gravity](https://tech.yahoo.com/science/articles/engineer-says-found-way-overcome-183900634.html)
 <!-- feed end -->
 
 ---
