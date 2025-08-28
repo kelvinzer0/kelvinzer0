@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Trump tariffs are increasingly forcing countries to pick sides between the US and China](https://finance.yahoo.com/news/trump-tariffs-are-increasingly-forcing-countries-to-pick-sides-between-the-us-and-china-161021252.html)
+- Aug 28 - [Tina Smith had no patience for the health secretary’s suggestion that antidepressants were behind the school shooting in Minnesota.](https://www.yahoo.com/news/videos/tina-smith-had-no-patience-161612454.html)
+- Aug 28 - [Downtown apartment resident charged with three counts of aggravated assault](https://www.yahoo.com/news/articles/downtown-apartment-resident-charged-three-161053817.html)
 - Aug 28 - [Phillips 66 to begin winding down Los Angeles-area refinery next week, sources say](https://finance.yahoo.com/news/phillips-66-begin-winding-down-151846392.html)
 - Aug 28 - [I'm Not Kidding When I Say The Entire World Is Getting Dumber And Dumber, And These 65 Incredibly Dumb Posts Are All The Proof I Need](https://www.yahoo.com/entertainment/celebrity/articles/im-not-kidding-entire-world-151220646.html)
 - Aug 28 - [How to work until retirement when your body has already checked out](https://www.yahoo.com/lifestyle/article/work-retirement-state-pension-age-physical-mental-health-150606962.html)
-- Aug 28 - [Billionaire Blackrock CEO Larry Fink Says We Spend 'Tremendous Energy' Extending Life, But Little On How To Pay For Those Extra 20 Years](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-140400641.html)
 <!-- feed end -->
 
 ---
