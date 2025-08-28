@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [How to work until retirement when your body has already checked out](https://www.yahoo.com/lifestyle/article/work-retirement-state-pension-age-physical-mental-health-150606962.html)
+- Aug 28 - [Man arrested in investigation into online abuse of England defender Jess Carter at Euro 2025](https://www.yahoo.com/news/articles/man-arrested-investigation-online-abuse-150141337.html)
+- Aug 28 - [Billionaire Blackrock CEO Larry Fink Says We Spend 'Tremendous Energy' Extending Life, But Little On How To Pay For Those Extra 20 Years](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-140400641.html)
+- Aug 28 - [The president said residents of the California city are taking steps to ensure criminals don’t “kill” their cars doors.](https://www.yahoo.com/news/videos/president-said-residents-california-city-135938278.html)
 - Aug 28 - [US economy grows 3.3% in second quarter, government says, in second estimate of April-June growth](https://finance.yahoo.com/news/us-economy-grows-3-3-123811938.html)
-- Aug 28 - [Ford recalls nearly 500,000 vehicles over brake fluid leak](https://autos.yahoo.com/articles/ford-recalls-nearly-500-000-114324245.html)
-- Aug 28 - [Did anyone win the Powerball last night? See results of Aug. 27 drawing](https://www.yahoo.com/news/articles/did-anyone-win-powerball-last-105220018.html)
-- Aug 28 - [A United flight to Greenland U-turned after airport security staff were told they weren't properly trained to screen the passengers](https://www.yahoo.com/news/articles/united-flight-greenland-u-turned-105145711.html)
-- Aug 28 - [The 'land swap' that wasn't: Inside Trump's frantic dash for Ukraine peace](https://www.yahoo.com/news/articles/land-swap-wasnt-inside-trumps-100240583.html)
 <!-- feed end -->
 
 ---
