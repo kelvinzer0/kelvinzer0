@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Trump tariffs are increasingly forcing countries to pick sides between the US and China](https://finance.yahoo.com/news/trump-tariffs-are-increasingly-forcing-countries-to-pick-sides-between-the-us-and-china-161021252.html)
+- Aug 28 - [Phillips 66 to begin winding down Los Angeles-area refinery next week, sources say](https://finance.yahoo.com/news/phillips-66-begin-winding-down-151846392.html)
+- Aug 28 - [I'm Not Kidding When I Say The Entire World Is Getting Dumber And Dumber, And These 65 Incredibly Dumb Posts Are All The Proof I Need](https://www.yahoo.com/entertainment/celebrity/articles/im-not-kidding-entire-world-151220646.html)
 - Aug 28 - [How to work until retirement when your body has already checked out](https://www.yahoo.com/lifestyle/article/work-retirement-state-pension-age-physical-mental-health-150606962.html)
-- Aug 28 - [Man arrested in investigation into online abuse of England defender Jess Carter at Euro 2025](https://www.yahoo.com/news/articles/man-arrested-investigation-online-abuse-150141337.html)
 - Aug 28 - [Billionaire Blackrock CEO Larry Fink Says We Spend 'Tremendous Energy' Extending Life, But Little On How To Pay For Those Extra 20 Years](https://finance.yahoo.com/news/billionaire-blackrock-ceo-larry-fink-140400641.html)
-- Aug 28 - [The president said residents of the California city are taking steps to ensure criminals don’t “kill” their cars doors.](https://www.yahoo.com/news/videos/president-said-residents-california-city-135938278.html)
-- Aug 28 - [US economy grows 3.3% in second quarter, government says, in second estimate of April-June growth](https://finance.yahoo.com/news/us-economy-grows-3-3-123811938.html)
 <!-- feed end -->
 
 ---
