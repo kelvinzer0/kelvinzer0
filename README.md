@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 28 - [Motorist captures photo of revolting scene on side of highway: 'Gross'](https://www.yahoo.com/news/articles/motorist-captures-photo-revolting-scene-211500941.html)
 - Aug 28 - [Giant ‘mutant blobs’ found floating through US waterways. Officials have now worked out what they are](https://www.yahoo.com/news/articles/giant-mutant-blobs-found-floating-204435737.html)
 - Aug 28 - [The comments came after the former Biden aide declared that prayer was not enough.](https://www.yahoo.com/news/videos/comments-came-former-biden-aide-194421579.html)
 - Aug 28 - [A Woman Went for a Casual Walk—and Accidentally Discovered a One-in-a-Million Treasure](https://www.yahoo.com/news/articles/woman-went-casual-walk-accidentally-185700972.html)
 - Aug 28 - [Now We Know Why RFK Jr. Wanted to Fire This CDC Director](https://www.yahoo.com/news/articles/now-know-why-rfk-jr-184212893.html)
-- Aug 28 - [Archaeologists Excavated the Tower of London—and Unearthed Dozens of Hidden Skeletons](https://www.yahoo.com/news/articles/archaeologists-excavated-tower-london-unearthed-180000143.html)
 <!-- feed end -->
 
 ---
