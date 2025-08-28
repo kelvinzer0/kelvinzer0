@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 27 - [WBAY-TV announces new weekend meteorologist after Keith Gibson's departure](https://www.yahoo.com/news/articles/wbay-tv-announces-weekend-meteorologist-220225932.html)
+- Aug 28 - [Sales numbers for pre-owned Tesla Cybertrucks reveal shocking trend: 'Unprecedented'](https://finance.yahoo.com/news/sales-numbers-pre-owned-tesla-003000083.html)
+- Aug 28 - [The Health Secretary scored big wins for his MAHA campaign on Wednesday.](https://www.yahoo.com/news/videos/health-secretary-scored-big-wins-002512697.html)
+- Aug 27 - [Navy P-8 Poseidon Carrying Secretive Radar Pod Seen In Russian Fighter’s Intercept Video](https://www.yahoo.com/news/articles/navy-p-8-poseidon-carrying-222855108.html)
 - Aug 27 - [New Jersey's massive American Dream mall sued for selling clothes on a Sunday](https://www.yahoo.com/news/articles/jerseys-massive-american-dream-mall-214826271.html)
 - Aug 27 - [Georgia's Fulton County fined $10,000 a day for not appointing Republican election board nominees](https://www.yahoo.com/news/articles/georgias-fulton-county-fined-10-202450459.html)
-- Aug 27 - [US tariffs on Brazil will reshape global beef trade flows, analysts say](https://finance.yahoo.com/news/us-tariffs-brazil-reshape-global-192532355.html)
-- Aug 27 - [Ford Recalls 355,000 Trucks After Dashboard Displays Go Dark](https://autos.yahoo.com/articles/ford-recalls-355-000-trucks-192423396.html)
 <!-- feed end -->
 
 ---
