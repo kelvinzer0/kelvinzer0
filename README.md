@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Shasta County sues social media companies, claiming apps are addictive, harm teens](https://www.yahoo.com/news/articles/shasta-county-sues-social-media-100442512.html)
-- Aug 28 - [CDC issues travel warning amid concerning surge of debilitating disease: 'Practice enhanced precautions'](https://www.yahoo.com/news/articles/cdc-issues-travel-warning-amid-090000423.html)
-- Aug 28 - [Scientists discover natural compounds found in popular hot drink that protect brain against Alzheimer’s](https://www.yahoo.com/news/articles/natural-compound-found-popular-hot-075155806.html)
-- Aug 28 - [The Stock Market Just Did Something for Only the 14th Time in 45 Years -- and It Has a 92% Success Rate of Forecasting the Direction the S&P 500 Will Move Next](https://finance.yahoo.com/news/stock-market-just-did-something-070200525.html)
-- Aug 28 - [Robin Westman was critically mentally ill, should've been stopped: Social worker | CUOMO](https://www.yahoo.com/news/videos/robin-westman-critically-mentally-ill-010645105.html)
+- Aug 28 - [Prince Harry to visit UK for first time since court defeat](https://www.yahoo.com/lifestyle/articles/prince-harry-visit-uk-first-115633733.html)
+- Aug 28 - [Kremlin says it is satisfied after Italy arrests Ukrainian man over Nord Stream attack](https://www.yahoo.com/news/articles/kremlin-says-satisfied-italy-arrests-113144608.html)
+- Aug 28 - [A United flight to Greenland U-turned after airport security staff were told they weren't properly trained to screen the passengers](https://www.yahoo.com/news/articles/united-flight-greenland-u-turned-105145711.html)
+- Aug 28 - [Exclusive-India’s Russian oil imports set to rise in September in defiance of US](https://finance.yahoo.com/news/exclusive-india-russian-oil-imports-103602322.html)
+- Aug 28 - [Often fatal EHD found in deer in Pennsylvania. Here's what you need to know](https://www.yahoo.com/news/articles/often-fatal-ehd-found-deer-090531694.html)
 <!-- feed end -->
 
 ---
