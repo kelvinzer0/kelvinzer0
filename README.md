@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [Motorist captures photo of revolting scene on side of highway: 'Gross'](https://www.yahoo.com/news/articles/motorist-captures-photo-revolting-scene-211500941.html)
-- Aug 28 - [Giant ‘mutant blobs’ found floating through US waterways. Officials have now worked out what they are](https://www.yahoo.com/news/articles/giant-mutant-blobs-found-floating-204435737.html)
-- Aug 28 - [The comments came after the former Biden aide declared that prayer was not enough.](https://www.yahoo.com/news/videos/comments-came-former-biden-aide-194421579.html)
+- Aug 28 - [Officials issue warning after angler spots enormous fish in lake where it doesn't belong: 'This was one of the largest'](https://www.yahoo.com/news/articles/officials-issue-warning-angler-spots-223000801.html)
 - Aug 28 - [A Woman Went for a Casual Walk—and Accidentally Discovered a One-in-a-Million Treasure](https://www.yahoo.com/news/articles/woman-went-casual-walk-accidentally-185700972.html)
-- Aug 28 - [Now We Know Why RFK Jr. Wanted to Fire This CDC Director](https://www.yahoo.com/news/articles/now-know-why-rfk-jr-184212893.html)
+- Aug 28 - [27-year-old who died after paddleboarding rescue at Headlands Beach identified as city of Cleveland employee](https://www.yahoo.com/news/articles/27-old-died-paddleboarding-rescue-184016095.html)
+- Aug 28 - [Isolated Amazon tribe seen near logging bridge site, alarming rights group](https://www.yahoo.com/news/articles/isolated-amazon-tribe-seen-near-170603449.html)
+- Aug 28 - [Emilie Kiser issues public statement on son Trigg's death: 'I take full accountability'](https://www.yahoo.com/news/articles/emilie-kiser-issues-public-statement-164908782.html)
 <!-- feed end -->
 
 ---
