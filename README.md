@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 28 - [M1 Abrams Tanks Now Being Operated By A Second Ukrainian Unit](https://www.yahoo.com/news/articles/m1-abrams-tanks-now-being-232414676.html)
 - Aug 28 - [Officials issue warning after angler spots enormous fish in lake where it doesn't belong: 'This was one of the largest'](https://www.yahoo.com/news/articles/officials-issue-warning-angler-spots-223000801.html)
 - Aug 28 - [Donald Trump approval ratings: New poll finds sharp change from past month](https://www.yahoo.com/news/articles/donald-trump-approval-ratings-poll-201622255.html)
-- Aug 28 - [Trump is dangling the idea of government checks to get people to donate to his campaign](https://www.yahoo.com/news/articles/trump-dangling-idea-government-checks-190529443.html)
 - Aug 28 - [A Woman Went for a Casual Walk—and Accidentally Discovered a One-in-a-Million Treasure](https://www.yahoo.com/news/articles/woman-went-casual-walk-accidentally-185700972.html)
+- Aug 28 - [Now We Know Why RFK Jr. Wanted to Fire This CDC Director](https://www.yahoo.com/news/articles/now-know-why-rfk-jr-184212893.html)
+- Aug 28 - [27-year-old who died after paddleboarding rescue at Headlands Beach identified as city of Cleveland employee](https://www.yahoo.com/news/articles/27-old-died-paddleboarding-rescue-184016095.html)
 <!-- feed end -->
 
 ---
