@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Russia says Western proposals on Ukraine's security are 'one-sided' and dangerous](https://www.yahoo.com/news/articles/russia-says-western-proposals-ukraines-104218457.html)
-- Aug 29 - [Hiker makes upsetting discovery deep in the woods at national park: 'In the area we have made an effort to specifically protect'](https://www.yahoo.com/news/articles/hiker-makes-upsetting-discovery-deep-100000614.html)
-- Aug 29 - [Ex-Federal Prosecutor Torches Trump With Brutal Prediction: ‘Not A Snowball’s Chance In Hell’](https://www.yahoo.com/news/articles/ex-federal-prosecutor-torches-trump-091104464.html)
-- Aug 29 - [Study says this is the hardest place name to pronounce in RI. Do you agree?](https://www.yahoo.com/news/articles/study-says-hardest-place-name-090814398.html)
-- Aug 29 - [New CCTV believed to show fugitive father who has spent years with his three children in the wilderness](https://www.yahoo.com/news/articles/cctv-believed-show-fugitive-father-020547090.html)
+- Aug 29 - [Florida may lose $218 million on empty ‘Alligator Alcatraz’ as judge orders shutdown](https://www.yahoo.com/news/articles/florida-may-lose-218-million-115541744.html)
+- Aug 29 - [AI Apocalypse? Why language surrounding tech is sounding increasingly religious](https://www.yahoo.com/news/articles/ai-apocalypse-why-language-surrounding-115437430.html)
+- Aug 29 - [Exclusive-China seeks more Russian gas via old link as new pipeline stalled](https://finance.yahoo.com/news/exclusive-china-seeks-more-russian-112331037.html)
+- Aug 29 - [I was earning $300,000 at Google and saving for early retirement — then I quit for a more flexible life. It changed how I view success.](https://www.yahoo.com/lifestyle/articles/earning-300-000-google-saving-111650069.html)
+- Aug 29 - [Is my neighbor allowed to park in front of my house? Here's what Colorado law says](https://www.yahoo.com/news/articles/neighbor-allowed-park-front-house-110136952.html)
 <!-- feed end -->
 
 ---
