@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans](https://www.yahoo.com/news/articles/appeals-court-blocks-trump-administration-164223854.html)
+- Aug 29 - [Labor Day sales on tech are up to 50% off Apple, Beats and more through the weekend](https://tech.yahoo.com/deals/live/labor-day-sales-on-tech-are-up-to-50-off-apple-beats-and-more-through-the-weekend-143143378.html)
+- Aug 29 - [Joni Ernst won't seek reelection to Senate in 2026, sources say](https://www.yahoo.com/news/articles/joni-ernst-wont-seek-reelection-151751176.html)
 - Aug 29 - [Gavin Newsom Has Given JD Vance A Nickname, And He Kinda Nailed It](https://www.yahoo.com/news/articles/gavin-newsom-given-jd-vance-154838084.html)
-- Aug 29 - [Polish F-16 crashes during airshow rehearsal killing pilot](https://www.yahoo.com/news/videos/polish-f-16-crashes-during-144129389.html)
-- Aug 29 - [Trump escalates spending fight with Congress, says he will cancel $5 billion](https://www.yahoo.com/news/articles/trump-moves-permanently-cancel-funding-141941275.html)
-- Aug 29 - [Pakistan says floods made worse by Indian action](https://www.yahoo.com/news/articles/pakistan-says-floods-made-worse-134109474.html)
-- Aug 29 - [Reliance boss Ambani urges Indian businesses to unite to counter geopolitical challenges](https://finance.yahoo.com/news/reliance-boss-ambani-urges-indian-133818570.html)
+- Aug 29 - [US Republican Senator Joni Ernst will not run for re-election, CBS News reports](https://www.yahoo.com/news/articles/u-republican-senator-joni-ernst-153336417.html)
 <!-- feed end -->
 
 ---
