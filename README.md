@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Gavin Newsom Has Given JD Vance A Nickname, And He Kinda Nailed It](https://www.yahoo.com/news/articles/gavin-newsom-given-jd-vance-154838084.html)
+- Aug 29 - [Polish F-16 crashes during airshow rehearsal killing pilot](https://www.yahoo.com/news/videos/polish-f-16-crashes-during-144129389.html)
 - Aug 29 - [Trump escalates spending fight with Congress, says he will cancel $5 billion](https://www.yahoo.com/news/articles/trump-moves-permanently-cancel-funding-141941275.html)
-- Aug 29 - [Trump blocks $4.9B in foreign aid Congress OK'd, using maneuver last seen nearly 50 years ago](https://www.yahoo.com/news/articles/trump-blocks-4-9b-foreign-135245116.html)
 - Aug 29 - [Pakistan says floods made worse by Indian action](https://www.yahoo.com/news/articles/pakistan-says-floods-made-worse-134109474.html)
-- Aug 29 - [CDC Official Makes Shocking Confession About RFK Jr.’s Intel](https://www.yahoo.com/news/articles/cdc-official-makes-shocking-confession-131520861.html)
-- Aug 29 - [India's push for ethanol-mixed fuel sparks driver backlash, leaves carmakers scrambling](https://finance.yahoo.com/news/indias-push-ethanol-mixed-fuel-122202784.html)
+- Aug 29 - [Reliance boss Ambani urges Indian businesses to unite to counter geopolitical challenges](https://finance.yahoo.com/news/reliance-boss-ambani-urges-indian-133818570.html)
 <!-- feed end -->
 
 ---
