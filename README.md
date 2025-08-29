@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Could See Another Airline Absorb Spirit Assets: Analyst](https://finance.yahoo.com/video/could-see-another-airline-absorb-222849376.html)
 - Aug 29 - [Trump administration plans to remove nearly 700 unaccompanied migrant children, senator says](https://www.yahoo.com/news/articles/trump-administration-plans-remove-nearly-203338870.html)
+- Aug 29 - [Too Much of This Vitamin May Raise Cancer Risk, New Study Says](https://www.yahoo.com/news/articles/too-much-vitamin-may-raise-185039288.html)
+- Aug 29 - [Forget the golden age of fraud, the billionaire investor who shorted Enron warns we might be in the ‘diamond or platinum level’ amid the AI boom](https://finance.yahoo.com/news/forget-golden-age-fraud-billionaire-184543122.html)
 - Aug 29 - [Opinion - Chip Roy’s departure highlights a growing trend for Congress](https://www.yahoo.com/news/articles/opinion-chip-roy-departure-highlights-183000943.html)
-- Aug 29 - [Southwest Airlines begins flying first plane with secondary cockpit barrier](https://www.yahoo.com/news/articles/southwest-airlines-begin-flying-first-182725394.html)
-- Aug 29 - [Gov. Gretchen Whitmer calls special election for state Senate seat that could split Michigan chamber](https://www.yahoo.com/news/articles/gov-gretchen-whitmer-calls-special-182556773.html)
-- Aug 29 - [Google sounds alarm after massive data breach leaves 2.5B users exposed — what to do ASAP to protect yourself](https://www.yahoo.com/news/articles/google-sounds-alarm-massive-data-174500558.html)
 <!-- feed end -->
 
 ---
