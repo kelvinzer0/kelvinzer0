@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Elon Musk issues ominous warning to people betting against Tesla: 'They will be obliterated'](https://finance.yahoo.com/news/elon-musk-issues-ominous-warning-003000380.html)
 - Aug 28 - [Officials issue warning after angler spots enormous fish in lake where it doesn't belong: 'This was one of the largest'](https://www.yahoo.com/news/articles/officials-issue-warning-angler-spots-223000801.html)
 - Aug 28 - [A Woman Went for a Casual Walk—and Accidentally Discovered a One-in-a-Million Treasure](https://www.yahoo.com/news/articles/woman-went-casual-walk-accidentally-185700972.html)
 - Aug 28 - [27-year-old who died after paddleboarding rescue at Headlands Beach identified as city of Cleveland employee](https://www.yahoo.com/news/articles/27-old-died-paddleboarding-rescue-184016095.html)
-- Aug 28 - [Isolated Amazon tribe seen near logging bridge site, alarming rights group](https://www.yahoo.com/news/articles/isolated-amazon-tribe-seen-near-170603449.html)
-- Aug 28 - [Emilie Kiser issues public statement on son Trigg's death: 'I take full accountability'](https://www.yahoo.com/news/articles/emilie-kiser-issues-public-statement-164908782.html)
+- Aug 28 - [Archaeologists Excavated the Tower of London—and Unearthed Dozens of Hidden Skeletons](https://www.yahoo.com/news/articles/archaeologists-excavated-tower-london-unearthed-180000143.html)
 <!-- feed end -->
 
 ---
