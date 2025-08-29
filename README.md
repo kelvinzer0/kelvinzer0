@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Opinion - Chip Roy’s departure highlights a growing trend for Congress](https://www.yahoo.com/news/articles/opinion-chip-roy-departure-highlights-183000943.html)
 - Aug 29 - [Gov. Gretchen Whitmer calls special election for state Senate seat that could split Michigan chamber](https://www.yahoo.com/news/articles/gov-gretchen-whitmer-calls-special-182556773.html)
 - Aug 29 - [I'm an e-commerce entrepreneur who makes 7 figures. I used to live paycheck to paycheck and now I plan to retire at 50.](https://finance.yahoo.com/news/im-e-commerce-entrepreneur-makes-170501173.html)
 - Aug 29 - [Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans](https://www.yahoo.com/news/articles/appeals-court-blocks-trump-administration-164223854.html)
-- Aug 29 - [All Life on Earth Comes From One Single Ancestor. And It's So Much Older Than We Thought.](https://www.yahoo.com/news/articles/life-earth-comes-one-single-155800772.html)
-- Aug 29 - [Russian defence minister says his forces have sped up rate of their advance in Ukraine](https://www.yahoo.com/news/articles/russian-defence-minister-says-forces-150047401.html)
+- Aug 29 - [Trump cancels $4.9 billion in foreign aid, escalating spending fight with Congress](https://www.yahoo.com/news/articles/trump-moves-permanently-cancel-funding-141941275.html)
 <!-- feed end -->
 
 ---
