@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 29 - [India's push for ethanol-mixed fuel sparks driver backlash, leaves carmakers scrambling](https://finance.yahoo.com/news/indias-push-ethanol-mixed-fuel-122202784.html)
+- Aug 29 - [Anglers compete for cash prizes by nabbing harmful fish from iconic river — here are the details](https://www.yahoo.com/news/articles/anglers-compete-cash-prizes-nabbing-120000438.html)
 - Aug 29 - [Is my neighbor allowed to park in front of my house? Here's what Colorado law says](https://www.yahoo.com/news/articles/neighbor-allowed-park-front-house-110136952.html)
-- Aug 29 - [Vietnamese-American salon owners are suing California after having their lives ‘turned upside down overnight’](https://www.yahoo.com/news/articles/vietnamese-american-salon-owners-suing-103500925.html)
-- Aug 29 - [Ex-Federal Prosecutor Torches Trump With Brutal Prediction: ‘Not A Snowball’s Chance In Hell’](https://www.yahoo.com/news/articles/ex-federal-prosecutor-torches-trump-091104464.html)
-- Aug 29 - [Gaza Health Ministry says more than 63,000 Palestinians killed as Israel-Hamas war drags on](https://www.yahoo.com/news/articles/israel-declares-gaza-largest-city-085537163.html)
+- Aug 29 - [September Outlook: Who Will Get A Taste Of Fall And Who Will Still See Summer Heat?](https://www.yahoo.com/news/articles/september-outlook-taste-fall-still-093500394.html)
+- Aug 29 - [Israel declares Gaza’s largest city a combat zone as death toll surpasses 63,000](https://www.yahoo.com/news/articles/israel-declares-gaza-largest-city-085537163.html)
 <!-- feed end -->
 
 ---
