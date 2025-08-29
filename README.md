@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Russia says Western proposals on Ukraine's security are 'one-sided' and dangerous](https://www.yahoo.com/news/articles/russia-says-western-proposals-ukraines-104218457.html)
+- Aug 29 - [Hiker makes upsetting discovery deep in the woods at national park: 'In the area we have made an effort to specifically protect'](https://www.yahoo.com/news/articles/hiker-makes-upsetting-discovery-deep-100000614.html)
+- Aug 29 - [Ex-Federal Prosecutor Torches Trump With Brutal Prediction: ‘Not A Snowball’s Chance In Hell’](https://www.yahoo.com/news/articles/ex-federal-prosecutor-torches-trump-091104464.html)
+- Aug 29 - [Study says this is the hardest place name to pronounce in RI. Do you agree?](https://www.yahoo.com/news/articles/study-says-hardest-place-name-090814398.html)
 - Aug 29 - [New CCTV believed to show fugitive father who has spent years with his three children in the wilderness](https://www.yahoo.com/news/articles/cctv-believed-show-fugitive-father-020547090.html)
-- Aug 29 - [LA teen allegedly beaten by classmate with brass knuckles as bully's mom watched](https://www.yahoo.com/news/articles/la-teen-allegedly-beaten-classmate-004326017.html)
-- Aug 28 - [Donald Trump approval ratings: New poll finds sharp change from past month](https://www.yahoo.com/news/articles/donald-trump-approval-ratings-poll-201622255.html)
-- Aug 28 - [A Woman Went for a Casual Walk—and Accidentally Discovered a One-in-a-Million Treasure](https://www.yahoo.com/news/articles/woman-went-casual-walk-accidentally-185700972.html)
-- Aug 28 - [27-year-old who died after paddleboarding rescue at Headlands Beach identified as city of Cleveland employee](https://www.yahoo.com/news/articles/27-old-died-paddleboarding-rescue-184016095.html)
 <!-- feed end -->
 
 ---
