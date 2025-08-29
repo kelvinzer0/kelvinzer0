@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans](https://www.yahoo.com/news/articles/appeals-court-blocks-trump-administration-164223854.html)
-- Aug 29 - [Labor Day sales on tech are up to 50% off Apple, Beats and more through the weekend](https://tech.yahoo.com/deals/live/labor-day-sales-on-tech-are-up-to-50-off-apple-beats-and-more-through-the-weekend-143143378.html)
 - Aug 29 - [Joni Ernst won't seek reelection to Senate in 2026, sources say](https://www.yahoo.com/news/articles/joni-ernst-wont-seek-reelection-151751176.html)
-- Aug 29 - [Gavin Newsom Has Given JD Vance A Nickname, And He Kinda Nailed It](https://www.yahoo.com/news/articles/gavin-newsom-given-jd-vance-154838084.html)
+- Aug 29 - [I'm an e-commerce entrepreneur who makes 7 figures. I used to live paycheck to paycheck and now I plan to retire at 50.](https://finance.yahoo.com/news/im-e-commerce-entrepreneur-makes-170501173.html)
+- Aug 29 - [Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans](https://www.yahoo.com/news/articles/appeals-court-blocks-trump-administration-164223854.html)
 - Aug 29 - [US Republican Senator Joni Ernst will not run for re-election, CBS News reports](https://www.yahoo.com/news/articles/u-republican-senator-joni-ernst-153336417.html)
+- Aug 29 - [Pilot dies as Polish F-16 crashes during air show rehearsal](https://www.yahoo.com/news/videos/pilot-dies-polish-f-16-150748278.html)
 <!-- feed end -->
 
 ---
