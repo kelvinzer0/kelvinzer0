@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 29 - [Trump administration plans to remove nearly 700 unaccompanied migrant children, senator says](https://www.yahoo.com/news/articles/trump-administration-plans-remove-nearly-203338870.html)
 - Aug 29 - [Opinion - Chip Roy’s departure highlights a growing trend for Congress](https://www.yahoo.com/news/articles/opinion-chip-roy-departure-highlights-183000943.html)
+- Aug 29 - [Southwest Airlines begins flying first plane with secondary cockpit barrier](https://www.yahoo.com/news/articles/southwest-airlines-begin-flying-first-182725394.html)
 - Aug 29 - [Gov. Gretchen Whitmer calls special election for state Senate seat that could split Michigan chamber](https://www.yahoo.com/news/articles/gov-gretchen-whitmer-calls-special-182556773.html)
-- Aug 29 - [I'm an e-commerce entrepreneur who makes 7 figures. I used to live paycheck to paycheck and now I plan to retire at 50.](https://finance.yahoo.com/news/im-e-commerce-entrepreneur-makes-170501173.html)
-- Aug 29 - [Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans](https://www.yahoo.com/news/articles/appeals-court-blocks-trump-administration-164223854.html)
-- Aug 29 - [Trump cancels $4.9 billion in foreign aid, escalating spending fight with Congress](https://www.yahoo.com/news/articles/trump-moves-permanently-cancel-funding-141941275.html)
+- Aug 29 - [Google sounds alarm after massive data breach leaves 2.5B users exposed — what to do ASAP to protect yourself](https://www.yahoo.com/news/articles/google-sounds-alarm-massive-data-174500558.html)
 <!-- feed end -->
 
 ---
