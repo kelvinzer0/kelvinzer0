@@ -28,9 +28,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 29 - [Gov. Gretchen Whitmer calls special election for state Senate seat that could split Michigan chamber](https://www.yahoo.com/news/articles/gov-gretchen-whitmer-calls-special-182556773.html)
-- Aug 29 - [Google sounds alarm after massive data breach leaves 2.5B users exposed — what to do ASAP to protect yourself](https://www.yahoo.com/news/articles/google-sounds-alarm-massive-data-174500558.html)
+- Aug 29 - [I'm an e-commerce entrepreneur who makes 7 figures. I used to live paycheck to paycheck and now I plan to retire at 50.](https://finance.yahoo.com/news/im-e-commerce-entrepreneur-makes-170501173.html)
 - Aug 29 - [Appeals court blocks Trump administration from ending legal protections for 600,000 Venezuelans](https://www.yahoo.com/news/articles/appeals-court-blocks-trump-administration-164223854.html)
-- Aug 29 - [JD Vance: Push back against the crazies removing St George’s flags](https://www.yahoo.com/news/articles/jd-vance-push-back-against-162646482.html)
+- Aug 29 - [All Life on Earth Comes From One Single Ancestor. And It's So Much Older Than We Thought.](https://www.yahoo.com/news/articles/life-earth-comes-one-single-155800772.html)
 - Aug 29 - [Russian defence minister says his forces have sped up rate of their advance in Ukraine](https://www.yahoo.com/news/articles/russian-defence-minister-says-forces-150047401.html)
 <!-- feed end -->
 
