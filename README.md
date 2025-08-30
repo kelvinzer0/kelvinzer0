@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Senator Sanders says U.S. Health Secretary Kennedy must resign](https://www.yahoo.com/news/articles/senator-sanders-says-u-health-185334974.html)
+- Aug 30 - [Costco's Controversial Policy Change Is Officially Starting — Here's What to Know, Including Why Some May Be Denied Entry](https://www.yahoo.com/news/articles/costcos-controversial-policy-change-officially-192521381.html)
+- Aug 30 - [Texas Congressman Dan Crenshaw faced MAGA’s full fury as his constituents demanded the GOP release more details of the late financier’s crimes and affiliations.](https://www.yahoo.com/news/videos/texas-congressman-dan-crenshaw-faced-183849172.html)
 - Aug 30 - [Jaw-dropping video shows electric vehicle struck by lightning with a driver inside — plus, 3 more auto stories you need to know this week](https://autos.yahoo.com/articles/jaw-dropping-video-shows-electric-141500785.html)
-- Aug 30 - [Israel Begins Preliminary Operations to Take Over Gaza City](https://www.yahoo.com/news/videos/israel-begins-preliminary-operations-over-125432343.html)
-- Aug 30 - [FBI, cybersecurity experts warn of 3-phase scam that is draining bank accounts](https://www.yahoo.com/news/articles/fbi-cybersecurity-experts-warns-3-120000759.html)
-- Aug 30 - [Common heart attack drug doesn’t work and may raise risk of death for some women, new studies say](https://www.yahoo.com/news/articles/women-higher-risk-death-common-092006182.html)
+- Aug 30 - [Scientists Confirm the Incredible Existence of ‘Second Sound’](https://www.yahoo.com/news/articles/scientists-confirm-incredible-existence-second-131700511.html)
+- Aug 30 - [My $2.25 billion exit taught me that Silicon Valley’s obsession with 100-hour weeks is actually sabotage. It’s a marathon, not a sprint](https://finance.yahoo.com/news/2-25-billion-exit-taught-130300997.html)
 <!-- feed end -->
 
 ---
