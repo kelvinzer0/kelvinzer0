@@ -31,7 +31,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Aug 30 - [Late crime-busting sheriff Buford Pusser inspired Hollywood. Investigators say he killed his wife](https://www.yahoo.com/news/articles/crime-busting-sheriff-buford-pusser-002028916.html)
 - Aug 29 - [What happens to Trump’s tariffs now that a federal appeals court has knocked them down?](https://www.yahoo.com/news/articles/happens-trump-tariffs-now-federal-235505076.html)
 - Aug 29 - [Mike Johnson Has Awkward Response When Newsom Points Out Louisiana Murder Rate Is Worse Than California](https://www.yahoo.com/news/articles/mike-johnson-awkward-response-newsom-234357807.html)
-- Aug 29 - [US will proceed with probe of solar imports from India, Laos and Indonesia](https://finance.yahoo.com/news/us-proceed-probe-solar-imports-210441652.html)
+- Aug 29 - [General Motors sparks excitement after teasing return of once-iconic model: 'You asked. We listened'](https://autos.yahoo.com/articles/general-motors-sparks-excitement-teasing-221500851.html)
 <!-- feed end -->
 
 ---
