@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [How soccer and ballet taught top Goldman and KKR execs to bounce back after rejection](https://finance.yahoo.com/news/soccer-ballet-taught-top-goldman-180301187.html)
+- Aug 30 - [Donald Trump Seen Publicly for the First Time amid Viral Death Rumors](https://www.yahoo.com/news/articles/donald-trump-seen-publicly-first-171934110.html)
+- Aug 30 - [The Medical Bill That Nearly Ruined My Life — And How I Rebounded](https://www.yahoo.com/lifestyle/articles/medical-bill-nearly-ruined-life-151312416.html)
 - Aug 30 - [Where in the world is Donald Trump? Rumors swirl heading into the holiday weekend](https://www.yahoo.com/news/articles/where-world-donald-trump-rumors-142441488.html)
-- Aug 30 - [Jaw-dropping video shows electric vehicle struck by lightning with a driver inside — plus, 3 more auto stories you need to know this week](https://autos.yahoo.com/articles/jaw-dropping-video-shows-electric-141500785.html)
-- Aug 30 - [Scientists Confirm the Incredible Existence of ‘Second Sound’](https://www.yahoo.com/news/articles/scientists-confirm-incredible-existence-second-131700511.html)
-- Aug 30 - [FBI, cybersecurity experts warns of 3-phase scam that is draining bank accounts](https://www.yahoo.com/news/articles/fbi-cybersecurity-experts-warns-3-120000759.html)
-- Aug 30 - [Finland is on the verge of an incredible human-made alteration deep beneath the Earth: 'They'll hold a total of 5,500 tonnes of waste'](https://www.yahoo.com/news/articles/finland-verge-incredible-human-made-101000490.html)
+- Aug 30 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
 <!-- feed end -->
 
 ---
