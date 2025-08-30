@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Social Security's 2026 Cost-of-Living Adjustment (COLA) Could Deal Retirees a Blow No Matter What. Here's Why.](https://finance.yahoo.com/news/social-securitys-2026-cost-living-084800909.html)
+- Aug 30 - [Boy Scout RV at state fair before rolling into West Virginia's World Scouting Museum](https://www.yahoo.com/news/articles/boy-scout-rv-state-fair-100426967.html)
+- Aug 30 - [MAGA Radio Host’s Cancer-Stricken Wife Can’t Get COVID Shot Because of ‘Kook’ RFK Jr.](https://www.yahoo.com/news/articles/maga-radio-host-cancer-stricken-032602198.html)
 - Aug 30 - [Bondi fires Justice Department employee for gesturing at National Guard](https://www.yahoo.com/news/articles/bondi-fires-justice-department-employee-013418218.html)
 - Aug 30 - [Late crime-busting sheriff Buford Pusser inspired Hollywood. Investigators say he killed his wife](https://www.yahoo.com/news/articles/crime-busting-sheriff-buford-pusser-002028916.html)
 - Aug 29 - [What happens to Trump’s tariffs now that a federal appeals court has knocked them down?](https://www.yahoo.com/news/articles/happens-trump-tariffs-now-federal-235505076.html)
-- Aug 29 - [Mike Johnson Has Awkward Response When Newsom Points Out Louisiana Murder Rate Is Worse Than California](https://www.yahoo.com/news/articles/mike-johnson-awkward-response-newsom-234357807.html)
 <!-- feed end -->
 
 ---
