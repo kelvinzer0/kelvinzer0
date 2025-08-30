@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Farmers Watching the MAHA Commission Closely](https://www.yahoo.com/news/articles/farmers-watching-maha-commission-closely-115319585.html)
 - Aug 30 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
-- Aug 30 - [What Would Happen If Social Security Could Sustain the Average Middle-Class Retiree’s Lifestyle?](https://finance.yahoo.com/news/happen-social-security-could-sustain-111554787.html)
+- Aug 30 - [Common heart attack drug doesn’t work and may raise risk of death for some women, new studies say](https://www.yahoo.com/news/articles/women-higher-risk-death-common-092006182.html)
 - Aug 30 - [Finland is on the verge of an incredible human-made alteration deep beneath the Earth: 'They'll hold a total of 5,500 tonnes of waste'](https://www.yahoo.com/news/articles/finland-verge-incredible-human-made-101000490.html)
 - Aug 30 - [Man faces massive fine after bulldozing over mile of national park for driveway: 'It was just astounding … that someone could think this kind of activity was OK'](https://www.yahoo.com/news/articles/man-faces-massive-fine-bulldozing-100000103.html)
+- Aug 30 - [Frustrated Home Depot employee shares photo of countless carts full of gardening products wasted for no good reason: 'Not our call'](https://www.yahoo.com/news/articles/frustrated-home-depot-employee-shares-100000537.html)
 <!-- feed end -->
 
 ---
