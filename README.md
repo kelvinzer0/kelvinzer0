@@ -27,7 +27,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Ukraine reports over 100 Russian combat drones in overnight attack](https://www.yahoo.com/news/articles/ukraine-reports-over-100-russian-065726787.html)
+- Aug 30 - [MAGA Radio Host’s Cancer-Stricken Wife Can’t Get COVID Shot Because of ‘Kook’ RFK Jr.](https://www.yahoo.com/news/articles/maga-radio-host-cancer-stricken-032602198.html)
 - Aug 30 - [Bondi fires Justice Department employee for gesturing at National Guard](https://www.yahoo.com/news/articles/bondi-fires-justice-department-employee-013418218.html)
 - Aug 30 - [Late crime-busting sheriff Buford Pusser inspired Hollywood. Investigators say he killed his wife](https://www.yahoo.com/news/articles/crime-busting-sheriff-buford-pusser-002028916.html)
 - Aug 29 - [What happens to Trump’s tariffs now that a federal appeals court has knocked them down?](https://www.yahoo.com/news/articles/happens-trump-tariffs-now-federal-235505076.html)
