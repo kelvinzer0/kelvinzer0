@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 30 - [Bondi fires Justice Department employee for gesturing at National Guard](https://www.yahoo.com/news/articles/bondi-fires-justice-department-employee-013418218.html)
+- Aug 30 - [Late crime-busting sheriff Buford Pusser inspired Hollywood. Investigators say he killed his wife](https://www.yahoo.com/news/articles/crime-busting-sheriff-buford-pusser-002028916.html)
 - Aug 29 - [What happens to Trump’s tariffs now that a federal appeals court has knocked them down?](https://www.yahoo.com/news/articles/happens-trump-tariffs-now-federal-235505076.html)
 - Aug 29 - [Mike Johnson Has Awkward Response When Newsom Points Out Louisiana Murder Rate Is Worse Than California](https://www.yahoo.com/news/articles/mike-johnson-awkward-response-newsom-234357807.html)
 - Aug 29 - [US will proceed with probe of solar imports from India, Laos and Indonesia](https://finance.yahoo.com/news/us-proceed-probe-solar-imports-210441652.html)
-- Aug 29 - [Too Much of This Vitamin May Raise Cancer Risk, New Study Says](https://www.yahoo.com/news/articles/too-much-vitamin-may-raise-185039288.html)
 <!-- feed end -->
 
 ---
