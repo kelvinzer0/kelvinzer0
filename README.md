@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [War then water: Pakistan’s border villagers face back-to-back evacuations](https://www.yahoo.com/news/articles/war-then-water-pakistan-border-055822646.html)
 - Aug 30 - [Bondi fires Justice Department employee for gesturing at National Guard](https://www.yahoo.com/news/articles/bondi-fires-justice-department-employee-013418218.html)
 - Aug 30 - [Late crime-busting sheriff Buford Pusser inspired Hollywood. Investigators say he killed his wife](https://www.yahoo.com/news/articles/crime-busting-sheriff-buford-pusser-002028916.html)
 - Aug 29 - [What happens to Trump’s tariffs now that a federal appeals court has knocked them down?](https://www.yahoo.com/news/articles/happens-trump-tariffs-now-federal-235505076.html)
 - Aug 29 - [Mike Johnson Has Awkward Response When Newsom Points Out Louisiana Murder Rate Is Worse Than California](https://www.yahoo.com/news/articles/mike-johnson-awkward-response-newsom-234357807.html)
+- Aug 29 - [General Motors sparks excitement after teasing return of once-iconic model: 'You asked. We listened'](https://autos.yahoo.com/articles/general-motors-sparks-excitement-teasing-221500851.html)
 <!-- feed end -->
 
 ---
