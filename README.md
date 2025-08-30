@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 29 - [Could See Another Airline Absorb Spirit Assets: Analyst](https://finance.yahoo.com/video/could-see-another-airline-absorb-222849376.html)
-- Aug 29 - [Trump administration plans to remove nearly 700 unaccompanied migrant children, senator says](https://www.yahoo.com/news/articles/trump-administration-plans-remove-nearly-203338870.html)
+- Aug 29 - [Mike Johnson Has Awkward Response When Newsom Points Out Louisiana Murder Rate Is Worse Than California](https://www.yahoo.com/news/articles/mike-johnson-awkward-response-newsom-234357807.html)
+- Aug 29 - [US will proceed with probe of solar imports from India, Laos and Indonesia](https://finance.yahoo.com/news/us-proceed-probe-solar-imports-210441652.html)
+- Aug 29 - [BASE jumper dies after leaping from 6,000-foot mountain, Washington cops say](https://www.yahoo.com/news/articles/jumper-dies-leaping-6-000-210439020.html)
 - Aug 29 - [Too Much of This Vitamin May Raise Cancer Risk, New Study Says](https://www.yahoo.com/news/articles/too-much-vitamin-may-raise-185039288.html)
-- Aug 29 - [Forget the golden age of fraud, the billionaire investor who shorted Enron warns we might be in the ‘diamond or platinum level’ amid the AI boom](https://finance.yahoo.com/news/forget-golden-age-fraud-billionaire-184543122.html)
-- Aug 29 - [Opinion - Chip Roy’s departure highlights a growing trend for Congress](https://www.yahoo.com/news/articles/opinion-chip-roy-departure-highlights-183000943.html)
+- Aug 29 - [Dashcam Shows Grappler Bumper Rip Rear Axle Off Car](https://autos.yahoo.com/articles/dashcam-shows-grappler-bumper-rip-183348081.html)
 <!-- feed end -->
 
 ---
