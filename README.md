@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [Boy Scout RV at state fair before rolling into West Virginia's World Scouting Museum](https://www.yahoo.com/news/articles/boy-scout-rv-state-fair-100426967.html)
+- Aug 30 - [What to know Kilmar Abrego Garcia's asylum claim. Experts say it's a smart but risky legal move](https://www.yahoo.com/news/articles/know-kilmar-abrego-garcias-asylum-121307896.html)
+- Aug 30 - [Finland is on the verge of an incredible human-made alteration deep beneath the Earth: 'They'll hold a total of 5,500 tonnes of waste'](https://www.yahoo.com/news/articles/finland-verge-incredible-human-made-101000490.html)
+- Aug 30 - [Man faces massive fine after bulldozing over mile of national park for driveway: 'It was just astounding … that someone could think this kind of activity was OK'](https://www.yahoo.com/news/articles/man-faces-massive-fine-bulldozing-100000103.html)
 - Aug 30 - [MAGA Radio Host’s Cancer-Stricken Wife Can’t Get COVID Shot Because of ‘Kook’ RFK Jr.](https://www.yahoo.com/news/articles/maga-radio-host-cancer-stricken-032602198.html)
 - Aug 30 - [Bondi fires Justice Department employee for gesturing at National Guard](https://www.yahoo.com/news/articles/bondi-fires-justice-department-employee-013418218.html)
-- Aug 30 - [Late crime-busting sheriff Buford Pusser inspired Hollywood. Investigators say he killed his wife](https://www.yahoo.com/news/articles/crime-busting-sheriff-buford-pusser-002028916.html)
-- Aug 29 - [What happens to Trump’s tariffs now that a federal appeals court has knocked them down?](https://www.yahoo.com/news/articles/happens-trump-tariffs-now-federal-235505076.html)
 <!-- feed end -->
 
 ---
