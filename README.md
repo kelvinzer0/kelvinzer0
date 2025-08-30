@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 30 - [Bondi fires Justice Department employee for gesturing at National Guard](https://www.yahoo.com/news/articles/bondi-fires-justice-department-employee-013418218.html)
+- Aug 29 - [What happens to Trump’s tariffs now that a federal appeals court has knocked them down?](https://www.yahoo.com/news/articles/happens-trump-tariffs-now-federal-235505076.html)
 - Aug 29 - [Mike Johnson Has Awkward Response When Newsom Points Out Louisiana Murder Rate Is Worse Than California](https://www.yahoo.com/news/articles/mike-johnson-awkward-response-newsom-234357807.html)
 - Aug 29 - [US will proceed with probe of solar imports from India, Laos and Indonesia](https://finance.yahoo.com/news/us-proceed-probe-solar-imports-210441652.html)
-- Aug 29 - [BASE jumper dies after leaping from 6,000-foot mountain, Washington cops say](https://www.yahoo.com/news/articles/jumper-dies-leaping-6-000-210439020.html)
 - Aug 29 - [Too Much of This Vitamin May Raise Cancer Risk, New Study Says](https://www.yahoo.com/news/articles/too-much-vitamin-may-raise-185039288.html)
-- Aug 29 - [Dashcam Shows Grappler Bumper Rip Rear Axle Off Car](https://autos.yahoo.com/articles/dashcam-shows-grappler-bumper-rip-183348081.html)
 <!-- feed end -->
 
 ---
