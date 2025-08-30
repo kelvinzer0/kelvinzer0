@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 30 - [What to know Kilmar Abrego Garcia's asylum claim. Experts say it's a smart but risky legal move](https://www.yahoo.com/news/articles/know-kilmar-abrego-garcias-asylum-121307896.html)
+- Aug 30 - [Red Cross warns against evacuation of Gaza City as Israel tightens siege](https://www.yahoo.com/news/articles/red-cross-warns-against-evacuation-120733982.html)
+- Aug 30 - [Common heart attack drug doesn’t work and may raise risk of death for some women, new studies say](https://www.yahoo.com/news/articles/women-higher-risk-death-common-092006182.html)
 - Aug 30 - [Finland is on the verge of an incredible human-made alteration deep beneath the Earth: 'They'll hold a total of 5,500 tonnes of waste'](https://www.yahoo.com/news/articles/finland-verge-incredible-human-made-101000490.html)
 - Aug 30 - [Man faces massive fine after bulldozing over mile of national park for driveway: 'It was just astounding … that someone could think this kind of activity was OK'](https://www.yahoo.com/news/articles/man-faces-massive-fine-bulldozing-100000103.html)
-- Aug 30 - [MAGA Radio Host’s Cancer-Stricken Wife Can’t Get COVID Shot Because of ‘Kook’ RFK Jr.](https://www.yahoo.com/news/articles/maga-radio-host-cancer-stricken-032602198.html)
-- Aug 30 - [Bondi fires Justice Department employee for gesturing at National Guard](https://www.yahoo.com/news/articles/bondi-fires-justice-department-employee-013418218.html)
+- Aug 30 - [Frustrated Home Depot employee shares photo of countless carts full of gardening products wasted for no good reason: 'Not our call'](https://www.yahoo.com/news/articles/frustrated-home-depot-employee-shares-100000537.html)
 <!-- feed end -->
 
 ---
