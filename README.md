@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 31 - [Rudy Giuliani seriously injured in car accident after stopping to help domestic violence victim, his spokesperson says](https://www.yahoo.com/news/articles/rudy-giuliani-severely-injured-freak-194004895.html)
+- Aug 31 - [Penn Hills charter school won’t open for 2025-2026 school year, displacing prospective students](https://www.yahoo.com/news/articles/penn-hills-charter-school-won-202833413.html)
+- Aug 31 - [She Financed Her Daughter's $27,000 Car And Now Wants A HELOC To Pay It Off. Dave Ramsey Asked, 'Are You A Multimillionaire?'](https://finance.yahoo.com/news/she-financed-her-daughters-27-200124413.html)
 - Aug 31 - [Houthis storm UN buildings in Yemeni capital after Israel killed PM and other ministers](https://www.yahoo.com/news/articles/houthis-storm-un-building-yemeni-143341461.html)
-- Aug 31 - [9 other worldly images of ‘The Radiant Sea’](https://www.yahoo.com/news/articles/9-other-worldly-images-radiant-190000150.html)
-- Aug 31 - [26 Tweets By Women This Month That Were So Funny I Almost Forgot How Bad My Period Cramps Are Right Now](https://www.yahoo.com/entertainment/celebrity/articles/26-tweets-women-month-were-181201080.html)
-- Aug 31 - [Von der Leyen says Europe is drawing up 'precise' plans to send troops to Ukraine, FT reports](https://www.yahoo.com/news/articles/von-der-leyen-says-europe-173254566.html)
+- Aug 31 - ['Super Flirty' Woman Gives Man Her Number on Plane, Then He Realizes Her Husband Is on the Same Flight](https://www.yahoo.com/entertainment/celebrity/articles/super-flirty-woman-gives-man-170000300.html)
 <!-- feed end -->
 
 ---
