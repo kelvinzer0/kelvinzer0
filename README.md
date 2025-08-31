@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Aug 31 - [Houthis storm UN buildings in Yemeni capital after Israel killed PM and other ministers](https://www.yahoo.com/news/articles/houthis-storm-un-building-yemeni-143341461.html)
-- Aug 31 - [‘Fields of rubble’: Israel, destroying Gaza City, kills 78 across enclave](https://www.yahoo.com/news/articles/fields-rubble-israel-destroying-gaza-203124252.html)
+- Aug 31 - [She Financed Her Daughter's $27,000 Car And Now Wants A HELOC To Pay It Off. Dave Ramsey Asked, 'Are You A Multimillionaire?'](https://finance.yahoo.com/news/she-financed-her-daughters-27-200124413.html)
 - Aug 31 - [Von der Leyen says Europe is drawing up 'precise' plans to send troops to Ukraine, FT reports](https://www.yahoo.com/news/articles/von-der-leyen-says-europe-173254566.html)
 - Aug 31 - [Man missing after sailboat crash in Lake Pontchartrain](https://www.yahoo.com/news/articles/man-missing-sailboat-crash-lake-170943699.html)
-- Aug 31 - ['Super Flirty' Woman Gives Man Her Number on Plane, Then He Realizes Her Husband Is on the Same Flight](https://www.yahoo.com/entertainment/celebrity/articles/super-flirty-woman-gives-man-170000300.html)
+- Aug 31 - [Powerball ticket sold in Mass. wins smaller prize in Saturday’s drawing, jackpot at $1.1 billion](https://www.yahoo.com/news/articles/powerball-ticket-sold-mass-wins-162747657.html)
 <!-- feed end -->
 
 ---
