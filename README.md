@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Hamas confirms death of Mohammed Sinwar three months after IDF announcement](https://www.yahoo.com/news/articles/hamas-confirms-death-mohammed-sinwar-071957279.html)
 - Aug 30 - [Donald Trump Banishes White House Contractor After Spotting 'Huge Gash' in New Rose Garden Patio: 'It Was Deep and Nasty'](https://www.yahoo.com/news/articles/donald-trump-banishes-white-house-232011234.html)
 - Aug 30 - [Costco set to enforce new rule starting September 1: Everything you need to know](https://www.yahoo.com/news/articles/costco-set-enforce-rule-starting-221559585.html)
-- Aug 30 - [Jelena Ostapenko apologizes on social media for what she said to Taylor Townsend at the US Open](https://sports.yahoo.com/article/jelena-ostapenko-apologizes-social-media-213658044.html)
 - Aug 30 - [Senator Sanders says U.S. Health Secretary Kennedy must resign](https://www.yahoo.com/news/articles/senator-sanders-says-u-health-185334974.html)
 - Aug 30 - [Texas Congressman Dan Crenshaw faced MAGA’s full fury as his constituents demanded the GOP release more details of the late financier’s crimes and affiliations.](https://www.yahoo.com/news/videos/texas-congressman-dan-crenshaw-faced-183849172.html)
 <!-- feed end -->
