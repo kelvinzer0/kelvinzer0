@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Scottish brothers complete record 139-day row across Pacific, calling for pizza and beer on land](https://www.yahoo.com/news/articles/scottish-brothers-complete-record-139-062050493.html)
+- Aug 31 - [A Chinese student was questioned for hours in the US, then sent back even as Trump policies shift](https://www.yahoo.com/news/articles/chinese-student-questioned-hours-us-040159644.html)
 - Aug 31 - [Trump says he will order voter ID requirement for every vote](https://www.yahoo.com/news/articles/trump-says-order-voter-id-020234202.html)
 - Aug 30 - [Donald Trump Banishes White House Contractor After Spotting 'Huge Gash' in New Rose Garden Patio: 'It Was Deep and Nasty'](https://www.yahoo.com/news/articles/donald-trump-banishes-white-house-232011234.html)
 - Aug 30 - [Costco set to enforce new rule starting September 1: Everything you need to know](https://www.yahoo.com/news/articles/costco-set-enforce-rule-starting-221559585.html)
-- Aug 30 - [Jelena Ostapenko apologizes on social media for what she said to Taylor Townsend at the US Open](https://sports.yahoo.com/article/jelena-ostapenko-apologizes-social-media-213658044.html)
-- Aug 30 - [Senator Sanders says U.S. Health Secretary Kennedy must resign](https://www.yahoo.com/news/articles/senator-sanders-says-u-health-185334974.html)
 <!-- feed end -->
 
 ---
