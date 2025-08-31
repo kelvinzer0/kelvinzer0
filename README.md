@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [I’ve been laid off 3 months shy of retirement. I’ll get 6 months severance — if I don’t sue. What should I do?](https://finance.yahoo.com/news/ve-laid-off-3-months-163000456.html)
-- Aug 31 - [Sebastian Gorka got himself ruthlessly fact-checked by the network after claiming there’d been an uptick in mass shootings by transgender individuals.](https://www.yahoo.com/news/videos/sebastian-gorka-got-himself-ruthlessly-151734689.html)
-- Aug 31 - ['We haven't seen the worst of it': Retailers warn tariff impacts are far from over](https://finance.yahoo.com/news/we-havent-seen-the-worst-of-it-retailers-warn-tariff-impacts-are-far-from-over-144106268.html)
+- Aug 31 - ['Super Flirty' Woman Gives Man Her Number on Plane, Then He Realizes Her Husband Is on the Same Flight](https://www.yahoo.com/entertainment/celebrity/articles/super-flirty-woman-gives-man-170000300.html)
+- Aug 31 - [Powerball ticket sold in Mass. wins smaller prize in Saturday’s drawing, jackpot at $1.1 billion](https://www.yahoo.com/news/articles/powerball-ticket-sold-mass-wins-162747657.html)
 - Aug 31 - [Houthis storm UN building in Yemeni capital after Israel killed PM and other ministers](https://www.yahoo.com/news/articles/houthis-storm-un-building-yemeni-143341461.html)
+- Aug 31 - [Aviation company unveils futuristic helicopter that could revolutionize industry: 'Visible proof that our vision works'](https://tech.yahoo.com/transportation/articles/aviation-company-unveils-futuristic-helicopter-130000623.html)
 - Aug 31 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
 <!-- feed end -->
 
