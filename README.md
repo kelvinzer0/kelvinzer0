@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [The ‘self-inflicted injury’ to US tourism that’s making some Americans angry and disappointed](https://www.yahoo.com/news/articles/self-inflicted-injury-us-tourism-130005171.html)
+- Aug 31 - [Publix, Kroger sold winning Powerball, Mega Millions over $1 billion: List of biggest jackpots](https://www.yahoo.com/news/articles/publix-kroger-sold-winning-powerball-125621309.html)
+- Aug 31 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
 - Aug 31 - [Maybe Rex Tillerson Was Right. Maybe Donald Trump Really Is Just A Moron.](https://www.yahoo.com/news/articles/maybe-rex-tillerson-maybe-donald-120017876.html)
-- Aug 31 - [XRP Bullish Patterns Point to $5 as Korean Buyers Start to Accumulate](https://finance.yahoo.com/news/xrp-bullish-patterns-point-5-052559876.html)
-- Aug 31 - [Florida man driving a special truck designed to safely absorb the impact of crashes killed after car plows into the vehicle](https://www.yahoo.com/news/articles/florida-man-driving-special-truck-041651027.html)
-- Aug 31 - [A Chinese student was questioned for hours in the US, then sent back even as Trump policies shift](https://www.yahoo.com/news/articles/chinese-student-questioned-hours-us-040159644.html)
-- Aug 31 - [David Beckham's son sparks outrage after sharing outrageous photos from vacation: 'It's a financial flex'](https://www.yahoo.com/entertainment/celebrity/articles/david-beckhams-son-sparks-outrage-040000816.html)
+- Aug 31 - [A tech founder’s son spurned the Ivy League because its ‘unfun, judgey and biased against white boys’—he’s one of many heading South for college instead](https://www.yahoo.com/news/articles/tech-founder-son-spurned-ivy-110000408.html)
 <!-- feed end -->
 
 ---
