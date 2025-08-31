@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Man pleads guilty after burning woman’s clothes moments before apartment fire](https://www.yahoo.com/news/articles/man-pleads-guilty-burning-woman-004631346.html)
+- Aug 30 - [Jelena Ostapenko apologizes on social media for what she said to Taylor Townsend at the US Open](https://sports.yahoo.com/article/jelena-ostapenko-apologizes-social-media-213658044.html)
 - Aug 30 - [The scientist said the 71-year-old secretary of Health and Human Services has made remarks that suggests he believes in eugenics.](https://www.yahoo.com/news/videos/scientist-said-71-old-secretary-211838532.html)
 - Aug 30 - [Senator Sanders says U.S. Health Secretary Kennedy must resign](https://www.yahoo.com/news/articles/senator-sanders-says-u-health-185334974.html)
 - Aug 30 - [Texas Congressman Dan Crenshaw faced MAGA’s full fury as his constituents demanded the GOP release more details of the late financier’s crimes and affiliations.](https://www.yahoo.com/news/videos/texas-congressman-dan-crenshaw-faced-183849172.html)
-- Aug 30 - [Florida python hunter recounts bloody battle with snake: “She got me, son”](https://www.yahoo.com/news/articles/florida-python-hunter-recounts-bloody-173154700.html)
-- Aug 30 - [Donald Trump Seen Publicly for the First Time amid Viral Death Rumors](https://www.yahoo.com/news/articles/donald-trump-seen-publicly-first-171934110.html)
 <!-- feed end -->
 
 ---
