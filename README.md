@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [Rudy Giuliani seriously injured in car accident after stopping to help domestic violence victim, his spokesperson says](https://www.yahoo.com/news/articles/rudy-giuliani-severely-injured-freak-194004895.html)
 - Aug 31 - [Houthis storm UN buildings in Yemeni capital after Israel killed PM and other ministers](https://www.yahoo.com/news/articles/houthis-storm-un-building-yemeni-143341461.html)
+- Aug 31 - [9 other worldly images of ‘The Radiant Sea’](https://www.yahoo.com/news/articles/9-other-worldly-images-radiant-190000150.html)
+- Aug 31 - [26 Tweets By Women This Month That Were So Funny I Almost Forgot How Bad My Period Cramps Are Right Now](https://www.yahoo.com/entertainment/celebrity/articles/26-tweets-women-month-were-181201080.html)
 - Aug 31 - [Von der Leyen says Europe is drawing up 'precise' plans to send troops to Ukraine, FT reports](https://www.yahoo.com/news/articles/von-der-leyen-says-europe-173254566.html)
-- Aug 31 - [I’ve been laid off 3 months shy of retirement. I’ll get 6 months severance — if I don’t sue. What should I do?](https://finance.yahoo.com/news/ve-laid-off-3-months-163000456.html)
-- Aug 31 - [Powerball ticket sold in Mass. wins smaller prize in Saturday’s drawing, jackpot at $1.1 billion](https://www.yahoo.com/news/articles/powerball-ticket-sold-mass-wins-162747657.html)
-- Aug 31 - ['Breakthrough Discovery' Made at World-Famous Archaeological Site](https://www.yahoo.com/news/articles/breakthrough-discovery-made-world-famous-160000205.html)
 <!-- feed end -->
 
 ---
