@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [A Chinese student was questioned for hours in the US, then sent back even as Trump policies shift](https://www.yahoo.com/news/articles/chinese-student-questioned-hours-us-040159644.html)
+- Aug 31 - [Trump says he will order voter ID requirement for every vote](https://www.yahoo.com/news/articles/trump-says-order-voter-id-020234202.html)
+- Aug 31 - [Child rescued after walking along Hersheypark Monorail tracks](https://www.yahoo.com/news/articles/child-rescued-walking-along-hersheypark-001949488.html)
 - Aug 30 - [Costco set to enforce new rule starting September 1: Everything you need to know](https://www.yahoo.com/news/articles/costco-set-enforce-rule-starting-221559585.html)
 - Aug 30 - [Jelena Ostapenko apologizes on social media for what she said to Taylor Townsend at the US Open](https://sports.yahoo.com/article/jelena-ostapenko-apologizes-social-media-213658044.html)
-- Aug 30 - [The scientist said the 71-year-old secretary of Health and Human Services has made remarks that suggests he believes in eugenics.](https://www.yahoo.com/news/videos/scientist-said-71-old-secretary-211838532.html)
-- Aug 30 - [Senator Sanders says U.S. Health Secretary Kennedy must resign](https://www.yahoo.com/news/articles/senator-sanders-says-u-health-185334974.html)
-- Aug 30 - [Texas Congressman Dan Crenshaw faced MAGA’s full fury as his constituents demanded the GOP release more details of the late financier’s crimes and affiliations.](https://www.yahoo.com/news/videos/texas-congressman-dan-crenshaw-faced-183849172.html)
 <!-- feed end -->
 
 ---
