@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [I became a full-time content creator, but quit after I realized I was sacrificing my morals for a paycheck. It made me insecure and anxious.](https://www.yahoo.com/lifestyle/articles/became-full-time-content-creator-091101398.html)
+- Aug 31 - [My 2 Favorite Stocks to Buy Right Now](https://finance.yahoo.com/news/2-favorite-stocks-buy-now-085100814.html)
 - Aug 31 - [Florida man driving a special truck designed to safely absorb the impact of crashes killed after car plows into the vehicle](https://www.yahoo.com/news/articles/florida-man-driving-special-truck-041651027.html)
-- Aug 30 - [Jelena Ostapenko apologizes on social media for what she said to Taylor Townsend at the US Open](https://sports.yahoo.com/article/jelena-ostapenko-apologizes-social-media-213658044.html)
-- Aug 30 - [Senator Sanders says U.S. Health Secretary Kennedy must resign](https://www.yahoo.com/news/articles/senator-sanders-says-u-health-185334974.html)
-- Aug 30 - [Texas Congressman Dan Crenshaw faced MAGA’s full fury as his constituents demanded the GOP release more details of the late financier’s crimes and affiliations.](https://www.yahoo.com/news/videos/texas-congressman-dan-crenshaw-faced-183849172.html)
+- Aug 31 - [Trump says he will order voter ID requirement for every vote](https://www.yahoo.com/news/articles/trump-says-order-voter-id-020234202.html)
+- Aug 31 - [Hurricane center keeps forecast that Atlantic system could brew](https://www.yahoo.com/news/articles/hurricane-center-keeps-forecast-atlantic-005000094.html)
+- Aug 30 - [Donald Trump Banishes White House Contractor After Spotting 'Huge Gash' in New Rose Garden Patio: 'It Was Deep and Nasty'](https://www.yahoo.com/news/articles/donald-trump-banishes-white-house-232011234.html)
 <!-- feed end -->
 
 ---
