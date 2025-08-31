@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Aug 31 - [I’ve been laid off 3 months shy of retirement. I’ll get 6 months severance — if I don’t sue. What should I do?](https://finance.yahoo.com/news/ve-laid-off-3-months-163000456.html)
 - Aug 31 - [Sebastian Gorka got himself ruthlessly fact-checked by the network after claiming there’d been an uptick in mass shootings by transgender individuals.](https://www.yahoo.com/news/videos/sebastian-gorka-got-himself-ruthlessly-151734689.html)
 - Aug 31 - ['We haven't seen the worst of it': Retailers warn tariff impacts are far from over](https://finance.yahoo.com/news/we-havent-seen-the-worst-of-it-retailers-warn-tariff-impacts-are-far-from-over-144106268.html)
 - Aug 31 - [Houthis storm UN building in Yemeni capital after Israel killed PM and other ministers](https://www.yahoo.com/news/articles/houthis-storm-un-building-yemeni-143341461.html)
-- Aug 31 - [Maybe Rex Tillerson Was Right. Maybe Donald Trump Really Is Just A Moron.](https://www.yahoo.com/news/articles/maybe-rex-tillerson-maybe-donald-120017876.html)
-- Aug 31 - [Newsom Trolls Trump Over Bruised Hands and Golfing Skills](https://www.yahoo.com/news/articles/newsom-trolls-trump-over-bruised-114943991.html)
+- Aug 31 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
 <!-- feed end -->
 
 ---
