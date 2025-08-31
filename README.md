@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [Eat cruciferous vegetables, stand on one leg and use less toothpaste — plus 7 more health tips to help you have a great week](https://www.yahoo.com/lifestyle/article/eat-cruciferous-vegetables-stand-on-one-leg-and-use-less-toothpaste--plus-7-more-health-tips-to-help-you-have-a-great-week-090002349.html)
+- Aug 31 - [Maybe Rex Tillerson Was Right. Maybe Donald Trump Really Is Just A Moron.](https://www.yahoo.com/news/articles/maybe-rex-tillerson-maybe-donald-120017876.html)
 - Aug 31 - [XRP Bullish Patterns Point to $5 as Korean Buyers Start to Accumulate](https://finance.yahoo.com/news/xrp-bullish-patterns-point-5-052559876.html)
 - Aug 31 - [Florida man driving a special truck designed to safely absorb the impact of crashes killed after car plows into the vehicle](https://www.yahoo.com/news/articles/florida-man-driving-special-truck-041651027.html)
-- Aug 30 - [Donald Trump Banishes White House Contractor After Spotting 'Huge Gash' in New Rose Garden Patio: 'It Was Deep and Nasty'](https://www.yahoo.com/news/articles/donald-trump-banishes-white-house-232011234.html)
-- Aug 30 - [Jelena Ostapenko apologizes on social media for what she said to Taylor Townsend at the US Open](https://sports.yahoo.com/article/jelena-ostapenko-apologizes-social-media-213658044.html)
+- Aug 31 - [A Chinese student was questioned for hours in the US, then sent back even as Trump policies shift](https://www.yahoo.com/news/articles/chinese-student-questioned-hours-us-040159644.html)
+- Aug 31 - [David Beckham's son sparks outrage after sharing outrageous photos from vacation: 'It's a financial flex'](https://www.yahoo.com/entertainment/celebrity/articles/david-beckhams-son-sparks-outrage-040000816.html)
 <!-- feed end -->
 
 ---
