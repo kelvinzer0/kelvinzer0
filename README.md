@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Aug 31 - [The ‘self-inflicted injury’ to US tourism that’s making some Americans angry and disappointed](https://www.yahoo.com/news/articles/self-inflicted-injury-us-tourism-130005171.html)
-- Aug 31 - [Publix, Kroger sold winning Powerball, Mega Millions over $1 billion: List of biggest jackpots](https://www.yahoo.com/news/articles/publix-kroger-sold-winning-powerball-125621309.html)
-- Aug 31 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
+- Aug 31 - [Sebastian Gorka got himself ruthlessly fact-checked by the network after claiming there’d been an uptick in mass shootings by transgender individuals.](https://www.yahoo.com/news/videos/sebastian-gorka-got-himself-ruthlessly-151734689.html)
+- Aug 31 - ['We haven't seen the worst of it': Retailers warn tariff impacts are far from over](https://finance.yahoo.com/news/we-havent-seen-the-worst-of-it-retailers-warn-tariff-impacts-are-far-from-over-144106268.html)
+- Aug 31 - [Houthis storm UN building in Yemeni capital after Israel killed PM and other ministers](https://www.yahoo.com/news/articles/houthis-storm-un-building-yemeni-143341461.html)
 - Aug 31 - [Maybe Rex Tillerson Was Right. Maybe Donald Trump Really Is Just A Moron.](https://www.yahoo.com/news/articles/maybe-rex-tillerson-maybe-donald-120017876.html)
-- Aug 31 - [A tech founder’s son spurned the Ivy League because its ‘unfun, judgey and biased against white boys’—he’s one of many heading South for college instead](https://www.yahoo.com/news/articles/tech-founder-son-spurned-ivy-110000408.html)
+- Aug 31 - [Newsom Trolls Trump Over Bruised Hands and Golfing Skills](https://www.yahoo.com/news/articles/newsom-trolls-trump-over-bruised-114943991.html)
 <!-- feed end -->
 
 ---
