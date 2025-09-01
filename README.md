@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Fact Check: Trump didn't score 73 on IQ test in 1st year at New York Military Academy](https://www.yahoo.com/news/articles/fact-check-trump-didnt-score-130000589.html)
-- Sep 01 - [Alicia Silverstone reveals simple diet change for healthy aging: 'All of a sudden, my nails got really thick and strong'](https://health.yahoo.com/wellness/healthy-aging/longevity/articles/alicia-silverstone-reveals-simple-diet-113000495.html)
-- Sep 01 - [Tesla's sales rout in some European markets extends to eighth month](https://finance.yahoo.com/news/teslas-sales-rout-european-markets-102511989.html)
-- Sep 01 - [Bystander catches frustrating scene as tourists attempt to build illegal dam at national park: 'This is so disrespectful'](https://www.yahoo.com/news/articles/bystander-catches-frustrating-scene-tourists-100000578.html)
-- Sep 01 - [Tesla owner returns to frustrating scene after charging car overnight: 'Seeing this more and more'](https://www.yahoo.com/news/articles/tesla-owner-returns-frustrating-scene-100000492.html)
+- Sep 01 - [Germany dismisses remarks by EU's von der Leyen on troops for Ukraine](https://www.yahoo.com/news/articles/germany-dismisses-remarks-eus-von-145814235.html)
+- Sep 01 - [A Chinese mining company is accused of covering up the extent of a major toxic spill in Zambia](https://www.yahoo.com/news/articles/chinese-mining-company-accused-covering-143351181.html)
+- Sep 01 - [Florida State freshman linebacker Ethan Pritchard in intensive care after sustaining gunshot wound](https://sports.yahoo.com/college-football/breaking-news/article/florida-state-freshman-linebacker-ethan-pritchard-in-intensive-care-after-sustaining-gunshot-wound-141702047.html)
+- Sep 01 - [FSU freshman linebacker Ethan Pritchard is in intensive care after shooting, school says](https://sports.yahoo.com/article/fsu-freshman-linebacker-ethan-pritchard-135347768.html)
+- Sep 01 - [Trump says India offered to reduce tariffs on US goods to zero](https://www.yahoo.com/news/articles/trump-says-india-offered-reduce-134807120.html)
 <!-- feed end -->
 
 ---
