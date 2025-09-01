@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Legendary trader Peter Brandt warns XRP chart is 'very negative'](https://finance.yahoo.com/news/legendary-trader-peter-brandt-warns-182304920.html)
-- Sep 01 - [Cold front brings storms, sharp temperature drop to the Prairies](https://www.yahoo.com/news/articles/cold-front-brings-storms-sharp-153053332.html)
-- Sep 01 - [Starmer issues warning after saying he is ‘very encouraging’ of people flying flags](https://www.yahoo.com/news/articles/starmer-issues-warning-saying-very-180049590.html)
+- Sep 01 - [Torsten Bell’s Treasury takeover makes radical tax rises more likely than ever](https://finance.yahoo.com/news/torsten-bell-treasury-takeover-makes-182042124.html)
+- Sep 01 - [Kim Jong Un to join Chinese, Russian leaders for Beijing parade](https://www.yahoo.com/news/articles/kim-jong-un-join-chinese-181657258.html)
+- Sep 01 - [Hiker dies after cow herd tramples couple walking dog in Austrian Alps: Reports](https://www.yahoo.com/news/articles/hiker-dies-cow-herd-tramples-175616783.html)
+- Sep 01 - [Appeal after boy, 17, dies in motorcycle crash](https://www.yahoo.com/news/articles/appeal-boy-17-dies-motorcycle-171032724.html)
 - Sep 01 - [CNN’s data guru says there’s “opposition like a rocket!”](https://www.yahoo.com/news/videos/cnn-data-guru-says-opposition-163551162.html)
-- Sep 01 - [A Chinese mining company is accused of covering up the extent of a major toxic spill in Zambia](https://www.yahoo.com/news/articles/chinese-mining-company-accused-covering-143351181.html)
 <!-- feed end -->
 
 ---
