@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [These American mercenaries are revered in China. Their relatives are among the few US invitees to Xi’s WWII parade](https://www.yahoo.com/news/articles/american-mercenaries-revered-china-relatives-003559180.html)
+- Sep 01 - [Jasmine Crockett Torches MAGA With Blistering Take On Trump's Red Hats](https://www.yahoo.com/news/articles/jasmine-crockett-torches-maga-blistering-061858728.html)
+- Sep 01 - [These American mercenaries are revered in China. Their relatives are among the few US invitees to Xi’s WWII military parade](https://www.yahoo.com/news/articles/american-mercenaries-revered-china-relatives-003559180.html)
+- Sep 01 - [China to unveil US ship-killing weapons at military parade](https://www.yahoo.com/news/articles/china-unveil-us-ship-killing-050000199.html)
 - Sep 01 - [Newsom Outflanks Trump Again In Battle Over Kamala Harris’ Security; POTUS Takes Away Ex-VP’s Secret Service Protection Just Before Book Tour](https://www.yahoo.com/news/articles/newsom-outflanks-trump-again-battle-031833147.html)
-- Sep 01 - [Asia factory activity shrinks as US tariffs bite, China bucks trend](https://finance.yahoo.com/news/asia-factory-activity-shrinks-us-030630317.html)
-- Sep 01 - [Mothers at 14. The fierce debate over sex education in a deeply Catholic nation](https://www.yahoo.com/news/articles/mothers-14-fierce-debate-over-000145381.html)
-- Aug 31 - [Officials issue warning as beloved vegetables vanish from markets: 'There are serious concerns'](https://www.yahoo.com/news/articles/officials-issue-warning-beloved-vegetables-234500347.html)
+- Sep 01 - [1.2M immigrants are gone from the US labor force under Trump, preliminary data shows](https://www.yahoo.com/news/articles/1-2m-immigrants-gone-us-031148921.html)
 <!-- feed end -->
 
 ---
