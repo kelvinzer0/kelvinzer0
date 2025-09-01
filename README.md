@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [11-year-old boy fatally shot in Houston after 'ding dong ditch' doorbell-ringing prank, police say](https://www.yahoo.com/news/articles/11-old-boy-fatally-shot-011830612.html)
+- Sep 01 - [Indian stock benchmarks to open higher on upbeat GDP data, US court's tariff ruling](https://finance.yahoo.com/news/indian-stock-benchmarks-open-higher-024208098.html)
 - Sep 01 - [These American mercenaries are revered in China. Their relatives are among the few US invitees to Xi’s WWII parade](https://www.yahoo.com/news/articles/american-mercenaries-revered-china-relatives-003559180.html)
 - Sep 01 - [Mothers at 14. The fierce debate over sex education in a deeply Catholic nation](https://www.yahoo.com/news/articles/mothers-14-fierce-debate-over-000145381.html)
 - Aug 31 - [Billionaire NFL team owner faces backlash after video of $100 million luxury yacht surfaces: 'That's a slap in the face'](https://www.yahoo.com/news/articles/billionaire-nfl-team-owner-faces-235000382.html)
-- Aug 31 - [Houthis storm UN buildings in Yemeni capital after Israel killed PM and other ministers](https://www.yahoo.com/news/articles/houthis-storm-un-building-yemeni-143341461.html)
+- Aug 31 - [Rudy Giuliani seriously injured in car accident after stopping to help domestic violence victim, his spokesperson says](https://www.yahoo.com/news/articles/rudy-giuliani-severely-injured-freak-194004895.html)
 <!-- feed end -->
 
 ---
