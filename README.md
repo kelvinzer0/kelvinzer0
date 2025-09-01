@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Jasmine Crockett Torches MAGA With Blistering Take On Trump's Red Hats](https://www.yahoo.com/news/articles/jasmine-crockett-torches-maga-blistering-061858728.html)
+- Sep 01 - [11-year-old dies after being shot while ‘ding dong ditching’ in Houston, police say](https://www.yahoo.com/news/articles/11-old-dies-being-shot-063420606.html)
 - Sep 01 - [These American mercenaries are revered in China. Their relatives are among the few US invitees to Xi’s WWII military parade](https://www.yahoo.com/news/articles/american-mercenaries-revered-china-relatives-003559180.html)
-- Sep 01 - [China to unveil US ship-killing weapons at military parade](https://www.yahoo.com/news/articles/china-unveil-us-ship-killing-050000199.html)
+- Sep 01 - [After talks with Xi and Modi, Putin says NATO enlargement has to be addressed for Ukraine peace](https://www.yahoo.com/news/articles/putin-says-understandings-reached-alaska-043620529.html)
 - Sep 01 - [Newsom Outflanks Trump Again In Battle Over Kamala Harris’ Security; POTUS Takes Away Ex-VP’s Secret Service Protection Just Before Book Tour](https://www.yahoo.com/news/articles/newsom-outflanks-trump-again-battle-031833147.html)
 - Sep 01 - [1.2M immigrants are gone from the US labor force under Trump, preliminary data shows](https://www.yahoo.com/news/articles/1-2m-immigrants-gone-us-031148921.html)
 <!-- feed end -->
