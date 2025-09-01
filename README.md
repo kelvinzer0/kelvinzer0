@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Torsten Bell’s Treasury takeover makes radical tax rises more likely than ever](https://finance.yahoo.com/news/torsten-bell-treasury-takeover-makes-182042124.html)
-- Sep 01 - [Kim Jong Un to join Chinese, Russian leaders for Beijing parade](https://www.yahoo.com/news/articles/kim-jong-un-join-chinese-181657258.html)
-- Sep 01 - [Hiker dies after cow herd tramples couple walking dog in Austrian Alps: Reports](https://www.yahoo.com/news/articles/hiker-dies-cow-herd-tramples-175616783.html)
-- Sep 01 - [Appeal after boy, 17, dies in motorcycle crash](https://www.yahoo.com/news/articles/appeal-boy-17-dies-motorcycle-171032724.html)
-- Sep 01 - [CNN’s data guru says there’s “opposition like a rocket!”](https://www.yahoo.com/news/videos/cnn-data-guru-says-opposition-163551162.html)
+- Sep 01 - [Bessent expects Supreme Court to uphold legality of Trump's tariffs but eyes Plan B](https://www.yahoo.com/news/articles/bessent-expects-supreme-court-uphold-201553196.html)
+- Sep 01 - [Homeowner furious after returning to find HOA made drastic changes to property: 'Way beyond what they were allowed to do'](https://www.yahoo.com/news/articles/homeowner-furious-returning-hoa-made-194500703.html)
+- Sep 01 - [Maduro vows to declare a 'republic in arms' if US forces in the Caribbean attack Venezuela](https://www.yahoo.com/news/articles/maduro-vows-declare-republic-arms-185438337.html)
+- Sep 01 - [Florida State freshman linebacker Ethan Pritchard in intensive care after sustaining gunshot wound](https://sports.yahoo.com/college-football/breaking-news/article/florida-state-freshman-linebacker-ethan-pritchard-in-intensive-care-after-sustaining-gunshot-wound-141702047.html)
+- Sep 01 - [Trump says India offered to reduce tariffs on US goods to zero](https://finance.yahoo.com/news/trump-says-india-offered-reduce-134807964.html)
 <!-- feed end -->
 
 ---
