@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 01 - [Fact Check: Trump didn't score 73 on IQ test in 1st year at New York Military Academy](https://www.yahoo.com/news/articles/fact-check-trump-didnt-score-130000589.html)
+- Sep 01 - [Alicia Silverstone reveals simple diet change for healthy aging: 'All of a sudden, my nails got really thick and strong'](https://health.yahoo.com/wellness/healthy-aging/longevity/articles/alicia-silverstone-reveals-simple-diet-113000495.html)
 - Sep 01 - [Tesla's sales rout in some European markets extends to eighth month](https://finance.yahoo.com/news/teslas-sales-rout-european-markets-102511989.html)
+- Sep 01 - [Bystander catches frustrating scene as tourists attempt to build illegal dam at national park: 'This is so disrespectful'](https://www.yahoo.com/news/articles/bystander-catches-frustrating-scene-tourists-100000578.html)
 - Sep 01 - [Tesla owner returns to frustrating scene after charging car overnight: 'Seeing this more and more'](https://www.yahoo.com/news/articles/tesla-owner-returns-frustrating-scene-100000492.html)
-- Sep 01 - [Chagas disease, long considered only a threat abroad, is established in California and the Southern U.S.](https://www.yahoo.com/news/articles/chagas-disease-long-considered-only-100000024.html)
-- Sep 01 - [Man issues warning to others after making a surprising discovery on a bike path: 'Do not touch ... with bare hands'](https://www.yahoo.com/news/articles/man-issues-warning-others-making-080000510.html)
-- Sep 01 - [Wrestler released from hospital, reveals extent of injuries after being beaten by son of former UFC champion Rampage Jackson](https://sports.yahoo.com/article/wrestler-released-hospital-reveals-extent-095755788.html)
 <!-- feed end -->
 
 ---
