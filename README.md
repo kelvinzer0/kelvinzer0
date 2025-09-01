@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [The Most Important iPhone Apple Ever Made (And The One Everyone Forgot)](https://tech.yahoo.com/phones/articles/most-important-iphone-apple-ever-101700916.html)
-- Sep 01 - [What happens when you put six tech bros in a room together? An artist used AI to find out](https://tech.yahoo.com/ai/articles/happens-put-six-tech-bros-101342047.html)
+- Sep 01 - [20 Used Cars With the Largest Price Increases Over the Past Year](https://autos.yahoo.com/articles/20-used-cars-largest-price-121911927.html)
+- Sep 01 - [Swiss court to consider climate case by Indonesia islanders against Holcim](https://www.yahoo.com/news/articles/swiss-court-consider-climate-case-110523896.html)
+- Sep 01 - [Tesla's sales rout in some European markets continues for eighth month](https://finance.yahoo.com/news/teslas-sales-rout-european-markets-102511989.html)
+- Sep 01 - [Bystander catches frustrating scene as tourists attempt to build illegal dam at national park: 'This is so disrespectful'](https://www.yahoo.com/news/articles/bystander-catches-frustrating-scene-tourists-100000578.html)
 - Sep 01 - [Tesla owner returns to frustrating scene after charging car overnight: 'Seeing this more and more'](https://www.yahoo.com/news/articles/tesla-owner-returns-frustrating-scene-100000492.html)
-- Sep 01 - [Florida man hunts down and eats large invasive creatures: 'These things are huge, and they are everywhere'](https://www.yahoo.com/news/articles/florida-man-hunts-down-eats-093000310.html)
-- Sep 01 - [Cause of Death Revealed for Former U.S. Attorney Jessica Aber, Who Was Found Dead 2 Months After Resigning Under Trump](https://www.yahoo.com/news/articles/cause-death-revealed-former-u-084723618.html)
 <!-- feed end -->
 
 ---
