@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [A Chinese mining company is accused of covering up the extent of a major toxic spill in Zambia](https://www.yahoo.com/news/articles/chinese-mining-company-accused-covering-143351181.html)
+- Sep 01 - [Florida State freshman linebacker Ethan Pritchard in intensive care after sustaining gunshot wound](https://sports.yahoo.com/college-football/breaking-news/article/florida-state-freshman-linebacker-ethan-pritchard-in-intensive-care-after-sustaining-gunshot-wound-141702047.html)
 - Sep 01 - [Trump says India offered to reduce tariffs on US goods to zero](https://finance.yahoo.com/news/trump-says-india-offered-reduce-134807964.html)
-- Sep 01 - [Fact Check: Trump didn't score 73 on IQ test in 1st year at New York Military Academy](https://www.yahoo.com/news/articles/fact-check-trump-didnt-score-130000589.html)
+- Sep 01 - [53 shot, 7 dead, in Chicago amid Trump's threat to deploy National Guard](https://www.yahoo.com/news/articles/35-shot-chicago-governor-rejects-204406894.html)
 - Sep 01 - [Exclusive-Saudi Aramco, Iraq's SOMO halt crude sales to Indian refiner Nayara, sources say](https://finance.yahoo.com/news/exclusive-saudi-aramco-iraqs-somo-123758450.html)
-- Sep 01 - [Strange Living Islands Have Appeared on The Great Salt Lake, And Now We Know Why](https://www.yahoo.com/news/articles/strange-living-islands-appeared-great-120037523.html)
+- Sep 01 - [A tractor enthusiast wants to recover one onboard a sunken World War II carrier](https://www.yahoo.com/news/articles/tractor-enthusiast-wants-recover-one-121100851.html)
 <!-- feed end -->
 
 ---
