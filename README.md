@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [A CT vacant lot is being transformed into an educational center for food. Here’s how it will work.](https://www.yahoo.com/news/articles/ct-vacant-lot-being-transformed-100000113.html)
-- Sep 01 - [‘Financial Freedom’ author Grant Sabatier says there are 7 levels of wealth — what stage have you reached](https://finance.yahoo.com/news/financial-freedom-author-grant-sabatier-090500847.html)
+- Sep 01 - [The Most Important iPhone Apple Ever Made (And The One Everyone Forgot)](https://tech.yahoo.com/phones/articles/most-important-iphone-apple-ever-101700916.html)
+- Sep 01 - [What happens when you put six tech bros in a room together? An artist used AI to find out](https://tech.yahoo.com/ai/articles/happens-put-six-tech-bros-101342047.html)
+- Sep 01 - [Tesla owner returns to frustrating scene after charging car overnight: 'Seeing this more and more'](https://www.yahoo.com/news/articles/tesla-owner-returns-frustrating-scene-100000492.html)
+- Sep 01 - [Florida man hunts down and eats large invasive creatures: 'These things are huge, and they are everywhere'](https://www.yahoo.com/news/articles/florida-man-hunts-down-eats-093000310.html)
 - Sep 01 - [Cause of Death Revealed for Former U.S. Attorney Jessica Aber, Who Was Found Dead 2 Months After Resigning Under Trump](https://www.yahoo.com/news/articles/cause-death-revealed-former-u-084723618.html)
-- Sep 01 - [Social Security Will Change Forever on Sept. 30, Courtesy of President Donald Trump](https://finance.yahoo.com/news/social-security-change-forever-sept-084300548.html)
-- Sep 01 - [Trump Motorcade Gets A Very Blunt Message From A Lone Protester](https://www.yahoo.com/news/articles/trump-motorcade-gets-very-blunt-080932793.html)
 <!-- feed end -->
 
 ---
