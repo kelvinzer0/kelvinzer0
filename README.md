@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Florida State freshman linebacker Ethan Pritchard in intensive care after sustaining gunshot wound](https://sports.yahoo.com/college-football/breaking-news/article/florida-state-freshman-linebacker-ethan-pritchard-in-intensive-care-after-sustaining-gunshot-wound-141702047.html)
+- Sep 01 - [Hiker dies after cow herd tramples couple walking dog in Austrian Alps: Reports](https://www.yahoo.com/news/articles/hiker-dies-cow-herd-tramples-175616783.html)
+- Sep 01 - [Green Bay woman dies after falling out of moving vehicle, police say](https://www.yahoo.com/news/articles/green-bay-woman-dies-falling-151450834.html)
+- Sep 01 - [A Chinese mining company is accused of covering up the extent of a major toxic spill in Zambia](https://www.yahoo.com/news/articles/chinese-mining-company-accused-covering-143351181.html)
+- Sep 01 - [Ethereum Co-Founder Joe Lubin Predicts 100x ETH Rally as Wall Street Adopts DeFi](https://finance.yahoo.com/news/ethereum-co-founder-joe-lubin-135212233.html)
 - Sep 01 - [Trump says India offered to reduce tariffs on US goods to zero](https://finance.yahoo.com/news/trump-says-india-offered-reduce-134807964.html)
-- Sep 01 - [53 shot, 7 dead, in Chicago amid Trump's threat to deploy National Guard](https://www.yahoo.com/news/articles/35-shot-chicago-governor-rejects-204406894.html)
-- Sep 01 - [Exclusive-Saudi Aramco, Iraq's SOMO halt crude sales to Indian refiner Nayara, sources say](https://finance.yahoo.com/news/exclusive-saudi-aramco-iraqs-somo-123758450.html)
-- Sep 01 - [A tractor enthusiast wants to recover one onboard a sunken World War II carrier](https://www.yahoo.com/news/articles/tractor-enthusiast-wants-recover-one-121100851.html)
 <!-- feed end -->
 
 ---
