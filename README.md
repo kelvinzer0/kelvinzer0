@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Bessent expects Supreme Court to uphold legality of Trump's tariffs but eyes Plan B](https://www.yahoo.com/news/articles/bessent-expects-supreme-court-uphold-201553196.html)
+- Sep 01 - [Costco’s new rule takes effect September 1: Everything you need to know](https://www.yahoo.com/news/articles/costco-set-enforce-rule-starting-221559585.html)
+- Sep 01 - [Hamtramck awash in water balloons as spectators pelt participants in Yacht Race](https://www.yahoo.com/news/articles/hamtramck-awash-water-balloons-spectators-205342224.html)
+- Sep 01 - [The rise and fall of the American diner](https://www.yahoo.com/news/videos/rise-fall-american-diner-202128772.html)
 - Sep 01 - [Homeowner furious after returning to find HOA made drastic changes to property: 'Way beyond what they were allowed to do'](https://www.yahoo.com/news/articles/homeowner-furious-returning-hoa-made-194500703.html)
-- Sep 01 - [Maduro vows to declare a 'republic in arms' if US forces in the Caribbean attack Venezuela](https://www.yahoo.com/news/articles/maduro-vows-declare-republic-arms-185438337.html)
-- Sep 01 - [Florida State freshman linebacker Ethan Pritchard in intensive care after sustaining gunshot wound](https://sports.yahoo.com/college-football/breaking-news/article/florida-state-freshman-linebacker-ethan-pritchard-in-intensive-care-after-sustaining-gunshot-wound-141702047.html)
-- Sep 01 - [Trump says India offered to reduce tariffs on US goods to zero](https://finance.yahoo.com/news/trump-says-india-offered-reduce-134807964.html)
+- Sep 01 - [Florida I-95 northbound to be closed for several hours due to rollover crash](https://www.yahoo.com/news/articles/florida-95-northbound-closed-several-191159420.html)
 <!-- feed end -->
 
 ---
