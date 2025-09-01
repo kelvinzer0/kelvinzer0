@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Indonesia’s deadly protests paused but deep resentment remains. Here’s what to know](https://www.yahoo.com/news/articles/indonesia-deadly-protests-paused-deep-083528232.html)
+- Sep 01 - [A CT vacant lot is being transformed into an educational center for food. Here’s how it will work.](https://www.yahoo.com/news/articles/ct-vacant-lot-being-transformed-100000113.html)
+- Sep 01 - [‘Financial Freedom’ author Grant Sabatier says there are 7 levels of wealth — what stage have you reached](https://finance.yahoo.com/news/financial-freedom-author-grant-sabatier-090500847.html)
+- Sep 01 - [Cause of Death Revealed for Former U.S. Attorney Jessica Aber, Who Was Found Dead 2 Months After Resigning Under Trump](https://www.yahoo.com/news/articles/cause-death-revealed-former-u-084723618.html)
+- Sep 01 - [Social Security Will Change Forever on Sept. 30, Courtesy of President Donald Trump](https://finance.yahoo.com/news/social-security-change-forever-sept-084300548.html)
 - Sep 01 - [Trump Motorcade Gets A Very Blunt Message From A Lone Protester](https://www.yahoo.com/news/articles/trump-motorcade-gets-very-blunt-080932793.html)
-- Sep 01 - [Ukraine suspects Russia involved in killing of former parliamentary speaker, says police chief](https://www.yahoo.com/news/articles/ukraine-suspects-russia-involved-killing-075635442.html)
-- Sep 01 - [Rudy Giuliani seriously injured in car accident after stopping to help domestic violence victim, his spokesperson says](https://www.yahoo.com/news/articles/rudy-giuliani-severely-injured-freak-194004895.html)
-- Sep 01 - [Large gatherings, ‘multiple incidents’ prompt police presence near University of Dayton](https://www.yahoo.com/news/articles/large-gatherings-multiple-incidents-prompt-063442831.html)
 <!-- feed end -->
 
 ---
