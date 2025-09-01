@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 01 - [Jasmine Crockett Torches MAGA With Blistering Take On Trump's Red Hats](https://www.yahoo.com/news/articles/jasmine-crockett-torches-maga-blistering-061858728.html)
-- Sep 01 - [These American mercenaries are revered in China. Their relatives are among the few US invitees to Xi’s WWII military parade](https://www.yahoo.com/news/articles/american-mercenaries-revered-china-relatives-003559180.html)
-- Sep 01 - [After talks with Xi and Modi, Putin says NATO enlargement has to be addressed for Ukraine peace](https://www.yahoo.com/news/articles/putin-says-understandings-reached-alaska-043620529.html)
-- Sep 01 - [Newsom Outflanks Trump Again In Battle Over Kamala Harris’ Security; POTUS Takes Away Ex-VP’s Secret Service Protection Just Before Book Tour](https://www.yahoo.com/news/articles/newsom-outflanks-trump-again-battle-031833147.html)
-- Sep 01 - [1.2M immigrants are gone from the US labor force under Trump, preliminary data shows](https://www.yahoo.com/news/articles/1-2m-immigrants-gone-us-031148921.html)
+- Sep 01 - [Indonesia’s deadly protests paused but deep resentment remains. Here’s what to know](https://www.yahoo.com/news/articles/indonesia-deadly-protests-paused-deep-083528232.html)
+- Sep 01 - [Trump Motorcade Gets A Very Blunt Message From A Lone Protester](https://www.yahoo.com/news/articles/trump-motorcade-gets-very-blunt-080932793.html)
+- Sep 01 - [Ukraine suspects Russia involved in killing of former parliamentary speaker, says police chief](https://www.yahoo.com/news/articles/ukraine-suspects-russia-involved-killing-075635442.html)
+- Sep 01 - [Rudy Giuliani seriously injured in car accident after stopping to help domestic violence victim, his spokesperson says](https://www.yahoo.com/news/articles/rudy-giuliani-severely-injured-freak-194004895.html)
+- Sep 01 - [Large gatherings, ‘multiple incidents’ prompt police presence near University of Dayton](https://www.yahoo.com/news/articles/large-gatherings-multiple-incidents-prompt-063442831.html)
 <!-- feed end -->
 
 ---
