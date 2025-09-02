@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [BitMine Boosts Ethereum Stash Above $8 Billion, Now Holds 1.5% of ETH Supply](https://finance.yahoo.com/news/bitmine-boosts-ethereum-stash-above-184706495.html)
-- Sep 02 - [The former “Meet the Press” host said the White House is pulling the wool over the American people’s eyes.](https://www.yahoo.com/news/videos/former-meet-press-host-said-183525302.html)
-- Sep 02 - [Venezuela's Maduro shows off Huawei phone gifted from China's Xi](https://www.yahoo.com/news/videos/venezuelas-maduro-shows-off-huawei-175525390.html)
-- Sep 02 - [Pentagon authorizes up to 600 military lawyers to serve as temporary immigration judges](https://www.yahoo.com/news/articles/pentagon-authorizes-600-military-lawyers-174905862.html)
-- Sep 02 - [Watch: Trump to make a televised announcement after deluge of social media rumors](https://www.yahoo.com/news/articles/watch-trump-televised-announcement-deluge-172331384.html)
+- Sep 02 - [Trump says US has carried out strike against drug-carrying vessel that departed from Venezuela](https://www.yahoo.com/news/articles/trump-says-us-carried-strike-192632442.html)
+- Sep 02 - [New report shows how Trump’s DHS is mainstreaming white supremacy](https://www.yahoo.com/news/articles/report-shows-trump-dhs-mainstreaming-192401627.html)
+- Sep 02 - [Trump says he is 'very disappointed' with Putin over Ukraine](https://www.yahoo.com/news/articles/trump-says-very-disappointed-putin-191727916.html)
+- Sep 02 - [Another rebuke for prosecutors: Grand jury refuses to indict woman accused of threatening Trump](https://www.yahoo.com/news/articles/another-rebuke-prosecutors-grand-jury-185025966.html)
+- Sep 02 - [Tow truck driver faces federal charges for allegedly taking away ICE vehicle](https://www.yahoo.com/news/videos/tow-truck-driver-faces-federal-184416119.html)
 <!-- feed end -->
 
 ---
