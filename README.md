@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Suspect arrested after senior Ukrainian politician shot dead in Lviv](https://www.yahoo.com/news/articles/suspect-arrested-senior-ukrainian-politician-102840763.html)
+- Sep 02 - [Several injured after car drives into crowd at Harrisburg festival](https://www.yahoo.com/news/videos/several-injured-car-drives-crowd-050540758.html)
+- Sep 02 - [Health officials sound alarm after detecting disease across entire state — here's what you need to know](https://www.yahoo.com/news/articles/health-officials-sound-alarm-detecting-030000122.html)
 - Sep 01 - [Experts warn deadly disease returns with spike in number of cases: '1 in 5 people … die, sometimes within a day or two of becoming ill'](https://www.yahoo.com/news/articles/experts-warn-deadly-disease-returns-235000471.html)
+- Sep 01 - [The results of a Quinnipiac poll last month didn’t align with the conservative pundit’s claim that there was “no fracture” in the GOP.](https://www.yahoo.com/news/videos/results-quinnipiac-poll-last-month-232850314.html)
 - Sep 01 - [Ancient human skull discovered in Greece rewrites human evolutionary timeline](https://www.yahoo.com/news/articles/ancient-human-skull-discovered-greece-214731327.html)
-- Sep 01 - [Dogecoin Analyst Forecasts 850% Price Rally in September as Traders Deploy $42M Support at $0.21](https://finance.yahoo.com/news/dogecoin-analyst-forecasts-850-price-214254850.html)
-- Sep 01 - [Anna Wintour Names Nepo Baby, 39, as Her Vogue Successor](https://www.yahoo.com/entertainment/celebrity/articles/anna-wintour-names-nepo-baby-211019577.html)
 <!-- feed end -->
 
 ---
