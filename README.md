@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Dollar under pressure as traders return after Labor Day break](https://finance.yahoo.com/news/dollar-under-pressure-traders-return-010444624.html)
+- Sep 02 - [Body is found in MacArthur Park Lake](https://www.yahoo.com/news/articles/body-found-macarthur-park-lake-005250756.html)
+- Sep 02 - [A Surprising Mathematical Pattern Was Found Hiding in Earth's History](https://www.yahoo.com/news/articles/surprising-mathematical-pattern-found-hiding-001211350.html)
+- Sep 01 - [Donald Trump Says $15 Trillion Investment In US Will Be 'Immediately Cancelled!' If Courts Strike Down Tariffs: 'Would Become A Third World Nation'](https://finance.yahoo.com/news/donald-trump-says-15-trillion-233212173.html)
 - Sep 01 - [Ancient human skull discovered in Greece rewrites human evolutionary timeline](https://www.yahoo.com/news/articles/ancient-human-skull-discovered-greece-214731327.html)
-- Sep 01 - [Costco’s new rule takes effect September 1: Everything you need to know](https://www.yahoo.com/news/articles/costco-set-enforce-rule-starting-221559585.html)
-- Sep 01 - [The rise and fall of the American diner](https://www.yahoo.com/news/videos/rise-fall-american-diner-202128772.html)
-- Sep 01 - [Bessent expects Supreme Court to uphold legality of Trump's tariffs but eyes Plan B](https://www.yahoo.com/news/articles/bessent-expects-supreme-court-uphold-201553196.html)
-- Sep 01 - [Hundreds dead as huge Afghanistan earthquake flattens homes](https://www.yahoo.com/news/videos/hundreds-dead-huge-afghanistan-earthquake-191345662.html)
 <!-- feed end -->
 
 ---
