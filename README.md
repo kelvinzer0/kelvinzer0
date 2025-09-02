@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [Google avoids breakup in search monopoly case, but judge orders other changes in landmark ruling](https://www.yahoo.com/news/articles/google-avoids-breakup-search-monopoly-205329247.html)
+- Sep 02 - [Ukraine's Zelenskiy says Russia engaged in a new troop buildup](https://www.yahoo.com/news/articles/ukraines-zelenskiy-says-russia-engaged-193220880.html)
 - Sep 02 - [Trump says US has carried out strike against drug-carrying vessel that departed from Venezuela](https://www.yahoo.com/news/articles/trump-says-us-carried-strike-192632442.html)
-- Sep 02 - [New report shows how Trump’s DHS is mainstreaming white supremacy](https://www.yahoo.com/news/articles/report-shows-trump-dhs-mainstreaming-192401627.html)
 - Sep 02 - [Trump says he is 'very disappointed' with Putin over Ukraine](https://www.yahoo.com/news/articles/trump-says-very-disappointed-putin-191727916.html)
-- Sep 02 - [Another rebuke for prosecutors: Grand jury refuses to indict woman accused of threatening Trump](https://www.yahoo.com/news/articles/another-rebuke-prosecutors-grand-jury-185025966.html)
-- Sep 02 - [Tow truck driver faces federal charges for allegedly taking away ICE vehicle](https://www.yahoo.com/news/videos/tow-truck-driver-faces-federal-184416119.html)
+- Sep 02 - [Farmers issue warning on future of beloved vegetable: 'It's not looking good'](https://www.yahoo.com/news/articles/farmers-issue-warning-future-beloved-190000942.html)
 <!-- feed end -->
 
 ---
