@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Tesla gets around 600 orders since India launch, Bloomberg News reports](https://finance.yahoo.com/news/tesla-gets-around-600-orders-050758832.html)
 - Sep 02 - [Health officials sound alarm after detecting disease across entire state — here's what you need to know](https://www.yahoo.com/news/articles/health-officials-sound-alarm-detecting-030000122.html)
 - Sep 01 - [Experts warn deadly disease returns with spike in number of cases: '1 in 5 people … die, sometimes within a day or two of becoming ill'](https://www.yahoo.com/news/articles/experts-warn-deadly-disease-returns-235000471.html)
 - Sep 01 - [Donald Trump Says $15 Trillion Investment In US Will Be 'Immediately Cancelled!' If Courts Strike Down Tariffs: 'Would Become A Third World Nation'](https://finance.yahoo.com/news/donald-trump-says-15-trillion-233212173.html)
+- Sep 01 - [Evacuation order issued due to Valley Fire in El Dorado County](https://www.yahoo.com/news/articles/evacuation-order-issued-due-valley-215428262.html)
 - Sep 01 - [Ancient human skull discovered in Greece rewrites human evolutionary timeline](https://www.yahoo.com/news/articles/ancient-human-skull-discovered-greece-214731327.html)
 <!-- feed end -->
 
