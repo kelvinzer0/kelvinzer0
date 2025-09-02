@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Report: Unauthorized evidence provided to NCAA by former U-M player](https://sports.yahoo.com/article/report-unauthorized-evidence-provided-ncaa-130000238.html)
+- Sep 02 - [Kraft Heinz announces plan to separate into two companies](https://finance.yahoo.com/news/kraft-heinz-announces-plan-separate-133255740.html)
+- Sep 02 - [US Pulls TSMC's Waiver for China Chip Supply Shipments](https://finance.yahoo.com/video/us-pulls-tsmcs-waiver-china-133127456.html)
 - Sep 02 - [One of last D-Day heroes desperate for medal 'to complete' his life before he dies](https://www.yahoo.com/news/videos/one-last-d-day-heroes-125733138.html)
-- Sep 02 - [AI-driven drug discovery picks up as FDA pushes to reduce animal testing](https://www.yahoo.com/news/articles/ai-driven-drug-discovery-picks-125224987.html)
-- Sep 02 - [Texas 11-year-old shot and killed after 'ding dong ditch' prank](https://www.yahoo.com/news/videos/texas-11-old-shot-killed-110023219.html)
-- Sep 02 - [Kiko becomes a hurricane: Hurricane Center watching 3 weather patterns](https://www.yahoo.com/news/articles/kiko-becomes-hurricane-hurricane-center-105046905.html)
+- Sep 02 - [This Is What Happens to Your Body When You Take Too Many Vitamins](https://health.yahoo.com/wellness/nutrition/vitamins-supplements/articles/happens-body-too-many-vitamins-123000847.html)
+- Sep 02 - [More mothers killed by sons than by strangers](https://www.yahoo.com/news/articles/more-mothers-killed-sons-strangers-102348970.html)
 <!-- feed end -->
 
 ---
