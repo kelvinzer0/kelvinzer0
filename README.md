@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Burkina Faso bans homosexuality with prison terms and fines for offenders](https://www.yahoo.com/news/articles/burkina-faso-bans-homosexuality-prison-102807652.html)
-- Sep 02 - [Gavin Newsom Trolls Karoline Leavitt With A Biting New Meme And Nickname](https://www.yahoo.com/news/articles/gavin-newsom-trolls-karoline-leavitt-071516389.html)
-- Sep 02 - [Ukrainian drone attack forces hundreds to evacuate homes in Russian city](https://www.yahoo.com/news/articles/ukrainian-drone-attack-forces-hundreds-050828963.html)
+- Sep 02 - [Exclusive-US regulators cancel bank exams as Trump rollback gathers pace](https://www.yahoo.com/news/articles/exclusive-us-regulators-cancel-bank-103458771.html)
+- Sep 02 - [India eyes record cotton buying as imports, US tariffs dampen prices](https://finance.yahoo.com/news/india-eyes-record-cotton-buying-100726732.html)
+- Sep 02 - [Scientists stunned after camera captures entire community of once-thought-extinct species: 'A fairytale in terms of conservation'](https://www.yahoo.com/news/articles/scientists-stunned-camera-captures-entire-100000620.html)
+- Sep 02 - [Exclusive: Justice Amy Coney Barrett defends overturning Roe v. Wade and reveals Supreme Court dynamics in new book](https://www.yahoo.com/news/articles/exclusive-justice-amy-coney-barrett-080005700.html)
 - Sep 02 - [Tesla gets around 600 orders since India launch, Bloomberg News reports](https://finance.yahoo.com/news/tesla-gets-around-600-orders-050758832.html)
-- Sep 02 - [The herb that can lower your blood pressure and help you sleep](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/herb-lower-blood-pressure-help-140143641.html)
 <!-- feed end -->
 
 ---
