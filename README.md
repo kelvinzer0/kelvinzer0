@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Exclusive-US regulators cancel bank exams as Trump rollback gathers pace](https://www.yahoo.com/news/articles/exclusive-us-regulators-cancel-bank-103458771.html)
-- Sep 02 - [India eyes record cotton buying as imports, US tariffs dampen prices](https://finance.yahoo.com/news/india-eyes-record-cotton-buying-100726732.html)
-- Sep 02 - [Scientists stunned after camera captures entire community of once-thought-extinct species: 'A fairytale in terms of conservation'](https://www.yahoo.com/news/articles/scientists-stunned-camera-captures-entire-100000620.html)
-- Sep 02 - [Exclusive: Justice Amy Coney Barrett defends overturning Roe v. Wade and reveals Supreme Court dynamics in new book](https://www.yahoo.com/news/articles/exclusive-justice-amy-coney-barrett-080005700.html)
-- Sep 02 - [Tesla gets around 600 orders since India launch, Bloomberg News reports](https://finance.yahoo.com/news/tesla-gets-around-600-orders-050758832.html)
+- Sep 02 - [Report: Unauthorized evidence provided to NCAA by former U-M player](https://sports.yahoo.com/article/report-unauthorized-evidence-provided-ncaa-130000238.html)
+- Sep 02 - [One of last D-Day heroes desperate for medal 'to complete' his life before he dies](https://www.yahoo.com/news/videos/one-last-d-day-heroes-125733138.html)
+- Sep 02 - [AI-driven drug discovery picks up as FDA pushes to reduce animal testing](https://www.yahoo.com/news/articles/ai-driven-drug-discovery-picks-125224987.html)
+- Sep 02 - [Texas 11-year-old shot and killed after 'ding dong ditch' prank](https://www.yahoo.com/news/videos/texas-11-old-shot-killed-110023219.html)
+- Sep 02 - [Kiko becomes a hurricane: Hurricane Center watching 3 weather patterns](https://www.yahoo.com/news/articles/kiko-becomes-hurricane-hurricane-center-105046905.html)
 <!-- feed end -->
 
 ---
