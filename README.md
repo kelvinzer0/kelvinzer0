@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Hundreds mourn pro-Western Ukrainian politician who was gunned down in the street](https://www.yahoo.com/news/articles/hundreds-mourn-pro-western-ukrainian-145512199.html)
+- Sep 02 - [Chinese drugmakers prep for looming semaglutide generics horizon](https://finance.yahoo.com/news/chinese-drugmakers-prep-looming-semaglutide-160325527.html)
+- Sep 02 - [Where is Schlumberger Limited (SLB) Headed According to Analysts?](https://finance.yahoo.com/news/where-schlumberger-limited-slb-headed-151302741.html)
+- Sep 02 - [Something Weird Happened That We Can’t Really Explain With Existing Physics](https://www.yahoo.com/news/articles/something-weird-happened-t-really-145900494.html)
 - Sep 02 - [Congress is back in session: 2 things to watch in September](https://finance.yahoo.com/video/congress-back-session-2-things-145359833.html)
 - Sep 02 - [The defunded Corporation for Public Broadcasting will get one of TV's biggest prizes](https://www.yahoo.com/news/articles/defunded-corporation-public-broadcasting-one-142716958.html)
-- Sep 02 - [Trump set to move Space Command headquarters to Alabama from Colorado, sources say](https://www.yahoo.com/news/articles/trump-set-move-space-command-142035987.html)
-- Sep 02 - [Edmonton man charged with first-degree murder after woman found shot in SUV](https://www.yahoo.com/news/articles/edmonton-man-charged-first-degree-135849773.html)
 <!-- feed end -->
 
 ---
