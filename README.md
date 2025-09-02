@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Demiralp: Turkey's Growth Surprising Despite High Rates](https://finance.yahoo.com/video/demiralp-turkeys-growth-surprising-despite-070727633.html)
+- Sep 02 - [France Remains Attractive to Investors, Goldman Says](https://finance.yahoo.com/video/france-remains-attractive-investors-goldman-082605016.html)
+- Sep 02 - [Gavin Newsom Trolls Karoline Leavitt With A Biting New Meme And Nickname](https://www.yahoo.com/news/articles/gavin-newsom-trolls-karoline-leavitt-071516389.html)
 - Sep 02 - [Tesla gets around 600 orders since India launch, Bloomberg News reports](https://finance.yahoo.com/news/tesla-gets-around-600-orders-050758832.html)
 - Sep 02 - [China is showing off its weaponry in a tightly controlled military parade](https://www.yahoo.com/news/articles/china-showing-off-weaponry-tightly-034712377.html)
 - Sep 02 - [Health officials sound alarm after detecting disease across entire state — here's what you need to know](https://www.yahoo.com/news/articles/health-officials-sound-alarm-detecting-030000122.html)
-- Sep 01 - [Experts warn deadly disease returns with spike in number of cases: '1 in 5 people … die, sometimes within a day or two of becoming ill'](https://www.yahoo.com/news/articles/experts-warn-deadly-disease-returns-235000471.html)
 <!-- feed end -->
 
 ---
