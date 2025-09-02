@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Ether Machine raises $654 million in private ether financing as Nasdaq debut nears](https://finance.yahoo.com/news/ether-machine-raises-654-million-100622780.html)
-- Sep 02 - [Belgium moves toward recognizing a Palestinian state, drawing Israeli rebuke](https://www.yahoo.com/news/articles/belgium-moves-toward-recognizing-palestinian-100425970.html)
-- Sep 02 - [How PayPal & other fintech firms are taking share from big banks](https://finance.yahoo.com/video/paypal-other-fintech-firms-taking-100041993.html)
-- Sep 02 - [Malaysia summons TikTok management over delays in tackling fake news, report says](https://www.yahoo.com/news/articles/malaysia-summons-tiktok-management-over-094457440.html)
-- Sep 02 - [Dad and son killed in car crash named by police](https://www.yahoo.com/news/articles/dad-son-killed-car-crash-092431589.html)
+- Sep 02 - [Burkina Faso bans homosexuality with prison terms and fines for offenders](https://www.yahoo.com/news/articles/burkina-faso-bans-homosexuality-prison-102807652.html)
+- Sep 02 - [Gavin Newsom Trolls Karoline Leavitt With A Biting New Meme And Nickname](https://www.yahoo.com/news/articles/gavin-newsom-trolls-karoline-leavitt-071516389.html)
+- Sep 02 - [Ukrainian drone attack forces hundreds to evacuate homes in Russian city](https://www.yahoo.com/news/articles/ukrainian-drone-attack-forces-hundreds-050828963.html)
+- Sep 02 - [Tesla gets around 600 orders since India launch, Bloomberg News reports](https://finance.yahoo.com/news/tesla-gets-around-600-orders-050758832.html)
+- Sep 02 - [The herb that can lower your blood pressure and help you sleep](https://health.yahoo.com/wellness/nutrition/healthy-eating/articles/herb-lower-blood-pressure-help-140143641.html)
 <!-- feed end -->
 
 ---
