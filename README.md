@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 02 - [BitMine Boosts Ethereum Stash Above $8 Billion, Now Holds 1.5% of ETH Supply](https://finance.yahoo.com/news/bitmine-boosts-ethereum-stash-above-184706495.html)
+- Sep 02 - [The former “Meet the Press” host said the White House is pulling the wool over the American people’s eyes.](https://www.yahoo.com/news/videos/former-meet-press-host-said-183525302.html)
+- Sep 02 - [Venezuela's Maduro shows off Huawei phone gifted from China's Xi](https://www.yahoo.com/news/videos/venezuelas-maduro-shows-off-huawei-175525390.html)
 - Sep 02 - [Pentagon authorizes up to 600 military lawyers to serve as temporary immigration judges](https://www.yahoo.com/news/articles/pentagon-authorizes-600-military-lawyers-174905862.html)
 - Sep 02 - [Watch: Trump to make a televised announcement after deluge of social media rumors](https://www.yahoo.com/news/articles/watch-trump-televised-announcement-deluge-172331384.html)
-- Sep 02 - [This Country Was Just Named the Best Place to Retire for Its Cost of Living, Safety, and Sunny Weather](https://www.yahoo.com/lifestyle/articles/country-just-named-best-place-163600885.html)
-- Sep 02 - [Here's the 'number 1' thing US manufacturing needs from Trump](https://finance.yahoo.com/video/heres-number-1-thing-us-173000325.html)
-- Sep 02 - [A common nasal spray may block Covid infection, trial results indicate](https://www.yahoo.com/news/articles/common-nasal-spray-may-block-153043294.html)
 <!-- feed end -->
 
 ---
