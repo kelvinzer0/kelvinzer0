@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Kraft Heinz announces plan to separate into two companies](https://finance.yahoo.com/news/kraft-heinz-announces-plan-separate-133255740.html)
-- Sep 02 - [US Pulls TSMC's Waiver for China Chip Supply Shipments](https://finance.yahoo.com/video/us-pulls-tsmcs-waiver-china-133127456.html)
-- Sep 02 - [One of last D-Day heroes desperate for medal 'to complete' his life before he dies](https://www.yahoo.com/news/videos/one-last-d-day-heroes-125733138.html)
-- Sep 02 - [This Is What Happens to Your Body When You Take Too Many Vitamins](https://health.yahoo.com/wellness/nutrition/vitamins-supplements/articles/happens-body-too-many-vitamins-123000847.html)
-- Sep 02 - [More mothers killed by sons than by strangers](https://www.yahoo.com/news/articles/more-mothers-killed-sons-strangers-102348970.html)
+- Sep 02 - [Hundreds mourn pro-Western Ukrainian politician who was gunned down in the street](https://www.yahoo.com/news/articles/hundreds-mourn-pro-western-ukrainian-145512199.html)
+- Sep 02 - [Congress is back in session: 2 things to watch in September](https://finance.yahoo.com/video/congress-back-session-2-things-145359833.html)
+- Sep 02 - [The defunded Corporation for Public Broadcasting will get one of TV's biggest prizes](https://www.yahoo.com/news/articles/defunded-corporation-public-broadcasting-one-142716958.html)
+- Sep 02 - [Trump set to move Space Command headquarters to Alabama from Colorado, sources say](https://www.yahoo.com/news/articles/trump-set-move-space-command-142035987.html)
+- Sep 02 - [Edmonton man charged with first-degree murder after woman found shot in SUV](https://www.yahoo.com/news/articles/edmonton-man-charged-first-degree-135849773.html)
 <!-- feed end -->
 
 ---
