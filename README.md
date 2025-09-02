@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Dollar under pressure as traders return after Labor Day break](https://finance.yahoo.com/news/dollar-under-pressure-traders-return-010444624.html)
-- Sep 02 - [Body is found in MacArthur Park Lake](https://www.yahoo.com/news/articles/body-found-macarthur-park-lake-005250756.html)
-- Sep 02 - [A Surprising Mathematical Pattern Was Found Hiding in Earth's History](https://www.yahoo.com/news/articles/surprising-mathematical-pattern-found-hiding-001211350.html)
+- Sep 01 - [Experts warn deadly disease returns with spike in number of cases: '1 in 5 people … die, sometimes within a day or two of becoming ill'](https://www.yahoo.com/news/articles/experts-warn-deadly-disease-returns-235000471.html)
 - Sep 01 - [Donald Trump Says $15 Trillion Investment In US Will Be 'Immediately Cancelled!' If Courts Strike Down Tariffs: 'Would Become A Third World Nation'](https://finance.yahoo.com/news/donald-trump-says-15-trillion-233212173.html)
 - Sep 01 - [Ancient human skull discovered in Greece rewrites human evolutionary timeline](https://www.yahoo.com/news/articles/ancient-human-skull-discovered-greece-214731327.html)
+- Sep 01 - [Costco’s new rule takes effect September 1: Everything you need to know](https://www.yahoo.com/news/articles/costco-set-enforce-rule-starting-221559585.html)
+- Sep 01 - [Trump says he's awarding former New York Mayor Rudy Giuliani the Presidential Medal of Freedom](https://www.yahoo.com/news/articles/trump-says-hes-awarding-former-202830159.html)
 <!-- feed end -->
 
 ---
