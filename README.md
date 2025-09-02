@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 02 - [Trump says video showing items thrown from White House is AI after his team indicates it's real](https://www.yahoo.com/news/articles/trump-says-video-showing-items-220312099.html)
-- Sep 02 - [DA won’t charge man pulled over with body in car](https://www.yahoo.com/news/articles/da-won-t-charge-man-212700112.html)
-- Sep 02 - [Trump family amasses billions through cryptocurrency](https://www.yahoo.com/news/videos/trump-family-amasses-billions-cryptocurrency-203031734.html)
+- Sep 02 - [US military strikes alleged 'drug vessel' from Venezuela in Caribbean Sea, 11 killed](https://www.yahoo.com/news/articles/us-military-strikes-alleged-drug-214201004.html)
+- Sep 02 - [N.J. man indicted in beating of dad who family says died trying ‘to protect his baby girl’](https://www.yahoo.com/news/articles/n-j-man-indicted-beating-185945818.html)
+- Sep 02 - [Here’s when housing costs could return to ‘normal’: Redfin](https://www.yahoo.com/news/articles/housing-costs-could-return-normal-201327543.html)
 - Sep 02 - [Gavin Newsom's Petty, 3-Word Response To JD Vance Saying He's Ready To Be President "If, God Forbid, There’s A Terrible Tragedy" Is Going Viral](https://www.yahoo.com/news/articles/gavin-newsoms-petty-3-word-194803294.html)
-- Sep 02 - [Trump says US strike on vessel in Caribbean targeted Venezuela's Tren de Aragua gang, killed 11](https://www.yahoo.com/news/articles/trump-says-us-carried-strike-192632442.html)
 <!-- feed end -->
 
 ---
