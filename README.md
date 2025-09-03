@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [The Republican later explained her emotional early exit.](https://www.yahoo.com/news/videos/republican-later-explained-her-emotional-014324101.html)
+- Sep 03 - ['Front runner' to be North Korea's next supreme leader makes international debut in China](https://www.yahoo.com/news/articles/front-runner-north-koreas-next-014235032.html)
+- Sep 03 - [Here are some things to know about Vogue’s top editor](https://www.yahoo.com/news/videos/things-know-vogue-top-editor-011914202.html)
 - Sep 02 - [Mace leaves meeting with Epstein victims visibly upset](https://www.yahoo.com/news/articles/mace-leaves-meeting-epstein-victims-221623635.html)
 - Sep 02 - [Man charged with murder after a ‘ding dong ditch’ shooting leaves an 11-year-old boy dead](https://www.yahoo.com/news/articles/man-charged-murder-ding-dong-120954498.html)
-- Sep 02 - [NYC mayoral candidate Jim Walden drops out and implores rivals to consolidate against Zohran Mamdani](https://www.yahoo.com/news/articles/nyc-mayoral-candidate-jim-walden-220327326.html)
-- Sep 02 - [Trump says video showing items thrown from White House is AI after his team indicates it's real](https://www.yahoo.com/news/articles/trump-says-video-showing-items-220312099.html)
-- Sep 02 - [Here's How Bruised Donald Trump's Hand Was During The Press Conference Today](https://www.yahoo.com/news/articles/heres-bruised-donald-trumps-hand-212251725.html)
 <!-- feed end -->
 
 ---
