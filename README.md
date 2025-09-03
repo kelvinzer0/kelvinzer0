@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Good Samaritans rescue screaming toddler  from hot car at South Shore shopping plaza, police say](https://www.yahoo.com/news/articles/good-samaritans-rescue-screaming-toddler-200827296.html)
-- Sep 03 - [Vanguard a Quietly Strong Active Manager](https://finance.yahoo.com/video/vanguard-quietly-strong-active-manager-194027627.html)
-- Sep 03 - [ConocoPhillips says it will lay off up to 25% of its workforce, impacting thousands of jobs](https://finance.yahoo.com/news/conocophillips-says-lay-off-25-190330678.html)
+- Sep 03 - [Newsom trolls Trump some more after president calls him ‘incompetent’ and threatens to send troops back to LA](https://www.yahoo.com/news/articles/newsom-trolls-trump-more-president-204656266.html)
+- Sep 03 - [Judge reverses Trump administration's cuts of billions of dollars to Harvard University](https://www.yahoo.com/news/articles/judge-reverses-trump-administrations-cuts-204647354.html)
+- Sep 03 - [Twist revealed as Rudy Giuliani breaks silence on car wreck over domestic violence ‘victim’ he says flagged him down](https://www.yahoo.com/news/articles/twist-revealed-rudy-giuliani-breaks-152910977.html)
 - Sep 03 - [Busted! UFC pirates weep after illegal streaming network with over a billion views gets zapped during global raid](https://sports.yahoo.com/article/busted-ufc-pirates-weep-illegal-190238822.html)
 - Sep 03 - [Trump tells reporter to get a new job over Putin question](https://www.yahoo.com/news/articles/trump-tells-reporter-job-over-174010617.html)
 <!-- feed end -->
