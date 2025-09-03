@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [The suspect in the fatal ‘ding dong ditch’ shooting of an 11-year-old boy is a US Army vet. Here’s what we know](https://www.yahoo.com/news/articles/man-custody-11-old-boy-080006627.html)
-- Sep 03 - [IDF troops kill terrorist throwing concrete blocks during undercover Nablus raid](https://www.yahoo.com/news/articles/idf-troops-kill-terrorist-throwing-182747695.html)
-- Sep 03 - [Epstein Survivor Drops Damning Detail on Friendship With Trump](https://www.yahoo.com/news/articles/epstein-survivor-drops-damning-detail-173243801.html)
-- Sep 03 - [Director Julian Schnabel hits out at boycott calls over Israel](https://www.yahoo.com/news/articles/director-julian-schnabel-hits-boycott-170820173.html)
-- Sep 03 - [Utah's congressional map must be redrawn now, judge rules](https://www.yahoo.com/news/articles/utahs-congressional-map-must-redrawn-170327428.html)
+- Sep 03 - [Good Samaritans rescue screaming toddler  from hot car at South Shore shopping plaza, police say](https://www.yahoo.com/news/articles/good-samaritans-rescue-screaming-toddler-200827296.html)
+- Sep 03 - [Vanguard a Quietly Strong Active Manager](https://finance.yahoo.com/video/vanguard-quietly-strong-active-manager-194027627.html)
+- Sep 03 - [ConocoPhillips says it will lay off up to 25% of its workforce, impacting thousands of jobs](https://finance.yahoo.com/news/conocophillips-says-lay-off-25-190330678.html)
+- Sep 03 - [Busted! UFC pirates weep after illegal streaming network with over a billion views gets zapped during global raid](https://sports.yahoo.com/article/busted-ufc-pirates-weep-illegal-190238822.html)
+- Sep 03 - [Trump tells reporter to get a new job over Putin question](https://www.yahoo.com/news/articles/trump-tells-reporter-job-over-174010617.html)
 <!-- feed end -->
 
 ---
