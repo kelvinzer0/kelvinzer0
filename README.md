@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Bitcoin ETFs Pull $332.7M in a Day as Ethereum Sees $135M Outflows — Rotation Back into BTC?](https://finance.yahoo.com/news/bitcoin-etfs-pull-332-7m-104009462.html)
-- Sep 03 - [Norway Defense Minister on Frigates, Russia, Ukraine](https://finance.yahoo.com/video/norway-defense-minister-frigates-russia-094000438.html)
-- Sep 03 - [Residents devastated as beloved local crocodile 'Big John' suffers gruesome death: 'Words can't express the sadness'](https://www.yahoo.com/news/articles/residents-devastated-beloved-local-crocodile-090000516.html)
-- Sep 03 - [Russia says it will help China overtake the United States on nuclear power](https://www.yahoo.com/news/articles/russia-says-help-china-overtake-071210746.html)
-- Sep 03 - [Laken Snelling, 21, Pleads Not Guilty After Baby Found Dead in Closet, Court Orders Her to Live With Parents](https://www.yahoo.com/entertainment/celebrity/articles/laken-snelling-21-pleads-not-063051502.html)
+- Sep 03 - [Northwestern University professor rushed to Chicago-area hospital after cops call on drones in desperate search](https://www.yahoo.com/news/articles/mystery-northwestern-professor-left-her-193146620.html)
+- Sep 03 - [7 Million Reasons Investors Should Worry About Ford](https://finance.yahoo.com/news/7-million-reasons-investors-worry-112300482.html)
+- Sep 03 - [Keir Starmer backs Angela Rayner over property tax row](https://www.yahoo.com/news/videos/keir-starmer-backs-angela-rayner-111823297.html)
+- Sep 03 - [Gold hits record high as London bullion market confirm digital trial](https://uk.finance.yahoo.com/news/gold-price-record-high-london-bullion-market-digital-trial-111027843.html)
+- Sep 03 - [Researchers make surprising discovery about states that ban plastic shopping bags: 'May be even more effective'](https://www.yahoo.com/news/articles/researchers-surprising-discovery-states-ban-101000526.html)
 <!-- feed end -->
 
 ---
