@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [O’Donnell was stunned after reviewing the audio of Maxwell’s interview with Todd Blanche.](https://www.yahoo.com/news/videos/maxwell-questioned-deputy-attorney-general-093627050.html)
 - Sep 03 - [FTSE 100 LIVE: Stocks rise amid global bond sell-off while gold hits fresh highs](https://uk.finance.yahoo.com/news/ftse-100-live-stocks-rise-amid-global-bond-sell-off-while-gold-hits-fresh-highs-082932996.html)
+- Sep 03 - [IDF kills head of Mujahideen terror group in Gaza, which held Bibas family hostage](https://www.yahoo.com/news/articles/idf-kills-head-mujahideen-terror-082040231.html)
 - Sep 03 - [Russia says it will help China overtake the United States on nuclear power](https://www.yahoo.com/news/articles/russia-says-help-china-overtake-071210746.html)
-- Sep 03 - [World leaders joined China’s military parade in show of solidarity with Beijing](https://www.yahoo.com/news/articles/world-leaders-joined-china-military-070726414.html)
-- Sep 03 - [Laken Snelling, 21, Pleads Not Guilty After Baby Found Dead in Closet, Court Orders Her to Live With Parents](https://www.yahoo.com/entertainment/celebrity/articles/laken-snelling-21-pleads-not-063051502.html)
-- Sep 03 - [2 men robbed at gunpoint in driveway of home in affluent L.A. neighborhood](https://www.yahoo.com/news/articles/2-men-robbed-gunpoint-driveway-044343799.html)
+- Sep 03 - [Donald Trump Fires Off Stark Warning To Xi, Putin And Kim Jong Un: ‘As You Conspire Against Us…’](https://www.yahoo.com/news/articles/donald-trump-fires-off-stark-064336395.html)
 <!-- feed end -->
 
 ---
