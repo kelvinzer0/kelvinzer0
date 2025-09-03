@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Long Bond Selloff Hits Japan as Yields Hit Multi-Decade Highs](https://finance.yahoo.com/video/long-bond-selloff-hits-japan-055208511.html)
+- Sep 03 - [‘I waited 10 months for a routine hospital appointment - then ended up in A&E’](https://www.yahoo.com/news/articles/waited-10-months-routine-hospital-230751164.html)
+- Sep 03 - [Russia says it will help China overtake the United States on nuclear power](https://www.yahoo.com/news/articles/russia-says-help-china-overtake-071210746.html)
 - Sep 03 - [The Republican later explained her emotional early exit.](https://www.yahoo.com/news/videos/republican-later-explained-her-emotional-014324101.html)
 - Sep 03 - ['Front runner' to be North Korea's next supreme leader makes international debut in China](https://www.yahoo.com/news/articles/front-runner-north-koreas-next-014235032.html)
-- Sep 02 - [Mace leaves meeting with Epstein victims visibly upset](https://www.yahoo.com/news/articles/mace-leaves-meeting-epstein-victims-221623635.html)
-- Sep 02 - [Man charged with murder after a ‘ding dong ditch’ shooting leaves an 11-year-old boy dead](https://www.yahoo.com/news/articles/man-charged-murder-ding-dong-120954498.html)
+- Sep 02 - [Paul: Gay CDC official’s ‘lifestyle’ disqualified him from government](https://www.yahoo.com/news/articles/paul-gay-cdc-official-lifestyle-225901072.html)
 <!-- feed end -->
 
 ---
