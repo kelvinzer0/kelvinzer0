@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Tesla Just Published a New "Master Plan" and Um, How Do We Say This](https://finance.yahoo.com/news/tesla-just-published-master-plan-192118158.html)
+- Sep 03 - [Man found dead at Burning Man ID’d as Russian who ‘poured his soul’ into camp](https://www.yahoo.com/news/articles/burning-man-murder-victim-id-214956838.html)
+- Sep 03 - [Idaho attorney general says officers who fatally shot intellectually disabled teen won't be charged](https://www.yahoo.com/news/articles/idaho-attorney-general-says-officers-213031359.html)
+- Sep 03 - [Argentina officials recover missing painting stolen by Nazis and seen in real estate photo](https://www.yahoo.com/news/articles/argentina-officials-recover-missing-painting-193830379.html)
 - Sep 03 - [As Epstein’s survivors demanded justice, Trump fumed that not enough attention was being given to his achievements.](https://www.yahoo.com/news/videos/epstein-survivors-demanded-justice-trump-191655988.html)
-- Sep 03 - [This Taco Tico in Topeka is closing its doors permanently. What we know](https://www.yahoo.com/news/articles/taco-tico-topeka-closing-doors-190436542.html)
-- Sep 03 - [Busted! UFC pirates weep after illegal streaming network with over a billion views gets zapped during global raid](https://sports.yahoo.com/article/busted-ufc-pirates-weep-illegal-190238822.html)
-- Sep 03 - [Trump tells reporter to get a new job over Putin question](https://www.yahoo.com/news/articles/trump-tells-reporter-job-over-174010617.html)
+- Sep 03 - [ConocoPhillips says it will lay off up to 25% of its workforce, impacting thousands of jobs](https://finance.yahoo.com/news/conocophillips-says-lay-off-25-190330678.html)
 <!-- feed end -->
 
 ---
