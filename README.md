@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Argentinian officials forced to fly home from US after Kristi Noem failed to inform them visa ceremony was canceled: report](https://www.yahoo.com/news/articles/argentinian-officials-forced-fly-home-155008998.html)
+- Sep 03 - [Record $1.4 billion Powerball: What winners actually take home](https://www.yahoo.com/lifestyle/articles/record-1-3-billion-powerball-215600707.html)
 - Sep 03 - [US Job Openings Fall to the Lowest in 10 Months](https://finance.yahoo.com/video/us-job-openings-fall-lowest-142011825.html)
 - Sep 03 - [Putin tells Ukraine: End war via talks or I will end it by force](https://www.yahoo.com/news/articles/putin-says-ready-meet-zelenskiy-135532646.html)
-- Sep 03 - [Rebel Republican, leading Epstein push, makes explosive claim about Trump](https://www.yahoo.com/news/articles/rebel-republican-leading-epstein-push-134315463.html)
-- Sep 03 - [Kawhi Leonard reportedly paid $28 million for 'no-show job' with Clippers as way to get around NBA salary cap](https://sports.yahoo.com/nba/article/kawhi-leonard-reportedly-paid-28-million-for-no-show-job-with-clippers-as-way-to-get-around-nba-salary-cap-125651365.html)
-- Sep 03 - [Wisconsin man arrested for 12th OWI following a pursuit](https://www.yahoo.com/news/articles/wisconsin-man-arrested-12th-owi-124713722.html)
+- Sep 03 - [Archaeologists Found 5 Mysterious Bodies Under the Floors of Hitler’s Secret Lair](https://www.yahoo.com/news/articles/archaeologists-found-5-mysterious-bodies-132700308.html)
 <!-- feed end -->
 
 ---
