@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Killer, 88, wrote note asking for forgiveness after smothering ‘wonderful’ wife to death](https://www.yahoo.com/news/articles/killer-88-wrote-note-asking-171426841.html)
 - Sep 03 - [US Job Openings Fall to the Lowest in 10 Months](https://finance.yahoo.com/video/us-job-openings-fall-lowest-142011825.html)
-- Sep 03 - [Hamas prevents evacuation from Gaza City with threats and attacks on civilians](https://www.yahoo.com/news/articles/hamas-prevents-evacuation-gaza-city-140001749.html)
-- Sep 03 - [Putin tells Ukraine: end war via talks or I will end it by force](https://www.yahoo.com/news/articles/putin-says-ready-meet-zelenskiy-135532646.html)
-- Sep 03 - [Damage to Vermeer painting at National Gallery in 1968 attack revealed](https://www.yahoo.com/news/articles/damage-vermeer-painting-national-gallery-131856670.html)
+- Sep 03 - [Putin tells Ukraine: End war via talks or I will end it by force](https://www.yahoo.com/news/articles/putin-says-ready-meet-zelenskiy-135532646.html)
+- Sep 03 - [Rebel Republican, leading Epstein push, makes explosive claim about Trump](https://www.yahoo.com/news/articles/rebel-republican-leading-epstein-push-134315463.html)
+- Sep 03 - [Kawhi Leonard reportedly paid $28 million for 'no-show job' with Clippers as way to get around NBA salary cap](https://sports.yahoo.com/nba/article/kawhi-leonard-reportedly-paid-28-million-for-no-show-job-with-clippers-as-way-to-get-around-nba-salary-cap-125651365.html)
+- Sep 03 - [Wisconsin man arrested for 12th OWI following a pursuit](https://www.yahoo.com/news/articles/wisconsin-man-arrested-12th-owi-124713722.html)
 <!-- feed end -->
 
 ---
