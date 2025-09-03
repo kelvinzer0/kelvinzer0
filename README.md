@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Goldman's Sneader on Asia Business Strategy](https://finance.yahoo.com/video/goldmans-sneader-asia-business-strategy-034224625.html)
+- Sep 03 - [Thai Airways Says Intl Tourist Arrivals Is Growing](https://finance.yahoo.com/video/thai-airways-says-intl-tourist-042929761.html)
+- Sep 03 - [A look at the world leaders joining China's military parade in a show of solidarity with Beijing](https://www.yahoo.com/news/articles/look-world-leaders-joining-chinas-041236832.html)
 - Sep 03 - [The Republican later explained her emotional early exit.](https://www.yahoo.com/news/videos/republican-later-explained-her-emotional-014324101.html)
 - Sep 03 - ['Front runner' to be North Korea's next supreme leader makes international debut in China](https://www.yahoo.com/news/articles/front-runner-north-koreas-next-014235032.html)
-- Sep 02 - [Researchers make stunning discovery after leaving thousands of tiny creatures alone with plastic bag: 'Similar to us eating steak'](https://www.yahoo.com/news/articles/researchers-stunning-discovery-leaving-thousands-235500864.html)
-- Sep 02 - [Mace leaves meeting with Epstein victims visibly upset](https://www.yahoo.com/news/articles/mace-leaves-meeting-epstein-victims-221623635.html)
+- Sep 02 - [Colorado sheriff's deputy disciplined for helping immigration agents resigns, ending lawsuit](https://www.yahoo.com/news/articles/colorado-sheriffs-deputy-disciplined-helping-230018862.html)
 <!-- feed end -->
 
 ---
