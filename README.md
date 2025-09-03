@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [AbbVie (ABBV) Advances Cancer Treatments With Epcoritamab And Mirvetuximab Approvals](https://finance.yahoo.com/news/abbvie-abbv-advances-cancer-treatments-174121571.html)
-- Sep 03 - [Epstein Survivor Drops Damning Detail on Friendship With Trump](https://www.yahoo.com/news/articles/epstein-survivor-drops-damning-detail-173243801.html)
-- Sep 03 - [Construction seen at Dimona site linked to suspected Israeli nuclear program](https://www.yahoo.com/news/articles/construction-seen-dimona-linked-suspected-172103063.html)
 - Sep 03 - [The suspect in the fatal ‘ding dong ditch’ shooting of an 11-year-old boy is a US Army vet. Here’s what we know](https://www.yahoo.com/news/articles/man-custody-11-old-boy-080006627.html)
-- Sep 03 - [Record $1.4 billion Powerball: What winners actually take home](https://www.yahoo.com/lifestyle/articles/record-1-3-billion-powerball-215600707.html)
+- Sep 03 - [IDF troops kill terrorist throwing concrete blocks during undercover Nablus raid](https://www.yahoo.com/news/articles/idf-troops-kill-terrorist-throwing-182747695.html)
+- Sep 03 - [Epstein Survivor Drops Damning Detail on Friendship With Trump](https://www.yahoo.com/news/articles/epstein-survivor-drops-damning-detail-173243801.html)
+- Sep 03 - [Director Julian Schnabel hits out at boycott calls over Israel](https://www.yahoo.com/news/articles/director-julian-schnabel-hits-boycott-170820173.html)
+- Sep 03 - [Utah's congressional map must be redrawn now, judge rules](https://www.yahoo.com/news/articles/utahs-congressional-map-must-redrawn-170327428.html)
 <!-- feed end -->
 
 ---
