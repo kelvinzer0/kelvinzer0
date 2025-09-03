@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Newsom trolls Trump some more after president calls him ‘incompetent’ and threatens to send troops back to LA](https://www.yahoo.com/news/articles/newsom-trolls-trump-more-president-204656266.html)
-- Sep 03 - [Judge reverses Trump administration's cuts of billions of dollars to Harvard University](https://www.yahoo.com/news/articles/judge-reverses-trump-administrations-cuts-204647354.html)
-- Sep 03 - [Twist revealed as Rudy Giuliani breaks silence on car wreck over domestic violence ‘victim’ he says flagged him down](https://www.yahoo.com/news/articles/twist-revealed-rudy-giuliani-breaks-152910977.html)
+- Sep 03 - [Tesla Just Published a New "Master Plan" and Um, How Do We Say This](https://finance.yahoo.com/news/tesla-just-published-master-plan-192118158.html)
+- Sep 03 - [As Epstein’s survivors demanded justice, Trump fumed that not enough attention was being given to his achievements.](https://www.yahoo.com/news/videos/epstein-survivors-demanded-justice-trump-191655988.html)
+- Sep 03 - [This Taco Tico in Topeka is closing its doors permanently. What we know](https://www.yahoo.com/news/articles/taco-tico-topeka-closing-doors-190436542.html)
 - Sep 03 - [Busted! UFC pirates weep after illegal streaming network with over a billion views gets zapped during global raid](https://sports.yahoo.com/article/busted-ufc-pirates-weep-illegal-190238822.html)
 - Sep 03 - [Trump tells reporter to get a new job over Putin question](https://www.yahoo.com/news/articles/trump-tells-reporter-job-over-174010617.html)
 <!-- feed end -->
