@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 02 - [Paul: Gay CDC official’s ‘lifestyle’ disqualified him from government](https://www.yahoo.com/news/articles/paul-gay-cdc-official-lifestyle-225901072.html)
+- Sep 03 - [Goldman's Sneader on Asia Business Strategy](https://finance.yahoo.com/video/goldmans-sneader-asia-business-strategy-034224625.html)
+- Sep 03 - [The Republican later explained her emotional early exit.](https://www.yahoo.com/news/videos/republican-later-explained-her-emotional-014324101.html)
+- Sep 03 - ['Front runner' to be North Korea's next supreme leader makes international debut in China](https://www.yahoo.com/news/articles/front-runner-north-koreas-next-014235032.html)
+- Sep 02 - [Researchers make stunning discovery after leaving thousands of tiny creatures alone with plastic bag: 'Similar to us eating steak'](https://www.yahoo.com/news/articles/researchers-stunning-discovery-leaving-thousands-235500864.html)
 - Sep 02 - [Mace leaves meeting with Epstein victims visibly upset](https://www.yahoo.com/news/articles/mace-leaves-meeting-epstein-victims-221623635.html)
-- Sep 02 - [NYC mayoral candidate Jim Walden drops out and implores rivals to consolidate against Zohran Mamdani](https://www.yahoo.com/news/articles/nyc-mayoral-candidate-jim-walden-220327326.html)
-- Sep 02 - [Trump says video showing items thrown from White House is AI after his team indicates it's real](https://www.yahoo.com/news/articles/trump-says-video-showing-items-220312099.html)
-- Sep 02 - [Central Texas girl attacked by shark on Galveston beach](https://www.yahoo.com/news/articles/central-texas-girl-attacked-shark-211836717.html)
 <!-- feed end -->
 
 ---
