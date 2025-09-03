@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Northwestern University professor rushed to Chicago-area hospital after cops call on drones in desperate search](https://www.yahoo.com/news/articles/mystery-northwestern-professor-left-her-193146620.html)
-- Sep 03 - [7 Million Reasons Investors Should Worry About Ford](https://finance.yahoo.com/news/7-million-reasons-investors-worry-112300482.html)
-- Sep 03 - [Keir Starmer backs Angela Rayner over property tax row](https://www.yahoo.com/news/videos/keir-starmer-backs-angela-rayner-111823297.html)
-- Sep 03 - [Gold hits record high as London bullion market confirm digital trial](https://uk.finance.yahoo.com/news/gold-price-record-high-london-bullion-market-digital-trial-111027843.html)
+- Sep 03 - [Kawhi Leonard reportedly paid $28 million for 'no-show job' with Clippers as way to get around NBA salary cap](https://sports.yahoo.com/nba/article/kawhi-leonard-reportedly-paid-28-million-for-no-show-job-with-clippers-as-way-to-get-around-nba-salary-cap-125651365.html)
+- Sep 03 - [Hot mic picks up Putin and Xi discussing organ transplants and immortality](https://www.yahoo.com/news/articles/hot-mic-picks-putin-xi-114816876.html)
 - Sep 03 - [Researchers make surprising discovery about states that ban plastic shopping bags: 'May be even more effective'](https://www.yahoo.com/news/articles/researchers-surprising-discovery-states-ban-101000526.html)
+- Sep 03 - [National park officials elated as trail cameras capture rare creature moving through forest — here's why it matters](https://www.yahoo.com/news/articles/national-park-officials-elated-trail-100000171.html)
+- Sep 03 - [These 4 restaurants in & around Jackson, MS, fail August health inspections. See why](https://www.yahoo.com/news/articles/4-restaurants-around-jackson-ms-094519991.html)
 <!-- feed end -->
 
 ---
