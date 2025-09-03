@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 03 - [Angela Rayner admits she owes tax on former home](https://www.yahoo.com/news/videos/angela-rayner-admits-she-owes-134111539.html)
+- Sep 03 - [Fed hawk Musalem opens the door to possibility of rate cut](https://finance.yahoo.com/news/fed-hawk-musalem-opens-the-door-to-possibility-of-rate-cut-132533130.html)
 - Sep 03 - [Kawhi Leonard reportedly paid $28 million for 'no-show job' with Clippers as way to get around NBA salary cap](https://sports.yahoo.com/nba/article/kawhi-leonard-reportedly-paid-28-million-for-no-show-job-with-clippers-as-way-to-get-around-nba-salary-cap-125651365.html)
-- Sep 03 - [Hot mic picks up Putin and Xi discussing organ transplants and immortality](https://www.yahoo.com/news/articles/hot-mic-picks-putin-xi-114816876.html)
-- Sep 03 - [Researchers make surprising discovery about states that ban plastic shopping bags: 'May be even more effective'](https://www.yahoo.com/news/articles/researchers-surprising-discovery-states-ban-101000526.html)
-- Sep 03 - [National park officials elated as trail cameras capture rare creature moving through forest — here's why it matters](https://www.yahoo.com/news/articles/national-park-officials-elated-trail-100000171.html)
-- Sep 03 - [These 4 restaurants in & around Jackson, MS, fail August health inspections. See why](https://www.yahoo.com/news/articles/4-restaurants-around-jackson-ms-094519991.html)
+- Sep 03 - [What will winter be like in Minnesota? Here's what the Old Farmer's Almanac predicts for 2025-26](https://www.yahoo.com/news/articles/winter-minnesota-heres-old-farmers-123322427.html)
+- Sep 03 - [More than pageantry, China's military parade shows off new missiles, drones and other equipment](https://www.yahoo.com/news/articles/more-pageantry-chinas-military-parade-112722629.html)
 <!-- feed end -->
 
 ---
