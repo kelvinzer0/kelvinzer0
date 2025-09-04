@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [U.S. Supreme Court poised to resolve clashes over Trump's power](https://www.yahoo.com/news/articles/u-supreme-court-poised-resolve-100253920.html)
 - Sep 04 - [Archive of possible North Korean heir as Kim Jong Un brings daughter to Beijing](https://www.yahoo.com/news/videos/archive-possible-north-korean-heir-080603842.html)
-- Sep 04 - [North Korea wipes traces of Kim Jong Un after Beijing meeting with Putin](https://www.yahoo.com/news/articles/north-korea-wipes-traces-kim-040746564.html)
-- Sep 04 - [Winning numbers drawn for near-record $1.4 billion Powerball jackpot](https://www.yahoo.com/news/articles/powerball-nears-record-1-3-060005391.html)
-- Sep 04 - [Russia says potential military troops deployment in Ukraine unacceptable](https://www.yahoo.com/news/articles/russia-says-potential-military-troops-010836014.html)
-- Sep 03 - [Single Mom Shocked To Owe $11,500 After Parents Tied Her To Their $30,000 HELOC Without Telling Her](https://finance.yahoo.com/news/single-mom-shocked-owe-11-235256061.html)
+- Sep 04 - [Wall Street's Greatest Dividend Stock Makes for a Screaming Buy in September -- and It's a Company 99% of Investors Have Likely Never Heard of Before](https://finance.yahoo.com/news/wall-streets-greatest-dividend-stock-075100189.html)
+- Sep 04 - [Billionaire Stanley Druckenmiller Sold His Entire Stake in Palantir and Has, Once Again, Started Loading Up on This Trillion-Dollar Artificial Intelligence (AI) Stock](https://finance.yahoo.com/news/billionaire-stanley-druckenmiller-sold-entire-070600962.html)
+- Sep 04 - [3 Japan Airlines flights from Hawaii were delayed up to 18 hours after a pilot for one of the flights was found drinking](https://www.yahoo.com/news/articles/3-japan-airlines-flights-hawaii-062501378.html)
 <!-- feed end -->
 
 ---
