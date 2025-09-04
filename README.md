@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 03 - [Man found dead at Burning Man ID’d as Russian who ‘poured his soul’ into camp](https://www.yahoo.com/news/articles/burning-man-murder-victim-id-214956838.html)
-- Sep 03 - [Idaho attorney general says officers who fatally shot intellectually disabled teen won't be charged](https://www.yahoo.com/news/articles/idaho-attorney-general-says-officers-213031359.html)
-- Sep 03 - [Argentina officials recover missing painting stolen by Nazis and seen in real estate photo](https://www.yahoo.com/news/articles/argentina-officials-recover-missing-painting-193830379.html)
-- Sep 03 - [As Epstein’s survivors demanded justice, Trump fumed that not enough attention was being given to his achievements.](https://www.yahoo.com/news/videos/epstein-survivors-demanded-justice-trump-191655988.html)
-- Sep 03 - [ConocoPhillips says it will lay off up to 25% of its workforce, impacting thousands of jobs](https://finance.yahoo.com/news/conocophillips-says-lay-off-25-190330678.html)
+- Sep 04 - [Teen to be tried as adult in carjacking death of mother trying to save son](https://www.yahoo.com/news/articles/teen-tried-adult-carjacking-death-002957122.html)
+- Sep 03 - [Ted Cruz's Fat Joke About Illinois Governor Just Leads To More Humiliation](https://www.yahoo.com/news/articles/ted-cruzs-fat-joke-illinois-233100396.html)
+- Sep 03 - [Scientists 'Stunned' by Discoveries in Great Salt Lake](https://www.yahoo.com/news/articles/scientists-stunned-discoveries-great-salt-225923607.html)
+- Sep 03 - [Ex-Kentucky sheriff charged in judge's killing battled jail staff days after shooting: court records](https://www.yahoo.com/news/articles/ex-kentucky-sheriff-charged-judges-223459596.html)
+- Sep 03 - [People Are Totally Shocked By What This Fox News Doctor Said About The Way Trump Speaks](https://www.yahoo.com/news/articles/aren-t-republicans-embarrassed-fox-200309605.html)
 <!-- feed end -->
 
 ---
