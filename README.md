@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Oil Falls on Concern OPEC+ May Agree to Boost Supply](https://finance.yahoo.com/video/oil-falls-concern-opec-may-055220598.html)
 - Sep 04 - [North Korea wipes traces of Kim Jong Un after Beijing meeting with Putin](https://www.yahoo.com/news/articles/north-korea-wipes-traces-kim-040746564.html)
 - Sep 04 - [Russia says potential military troops deployment in Ukraine unacceptable](https://www.yahoo.com/news/articles/russia-says-potential-military-troops-010836014.html)
-- Sep 03 - [Single Mom Shocked To Owe $11,500 After Parents Tied Her To Their $30,000 HELOC Without Telling Her](https://finance.yahoo.com/news/single-mom-shocked-owe-11-235256061.html)
-- Sep 03 - [Scientists 'Stunned' by Discoveries in Great Salt Lake](https://www.yahoo.com/news/articles/scientists-stunned-discoveries-great-salt-225923607.html)
 - Sep 03 - [Ex-Kentucky sheriff charged in judge's killing battled jail staff days after shooting: court records](https://www.yahoo.com/news/articles/ex-kentucky-sheriff-charged-judges-223459596.html)
+- Sep 03 - [Opinion: Donald Trump Is Going Down—and He Knows It](https://www.yahoo.com/news/articles/opinion-donald-trump-going-down-214803970.html)
 <!-- feed end -->
 
 ---
