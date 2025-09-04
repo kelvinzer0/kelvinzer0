@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Xi tells Slovakia's Fico to help promote China-EU ties](https://www.yahoo.com/news/articles/xi-tells-slovakias-fico-help-065040377.html)
-- Sep 04 - [3 Japan Airlines flights from Hawaii were delayed up to 18 hours after a pilot was found drinking, the 4th such scandal to hit the airline recently](https://www.yahoo.com/news/articles/3-japan-airlines-flights-hawaii-062501378.html)
-- Sep 04 - [Haque: Private Sector is Strong in Saudi Arabia](https://finance.yahoo.com/video/haque-private-sector-strong-saudi-062122105.html)
-- Sep 04 - [Lisbon in shock after funicular crash leaves 15 dead](https://www.yahoo.com/news/articles/three-dead-historic-funicular-railway-185859123.html)
 - Sep 04 - [North Korea wipes traces of Kim Jong Un after Beijing meeting with Putin](https://www.yahoo.com/news/articles/north-korea-wipes-traces-kim-040746564.html)
+- Sep 04 - [Russia says potential military troops deployment in Ukraine unacceptable](https://www.yahoo.com/news/articles/russia-says-potential-military-troops-010836014.html)
+- Sep 03 - [Single Mom Shocked To Owe $11,500 After Parents Tied Her To Their $30,000 HELOC Without Telling Her](https://finance.yahoo.com/news/single-mom-shocked-owe-11-235256061.html)
+- Sep 03 - [Scientists 'Stunned' by Discoveries in Great Salt Lake](https://www.yahoo.com/news/articles/scientists-stunned-discoveries-great-salt-225923607.html)
+- Sep 03 - [Ex-Kentucky sheriff charged in judge's killing battled jail staff days after shooting: court records](https://www.yahoo.com/news/articles/ex-kentucky-sheriff-charged-judges-223459596.html)
 <!-- feed end -->
 
 ---
