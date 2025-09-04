@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [China Eyes Curbs on Stock Speculation](https://finance.yahoo.com/video/china-eyes-curbs-stock-speculation-023655558.html)
 - Sep 04 - [Russia says potential military troops deployment in Ukraine unacceptable](https://www.yahoo.com/news/articles/russia-says-potential-military-troops-010836014.html)
-- Sep 03 - [Hamas calls for UN action as Israel escalates brutal bombardment of Gaza](https://www.yahoo.com/news/articles/hamas-calls-un-action-israel-234910183.html)
+- Sep 03 - [Single Mom Shocked To Owe $11,500 After Parents Tied Her To Their $30,000 HELOC Without Telling Her](https://finance.yahoo.com/news/single-mom-shocked-owe-11-235256061.html)
+- Sep 03 - [Scientists 'Stunned' by Discoveries in Great Salt Lake](https://www.yahoo.com/news/articles/scientists-stunned-discoveries-great-salt-225923607.html)
 - Sep 03 - [Ex-Kentucky sheriff charged in judge's killing battled jail staff days after shooting: court records](https://www.yahoo.com/news/articles/ex-kentucky-sheriff-charged-judges-223459596.html)
-- Sep 03 - [The suspect in the fatal ‘ding dong ditch’ shooting of an 11-year-old boy is a US Army vet. Here’s what we know](https://www.yahoo.com/news/articles/man-custody-11-old-boy-080006627.html)
-- Sep 03 - [Ford Sales Grow in August. It Can’t Build This Expensive SUV Fast Enough.](https://www.barrons.com/articles/ford-sales-august-stock-price-9f206f7a?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ---
