@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [ADP Report Shows Slower US Jobs Growth in August](https://finance.yahoo.com/video/adp-report-shows-slower-us-125724946.html)
 - Sep 04 - [I'm 63 years old, worked hard my entire life, and I just got fired after announcing my retirement. Is that even legal — and what are my options from here?](https://finance.yahoo.com/news/im-63-years-old-worked-104900200.html)
-- Sep 04 - [Soldiers doused with gas, set on fire during mission to destroy cocaine lab](https://www.yahoo.com/news/articles/soldiers-doused-gas-set-fire-103006923.html)
+- Sep 04 - [Meteorologists issue warning as data reveals dire threat that will impact entire continent: 'Will have major repercussions'](https://www.yahoo.com/news/articles/meteorologists-issue-warning-data-reveals-101000791.html)
 - Sep 04 - [3 Japan Airlines flights from Hawaii were delayed up to 18 hours after a pilot for one of the flights was found drinking](https://www.yahoo.com/news/articles/3-japan-airlines-flights-hawaii-062501378.html)
 - Sep 04 - [North Korea wipes traces of Kim Jong Un after Beijing meeting with Putin](https://www.yahoo.com/news/articles/north-korea-wipes-traces-kim-040746564.html)
-- Sep 04 - [Winning numbers drawn for near-record $1.4 billion Powerball jackpot](https://www.yahoo.com/news/articles/powerball-nears-record-1-3-060005391.html)
 <!-- feed end -->
 
 ---
