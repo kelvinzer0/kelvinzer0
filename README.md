@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Teen to be tried as adult in carjacking death of mother trying to save son](https://www.yahoo.com/news/articles/teen-tried-adult-carjacking-death-002957122.html)
-- Sep 03 - [Ted Cruz's Fat Joke About Illinois Governor Just Leads To More Humiliation](https://www.yahoo.com/news/articles/ted-cruzs-fat-joke-illinois-233100396.html)
-- Sep 03 - [Scientists 'Stunned' by Discoveries in Great Salt Lake](https://www.yahoo.com/news/articles/scientists-stunned-discoveries-great-salt-225923607.html)
+- Sep 04 - [Russia says potential military troops deployment in Ukraine unacceptable](https://www.yahoo.com/news/articles/russia-says-potential-military-troops-010836014.html)
+- Sep 03 - [Hamas calls for UN action as Israel escalates brutal bombardment of Gaza](https://www.yahoo.com/news/articles/hamas-calls-un-action-israel-234910183.html)
 - Sep 03 - [Ex-Kentucky sheriff charged in judge's killing battled jail staff days after shooting: court records](https://www.yahoo.com/news/articles/ex-kentucky-sheriff-charged-judges-223459596.html)
-- Sep 03 - [People Are Totally Shocked By What This Fox News Doctor Said About The Way Trump Speaks](https://www.yahoo.com/news/articles/aren-t-republicans-embarrassed-fox-200309605.html)
+- Sep 03 - [The suspect in the fatal ‘ding dong ditch’ shooting of an 11-year-old boy is a US Army vet. Here’s what we know](https://www.yahoo.com/news/articles/man-custody-11-old-boy-080006627.html)
+- Sep 03 - [Ford Sales Grow in August. It Can’t Build This Expensive SUV Fast Enough.](https://www.barrons.com/articles/ford-sales-august-stock-price-9f206f7a?siteid=yhoof2&yptr=yahoo)
 <!-- feed end -->
 
 ---
