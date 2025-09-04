@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Floating oil facility arrives in Venezuela for China Concord's project, sources say](https://finance.yahoo.com/news/floating-oil-facility-arrives-venezuela-162813836.html)
-- Sep 04 - [IDF reveals footage of Hamas's Rafah Brigade dining lavishly underground](https://www.yahoo.com/news/articles/idf-reveals-footage-hamass-rafah-160322967.html)
-- Sep 04 - [Warner to RFK Jr.: How can you be that ignorant?](https://www.yahoo.com/news/videos/warner-rfk-jr-ignorant-154856892.html)
-- Sep 04 - [Famous Liar RFK Jr. Accuses Ousted CDC Director of Lying](https://www.yahoo.com/news/articles/rfk-jr-makes-outlandish-claim-154303011.html)
-- Sep 04 - [Fancy footwork amid ruins: teaching Gaza's children to breakdance](https://www.yahoo.com/news/videos/fancy-footwork-amid-ruins-teaching-153920583.html)
+- Sep 04 - [RFK Jr grilled on Covid, vaccines, and past comments at fiery Senate hearing](https://www.yahoo.com/news/articles/rfk-jr-pressed-vaccines-cdc-133056011.html)
+- Sep 04 - [Shin Bet details explosive UAV plot to assassinate national security minister](https://www.yahoo.com/news/articles/shin-bet-details-explosive-uav-174031370.html)
+- Sep 04 - [What polls show about Americans' views on childhood vaccine mandates](https://www.yahoo.com/news/articles/polls-show-americans-views-childhood-173243276.html)
+- Sep 04 - [Needham Reiterates a Buy Rating on Rivian Automotive (RIVN), Sets a $14 PT](https://finance.yahoo.com/news/needham-reiterates-buy-rating-rivian-171415478.html)
+- Sep 04 - [WSDOT to close both directions of SR 104 for at least 35 days to restore fish habitat](https://www.yahoo.com/news/articles/wsdot-close-both-directions-sr-165655713.html)
 <!-- feed end -->
 
 ---
