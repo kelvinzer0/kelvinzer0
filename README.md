@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Gun store owner says shooter who killed 2 schoolchildren showed no warning signs before attack](https://www.yahoo.com/news/articles/gun-store-owner-says-shooter-193418987.html)
+- Sep 04 - [Scientists raise red flags as iconic US tree species faces worsening crisis: 'Under extraordinary threat'](https://www.yahoo.com/news/articles/scientists-raise-red-flags-iconic-193000097.html)
+- Sep 04 - [Health Secretary RFK Jr. lobs insults back after Senators grill him during raucous hearing](https://www.yahoo.com/news/videos/health-secretary-rfk-jr-lobs-192044165.html)
 - Sep 04 - [RFK Jr. Claims He Can’t Hear as He Falls Apart in Senate Hearing](https://www.yahoo.com/news/articles/rfk-jr-claims-t-hear-174721007.html)
 - Sep 04 - [What polls show about Americans' views on childhood vaccine mandates](https://www.yahoo.com/news/articles/polls-show-americans-views-childhood-173243276.html)
-- Sep 04 - [This Once Popular Texas-Based Mexican Restaurant Chain Is Declaring Bankruptcy](https://finance.yahoo.com/news/once-popular-texas-based-mexican-163111505.html)
-- Sep 04 - [US drops Biden plan to require airlines to pay compensation for disrupted flights](https://finance.yahoo.com/news/us-not-require-airlines-pay-160831827.html)
-- Sep 04 - [IDF reveals footage of Hamas's Rafah Brigade dining lavishly underground](https://www.yahoo.com/news/articles/idf-reveals-footage-hamass-rafah-160322967.html)
 <!-- feed end -->
 
 ---
