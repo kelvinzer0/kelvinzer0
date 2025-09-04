@@ -27,7 +27,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Ukraine’s TB-2 Bayraktar Drones Are Striking Russian Forces Again After A Long Hiatus](https://www.yahoo.com/news/articles/ukraine-tb-2-bayraktar-drones-212851594.html)
+- Sep 04 - [DOJ Responds to Secret Tape of Official Detailing Epstein Files Plan](https://www.yahoo.com/news/articles/doj-responds-secret-tape-official-212627285.html)
 - Sep 04 - [Hand Signal Used to Alert Suspected Domestic Violence, Police Say](https://www.yahoo.com/news/videos/hand-signal-used-alert-suspected-205242651.html)
 - Sep 04 - [Daughter of Nazi officer who stole 'Portrait of a Lady' and her husband charged with cover-up](https://www.yahoo.com/news/articles/daughter-nazi-officer-stole-portrait-201940359.html)
 - Sep 04 - [Gun store owner says shooter who killed 2 schoolchildren showed no warning signs before attack](https://www.yahoo.com/news/articles/gun-store-owner-says-shooter-193418987.html)
