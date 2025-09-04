@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 04 - [Ukraine’s TB-2 Bayraktar Drones Are Striking Russian Forces Again After A Long Hiatus](https://www.yahoo.com/news/articles/ukraine-tb-2-bayraktar-drones-212851594.html)
+- Sep 04 - [Hand Signal Used to Alert Suspected Domestic Violence, Police Say](https://www.yahoo.com/news/videos/hand-signal-used-alert-suspected-205242651.html)
 - Sep 04 - [Daughter of Nazi officer who stole 'Portrait of a Lady' and her husband charged with cover-up](https://www.yahoo.com/news/articles/daughter-nazi-officer-stole-portrait-201940359.html)
 - Sep 04 - [Gun store owner says shooter who killed 2 schoolchildren showed no warning signs before attack](https://www.yahoo.com/news/articles/gun-store-owner-says-shooter-193418987.html)
-- Sep 04 - [Federal government sues California utility, alleging equipment sparked deadly wildfires](https://www.yahoo.com/news/articles/federal-government-sues-california-utility-191012857.html)
-- Sep 04 - [Finally, a European Leader Said Out Loud What All of Them Are Likely Thinking About Trump](https://www.yahoo.com/news/articles/finally-european-leader-said-loud-185739680.html)
-- Sep 04 - [RFK Jr. Claims He Can’t Hear as He Falls Apart in Senate Hearing](https://www.yahoo.com/news/articles/rfk-jr-claims-t-hear-174721007.html)
+- Sep 04 - [Health Secretary RFK Jr. lobs insults back after Senators grill him during raucous hearing](https://www.yahoo.com/news/videos/health-secretary-rfk-jr-lobs-192044165.html)
 <!-- feed end -->
 
 ---
