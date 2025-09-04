@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Brazil's Vale reopens key mine, plans to invest $12 billion in Minas Gerais](https://finance.yahoo.com/news/brazils-vale-reopens-key-mine-145901289.html)
-- Sep 04 - [BREAKING: Heavy federal agency presence at Hyundai facility](https://www.yahoo.com/news/articles/breaking-heavy-federal-agency-presence-135442759.html)
-- Sep 04 - [Barefoot 5-Year-Old Sneaks Out of House to Chick-Fil-A for Breakfast](https://www.yahoo.com/news/videos/barefoot-5-old-sneaks-house-125112278.html)
-- Sep 04 - [I'm 63 years old, worked hard my entire life, and I just got fired after announcing my retirement. Is that even legal — and what are my options from here?](https://finance.yahoo.com/news/im-63-years-old-worked-104900200.html)
+- Sep 04 - [Fancy footwork amid ruins: teaching Gaza's children to breakdance](https://www.yahoo.com/news/videos/fancy-footwork-amid-ruins-teaching-153920583.html)
 - Sep 04 - [Soldiers doused with gas, set on fire during mission to destroy cocaine lab](https://www.yahoo.com/news/articles/soldiers-doused-gas-set-fire-103006923.html)
+- Sep 04 - [Kennedy: 'I don't think anybody knows' how many Americans died of Covid](https://www.yahoo.com/news/videos/kennedy-dont-think-anybody-knows-152213459.html)
+- Sep 04 - [Bryan Norcross: Watching islands as disturbance Invest 91L plods across tropical belt](https://www.yahoo.com/news/articles/bryan-norcross-watching-islands-disturbance-135406013.html)
+- Sep 04 - [New Jersey teacher, 37, pleads guilty to sexually assaulting 2 students](https://www.yahoo.com/news/articles/jersey-teacher-37-pleads-guilty-123023734.html)
 <!-- feed end -->
 
 ---
