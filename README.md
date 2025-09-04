@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [ADP Report Shows Slower US Jobs Growth in August](https://finance.yahoo.com/video/adp-report-shows-slower-us-125724946.html)
+- Sep 04 - [Locals inspect site where Israeli strikes hit equipment intended for reconstruction in south Lebanon](https://www.yahoo.com/news/videos/locals-inspect-where-israeli-strikes-133558573.html)
+- Sep 04 - [Citi Hands BlackRock $80B Assets in Wealth Deal](https://finance.yahoo.com/video/citi-hands-blackrock-80b-assets-132859082.html)
+- Sep 04 - [He also showed concern that Americans are at risk of growing an extra ear.](https://www.yahoo.com/news/videos/showed-concern-americans-risk-growing-111328895.html)
 - Sep 04 - [I'm 63 years old, worked hard my entire life, and I just got fired after announcing my retirement. Is that even legal — and what are my options from here?](https://finance.yahoo.com/news/im-63-years-old-worked-104900200.html)
-- Sep 04 - [Meteorologists issue warning as data reveals dire threat that will impact entire continent: 'Will have major repercussions'](https://www.yahoo.com/news/articles/meteorologists-issue-warning-data-reveals-101000791.html)
-- Sep 04 - [3 Japan Airlines flights from Hawaii were delayed up to 18 hours after a pilot for one of the flights was found drinking](https://www.yahoo.com/news/articles/3-japan-airlines-flights-hawaii-062501378.html)
-- Sep 04 - [North Korea wipes traces of Kim Jong Un after Beijing meeting with Putin](https://www.yahoo.com/news/articles/north-korea-wipes-traces-kim-040746564.html)
+- Sep 04 - [Exclusive: RFK Jr. and the White House buried a major study on alcohol and cancer. Here’s what it shows.](https://www.yahoo.com/news/articles/exclusive-rfk-jr-white-house-101500125.html)
 <!-- feed end -->
 
 ---
