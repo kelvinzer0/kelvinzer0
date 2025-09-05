@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Father of man found dead at Burning Man breaks silence after homicide investigation launched](https://www.yahoo.com/news/articles/father-man-found-dead-burning-113620975.html)
+- Sep 05 - [Germany opened its doors to 1 million refugees a decade ago. Here’s how the country has changed since](https://www.yahoo.com/news/articles/germany-opened-doors-1-million-102839355.html)
+- Sep 05 - [Toothpaste becomes battleground as US-India tensions spill into company ads](https://finance.yahoo.com/news/toothpaste-becomes-battleground-us-india-094710064.html)
 - Sep 05 - [Fishermen stunned after reeling in shark with never-before-seen mutations: 'We saw an orange glow below the water'](https://www.yahoo.com/news/articles/fishermen-stunned-reeling-shark-never-085000955.html)
-- Sep 05 - [Fact Check: Doctored image of Trump spreads online amid health concerns](https://www.yahoo.com/news/articles/fact-check-doctored-image-trump-013000878.html)
-- Sep 04 - [Country Singer Torches Pastor Joel Osteen For Seemingly Refusing To Preach True Gospel To Congreation](https://www.yahoo.com/entertainment/celebrity/articles/country-singer-torches-pastor-joel-223000069.html)
-- Sep 04 - [Daughter of Nazi officer who stole 'Portrait of a Lady' and her husband charged with cover-up](https://www.yahoo.com/news/articles/daughter-nazi-officer-stole-portrait-201940359.html)
-- Sep 04 - [Gun store owner says shooter who killed 2 schoolchildren showed no warning signs before attack](https://www.yahoo.com/news/articles/gun-store-owner-says-shooter-193418987.html)
+- Sep 05 - [Germany's Hansgrohe plans to quadruple India production as China sales slow](https://finance.yahoo.com/news/germanys-hansgrohe-plans-quadruple-india-065905920.html)
 <!-- feed end -->
 
 ---
