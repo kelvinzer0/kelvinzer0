@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [India will continue to buy Russian oil despite US tariffs, finance minister says](https://finance.yahoo.com/news/india-continue-buy-russian-oil-125754210.html)
-- Sep 05 - [Did you feel it? Late night earthquake rumbles RI. What to know.](https://www.yahoo.com/news/articles/did-feel-night-earthquake-rumbles-125418521.html)
-- Sep 05 - [Billionaire David Tepper Sold Broadcom and Meta Stocks and Is Piling Into This Specialized AI Chipmaker Instead](https://finance.yahoo.com/news/billionaire-david-tepper-sold-broadcom-120000589.html)
-- Sep 05 - [Germany opened its doors to 1 million refugees a decade ago. Here’s how the country has changed since](https://www.yahoo.com/news/articles/germany-opened-doors-1-million-102839355.html)
-- Sep 05 - [Toothpaste becomes battleground as US-India tensions spill into company ads](https://finance.yahoo.com/news/toothpaste-becomes-battleground-us-india-094710064.html)
+- Sep 05 - [Sam Altman Says He's Suddenly Worried Dead Internet Theory Is Coming True](https://www.yahoo.com/news/articles/sam-altman-says-hes-suddenly-120014876.html)
+- Sep 05 - [Hamas releases video of Israeli hostages held in Gaza](https://www.yahoo.com/news/articles/hamas-releases-video-israeli-hostages-114211210.html)
+- Sep 05 - [I’m about to inherit a lot of money. How do I make sure my husband doesn’t get any of it?](https://finance.yahoo.com/news/m-inherit-lot-money-sure-113000698.html)
+- Sep 05 - [Scientists Find Eating This Vegetable Significantly Cuts Colon Cancer Risk](https://www.yahoo.com/news/articles/scientists-eating-vegetable-significantly-cuts-113000596.html)
+- Sep 05 - [Angela Rayner resigns - live: Starmer's Labour reshuffle underway after deputy PM quits](https://www.yahoo.com/news/live/angela-rayner-resigns-live-updates-house-stamp-duty-hove-110559111.html)
 <!-- feed end -->
 
 ---
