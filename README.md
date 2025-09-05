@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 05 - [Fishermen stunned after reeling in shark with never-before-seen mutations: 'We saw an orange glow below the water'](https://www.yahoo.com/news/articles/fishermen-stunned-reeling-shark-never-085000955.html)
-- Sep 05 - [The president looked to the first lady, 24 years his junior, for assistance after a question didn’t register.](https://www.yahoo.com/news/videos/president-looked-first-lady-24-022326816.html)
 - Sep 05 - [Fact Check: Doctored image of Trump spreads online amid health concerns](https://www.yahoo.com/news/articles/fact-check-doctored-image-trump-013000878.html)
+- Sep 04 - [Country Singer Torches Pastor Joel Osteen For Seemingly Refusing To Preach True Gospel To Congreation](https://www.yahoo.com/entertainment/celebrity/articles/country-singer-torches-pastor-joel-223000069.html)
 - Sep 04 - [Daughter of Nazi officer who stole 'Portrait of a Lady' and her husband charged with cover-up](https://www.yahoo.com/news/articles/daughter-nazi-officer-stole-portrait-201940359.html)
-- Sep 04 - [Local man dies after jumping cliff at Nelson Ledges](https://www.yahoo.com/news/articles/local-man-dies-jumping-cliff-201854944.html)
+- Sep 04 - [Gun store owner says shooter who killed 2 schoolchildren showed no warning signs before attack](https://www.yahoo.com/news/articles/gun-store-owner-says-shooter-193418987.html)
 <!-- feed end -->
 
 ---
