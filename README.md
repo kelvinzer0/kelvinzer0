@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [A deadly strike marks a moment in Rubio's long desire to confront Venezuela](https://www.yahoo.com/news/articles/deadly-strike-marks-moment-rubios-040451419.html)
-- Sep 05 - [The president looked to the first lady, 24 years his junior, for assistance after a question didn’t register.](https://www.yahoo.com/news/videos/president-looked-first-lady-24-022326816.html)
+- Sep 05 - [Theo Von Responds to Druski Whiteface Skit, Teases His Own Version: ‘I Feel a Jheri Curl Coming On‘](https://www.yahoo.com/entertainment/celebrity/articles/theo-von-responds-druski-whiteface-042556729.html)
 - Sep 05 - [Fact Check: Doctored image of Trump spreads online amid health concerns](https://www.yahoo.com/news/articles/fact-check-doctored-image-trump-013000878.html)
-- Sep 04 - [Meet the Skyrocketing Artificial Intelligence (AI) Stock That's Leaving Nvidia in the Dust](https://finance.yahoo.com/news/meet-skyrocketing-artificial-intelligence-ai-231400249.html)
-- Sep 04 - [Daughter of Nazi officer who stole 'Portrait of a Lady' and her husband charged with cover-up](https://www.yahoo.com/news/articles/daughter-nazi-officer-stole-portrait-201940359.html)
+- Sep 04 - [Country Singer Torches Pastor Joel Osteen For Seemingly Refusing To Preach True Gospel To Congreation](https://www.yahoo.com/entertainment/celebrity/articles/country-singer-torches-pastor-joel-223000069.html)
+- Sep 04 - [The undercover sting came amid the ongoing firestorm over Jeffrey Epstein.](https://www.yahoo.com/news/videos/undercover-sting-came-amid-ongoing-212859895.html)
+- Sep 04 - [Hand Signal Used to Alert Suspected Domestic Violence, Police Say](https://www.yahoo.com/news/videos/hand-signal-used-alert-suspected-205242651.html)
 <!-- feed end -->
 
 ---
