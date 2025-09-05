@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Father of man found dead at Burning Man breaks silence after homicide investigation launched](https://www.yahoo.com/news/articles/father-man-found-dead-burning-113620975.html)
+- Sep 05 - [India will continue to buy Russian oil despite US tariffs, finance minister says](https://finance.yahoo.com/news/india-continue-buy-russian-oil-125754210.html)
+- Sep 05 - [Did you feel it? Late night earthquake rumbles RI. What to know.](https://www.yahoo.com/news/articles/did-feel-night-earthquake-rumbles-125418521.html)
+- Sep 05 - [Billionaire David Tepper Sold Broadcom and Meta Stocks and Is Piling Into This Specialized AI Chipmaker Instead](https://finance.yahoo.com/news/billionaire-david-tepper-sold-broadcom-120000589.html)
 - Sep 05 - [Germany opened its doors to 1 million refugees a decade ago. Here’s how the country has changed since](https://www.yahoo.com/news/articles/germany-opened-doors-1-million-102839355.html)
 - Sep 05 - [Toothpaste becomes battleground as US-India tensions spill into company ads](https://finance.yahoo.com/news/toothpaste-becomes-battleground-us-india-094710064.html)
-- Sep 05 - [Fishermen stunned after reeling in shark with never-before-seen mutations: 'We saw an orange glow below the water'](https://www.yahoo.com/news/articles/fishermen-stunned-reeling-shark-never-085000955.html)
-- Sep 05 - [Germany's Hansgrohe plans to quadruple India production as China sales slow](https://finance.yahoo.com/news/germanys-hansgrohe-plans-quadruple-india-065905920.html)
 <!-- feed end -->
 
 ---
