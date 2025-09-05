@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Family is mourning 21-year-old daughter ‘taken far too soon’ in a devastating N.J. crash](https://www.yahoo.com/news/articles/family-mourning-21-old-daughter-175350205.html)
-- Sep 05 - [‘Not a great American’: Trump suggests he will revoke celebrity’s citizenship](https://www.yahoo.com/news/articles/not-great-american-trump-suggests-155702358.html)
-- Sep 05 - [Kennedy to link Tylenol use in pregnancy to autism, WSJ reports](https://www.yahoo.com/news/articles/kennedy-hhs-tylenol-pregnancy-autism-175002163.html)
-- Sep 05 - [Coast Guard seizes huge haul of cocaine, releases image of burning boat](https://www.yahoo.com/news/articles/coast-guard-seizes-huge-haul-164552209.html)
-- Sep 05 - ['I fault myself for not paying more attention,' Conoco CEO tells employees facing deep job cuts](https://finance.yahoo.com/news/fault-myself-not-paying-more-170657122.html)
+- Sep 05 - [Bryan Kohberger's Motive? Classmate Tells Police Why She Believes He Murdered 4 Idaho Students](https://www.yahoo.com/news/articles/bryan-kohbergers-motive-classmate-tells-212722217.html)
+- Sep 05 - [Exclusive-Bill Pulte accused Fed Governor Lisa Cook of fraud. His relatives filed housing claims similar to hers](https://www.yahoo.com/news/articles/exclusive-bill-pulte-accused-fed-210312352.html)
+- Sep 05 - [Hurricane forecasters rapidly adjust outlook for distant system](https://www.yahoo.com/news/articles/hurricane-forecasters-rapidly-adjust-outlook-200201880.html)
+- Sep 05 - [A Sitting Senator Just Went Full Mask-Off White Nationalist](https://www.yahoo.com/news/articles/sitting-senator-just-went-full-200040747.html)
+- Sep 05 - [The Most Unlikely Symbol Of Resistance Is Popping Up ALL Over Washington DC, And I Really Don't Think You'll Be Able To Guess It](https://www.yahoo.com/news/articles/donald-trump-definitely-not-going-185636150.html)
 <!-- feed end -->
 
 ---
