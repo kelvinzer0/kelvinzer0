@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [How Kevin O’Leary’s $500K Retirement Plan Works](https://finance.yahoo.com/news/kevin-o-leary-500k-retirement-145307390.html)
+- Sep 05 - [Early morning Salisbury house fire claims lives of elderly husband and wife](https://www.yahoo.com/news/articles/early-morning-salisbury-house-fire-141553613.html)
+- Sep 05 - [Scientists tap 'secret' fresh water under the ocean, raising hopes for a thirsty world](https://www.yahoo.com/news/articles/scientists-tap-secret-fresh-water-130141751.html)
+- Sep 05 - [India will continue to buy Russian oil despite US tariffs, finance minister says](https://finance.yahoo.com/news/india-continue-buy-russian-oil-125754700.html)
 - Sep 05 - [Sam Altman Says He's Suddenly Worried Dead Internet Theory Is Coming True](https://www.yahoo.com/news/articles/sam-altman-says-hes-suddenly-120014876.html)
-- Sep 05 - [Hamas releases video of Israeli hostages held in Gaza](https://www.yahoo.com/news/articles/hamas-releases-video-israeli-hostages-114211210.html)
-- Sep 05 - [Scientists Find Eating This Vegetable Significantly Cuts Colon Cancer Risk](https://www.yahoo.com/news/articles/scientists-eating-vegetable-significantly-cuts-113000596.html)
-- Sep 05 - [Labour reshuffle - live: David Lammy becomes deputy PM after Rayner quits](https://www.yahoo.com/news/live/angela-rayner-resigns-live-updates-house-stamp-duty-hove-110559111.html)
+- Sep 05 - [General Hospital Spoilers Preview September 5: Jason Comes Under Fire – Again – as an Assassin Closes In](https://www.yahoo.com/entertainment/tv/articles/general-hospital-spoilers-preview-september-114823214.html)
 <!-- feed end -->
 
 ---
