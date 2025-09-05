@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 04 - [Fruita PD arrests woman accused of providing drugs that resulted in 1 death](https://www.yahoo.com/news/articles/fruita-pd-arrests-woman-accused-215812594.html)
+- Sep 05 - [Fact Check: Doctored image of Trump spreads online amid health concerns](https://www.yahoo.com/news/articles/fact-check-doctored-image-trump-013000878.html)
+- Sep 04 - [Country Singer Torches Pastor Joel Osteen For Seemingly Refusing To Preach True Gospel To Congreation](https://www.yahoo.com/entertainment/celebrity/articles/country-singer-torches-pastor-joel-223000069.html)
+- Sep 04 - [Jury convicts Florida matriarch in murder-for-hire killing of her former son-in-law](https://www.yahoo.com/news/articles/jury-begins-deliberations-trial-florida-214409459.html)
 - Sep 04 - [Daughter of Nazi officer who stole 'Portrait of a Lady' and her husband charged with cover-up](https://www.yahoo.com/news/articles/daughter-nazi-officer-stole-portrait-201940359.html)
 - Sep 04 - [Gun store owner says shooter who killed 2 schoolchildren showed no warning signs before attack](https://www.yahoo.com/news/articles/gun-store-owner-says-shooter-193418987.html)
-- Sep 04 - [Health Secretary RFK Jr. lobs insults back after Senators grill him during raucous hearing](https://www.yahoo.com/news/videos/health-secretary-rfk-jr-lobs-192044165.html)
-- Sep 04 - [Federal government sues California utility, alleging equipment sparked deadly wildfires](https://www.yahoo.com/news/articles/federal-government-sues-california-utility-191012857.html)
 <!-- feed end -->
 
 ---
