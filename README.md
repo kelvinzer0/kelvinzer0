@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [CBS Changes ‘Face the Nation’ Editing Policy After Kristi Noem Interview](https://www.yahoo.com/news/articles/cbs-changes-face-nation-editing-160608149.html)
-- Sep 05 - [Will Invest 91L become the Atlantic’s second hurricane of the season?](https://www.yahoo.com/news/articles/invest-91l-become-atlantic-second-155022606.html)
-- Sep 05 - [Scientists tap 'secret' fresh water under the ocean, raising hopes for a thirsty world](https://www.yahoo.com/news/articles/scientists-tap-secret-fresh-water-130141751.html)
-- Sep 05 - [India will continue to buy Russian oil despite US tariffs, finance minister says](https://finance.yahoo.com/news/india-continue-buy-russian-oil-125754700.html)
-- Sep 05 - [Egypt vows to block Palestinian displacement, hardens rhetoric on Gaza](https://www.yahoo.com/news/articles/egypt-vows-block-palestinian-displacement-121330358.html)
+- Sep 05 - [Rogan hit Maron where it hurts, suggesting his cats are the reason the podcaster called him out for “humanizing fascism.”](https://www.yahoo.com/news/videos/rogan-hit-maron-where-hurts-164625082.html)
+- Sep 05 - [‘Not a great American’: Trump suggests he will revoke celebrity’s citizenship](https://www.yahoo.com/news/articles/not-great-american-trump-suggests-155702358.html)
+- Sep 05 - [Gaza high-rise building collapses into cloud of smoke after being hit by Israeli strike](https://www.yahoo.com/news/videos/gaza-high-rise-building-collapses-152516153.html)
+- Sep 05 - [Jobs slowdown seals Fed rate cut as White House criticizes Powell for not acting sooner](https://finance.yahoo.com/news/jobs-slowdown-seals-fed-rate-cut-as-white-house-criticizes-powell-for-not-acting-sooner-150805909.html)
+- Sep 05 - [Mechanics Reveal the Top Car Brand Worth Buying in 2025](https://autos.yahoo.com/deals-and-buying-guides/articles/mechanics-reveal-top-car-brand-143015312.html)
 <!-- feed end -->
 
 ---
