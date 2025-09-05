@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [I’m about to inherit a lot of money. How do I make sure my husband doesn’t get any of it?](https://finance.yahoo.com/news/m-inherit-lot-money-sure-113000698.html)
 - Sep 05 - [‘Not a great American’: Trump suggests he will revoke celebrity’s citizenship](https://www.yahoo.com/news/articles/not-great-american-trump-suggests-155702358.html)
+- Sep 05 - [UTEP professor, government watchdog Grossman arrested on family violence charge](https://www.yahoo.com/news/articles/utep-professor-government-watchdog-grossman-180608329.html)
+- Sep 05 - [Kennedy to link Tylenol use in pregnancy to autism, WSJ reports](https://www.yahoo.com/news/articles/kennedy-hhs-tylenol-pregnancy-autism-175002163.html)
 - Sep 05 - [Coast Guard seizes huge haul of cocaine, releases image of burning boat](https://www.yahoo.com/news/articles/coast-guard-seizes-huge-haul-164552209.html)
-- Sep 05 - [Rogan hit Maron where it hurts, suggesting his cats are the reason the podcaster called him out for “humanizing fascism.”](https://www.yahoo.com/news/videos/rogan-hit-maron-where-hurts-164625082.html)
-- Sep 05 - [CBS Changes ‘Face the Nation’ Editing Policy After Kristi Noem Interview](https://www.yahoo.com/news/articles/cbs-changes-face-nation-editing-160608149.html)
-- Sep 05 - [What It Means If You See A Home With A Red Porch Light](https://www.yahoo.com/lifestyle/articles/means-see-home-red-porch-160454981.html)
 <!-- feed end -->
 
 ---
