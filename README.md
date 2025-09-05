@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 05 - [Someone could win $1.8B Powerball jackpot Saturday. Odds are their identity will remain a mystery](https://www.yahoo.com/news/articles/someone-could-win-1-8b-215433634.html)
 - Sep 05 - [Bryan Kohberger's Motive? Classmate Tells Police Why She Believes He Murdered 4 Idaho Students](https://www.yahoo.com/news/articles/bryan-kohbergers-motive-classmate-tells-212722217.html)
-- Sep 05 - [Exclusive-Bill Pulte accused Fed Governor Lisa Cook of fraud. His relatives filed housing claims similar to hers](https://www.yahoo.com/news/articles/exclusive-bill-pulte-accused-fed-210312352.html)
-- Sep 05 - [Hurricane forecasters rapidly adjust outlook for distant system](https://www.yahoo.com/news/articles/hurricane-forecasters-rapidly-adjust-outlook-200201880.html)
+- Sep 05 - [Neurosurgeon says there are 'rays of hope’ for girl critically hurt in Minneapolis church shooting](https://www.yahoo.com/news/articles/neurosurgeon-says-rays-hope-girl-211545743.html)
 - Sep 05 - [A Sitting Senator Just Went Full Mask-Off White Nationalist](https://www.yahoo.com/news/articles/sitting-senator-just-went-full-200040747.html)
-- Sep 05 - [The Most Unlikely Symbol Of Resistance Is Popping Up ALL Over Washington DC, And I Really Don't Think You'll Be Able To Guess It](https://www.yahoo.com/news/articles/donald-trump-definitely-not-going-185636150.html)
+- Sep 05 - [Meteorologist Wren Clair is out at KARE 11, sports director Reggie Wilson’s position is ‘being eliminated’](https://www.yahoo.com/news/articles/meteorologist-wren-clair-kare-11-190000668.html)
 <!-- feed end -->
 
 ---
