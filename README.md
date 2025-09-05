@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 05 - [Rogan hit Maron where it hurts, suggesting his cats are the reason the podcaster called him out for “humanizing fascism.”](https://www.yahoo.com/news/videos/rogan-hit-maron-where-hurts-164625082.html)
 - Sep 05 - [‘Not a great American’: Trump suggests he will revoke celebrity’s citizenship](https://www.yahoo.com/news/articles/not-great-american-trump-suggests-155702358.html)
-- Sep 05 - [Gaza high-rise building collapses into cloud of smoke after being hit by Israeli strike](https://www.yahoo.com/news/videos/gaza-high-rise-building-collapses-152516153.html)
-- Sep 05 - [Jobs slowdown seals Fed rate cut as White House criticizes Powell for not acting sooner](https://finance.yahoo.com/news/jobs-slowdown-seals-fed-rate-cut-as-white-house-criticizes-powell-for-not-acting-sooner-150805909.html)
-- Sep 05 - [Mechanics Reveal the Top Car Brand Worth Buying in 2025](https://autos.yahoo.com/deals-and-buying-guides/articles/mechanics-reveal-top-car-brand-143015312.html)
+- Sep 05 - [Coast Guard seizes huge haul of cocaine, releases image of burning boat](https://www.yahoo.com/news/articles/coast-guard-seizes-huge-haul-164552209.html)
+- Sep 05 - [Rogan hit Maron where it hurts, suggesting his cats are the reason the podcaster called him out for “humanizing fascism.”](https://www.yahoo.com/news/videos/rogan-hit-maron-where-hurts-164625082.html)
+- Sep 05 - [CBS Changes ‘Face the Nation’ Editing Policy After Kristi Noem Interview](https://www.yahoo.com/news/articles/cbs-changes-face-nation-editing-160608149.html)
+- Sep 05 - [What It Means If You See A Home With A Red Porch Light](https://www.yahoo.com/lifestyle/articles/means-see-home-red-porch-160454981.html)
 <!-- feed end -->
 
 ---
