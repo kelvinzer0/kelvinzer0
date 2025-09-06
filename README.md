@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Sudanese villagers dig with hands to reach landslide victims, group says](https://www.yahoo.com/news/articles/villagers-hands-reach-victims-buried-110242322.html)
+- Sep 06 - [A Missouri man has battled the city over his sunflowers for 4 years — says he won't ‘quit this fight.’ Here's the issue](https://www.yahoo.com/news/articles/missouri-man-battled-city-over-133000893.html)
+- Sep 06 - [I’m about to inherit a lot of money. How do I make sure my husband doesn’t get any of it?](https://finance.yahoo.com/news/m-inherit-lot-money-sure-113000698.html)
 - Sep 06 - [Your 2026 Social Security Raise Is Set for a "Trump Bump" -- Here's How Much Extra You Can Expect](https://finance.yahoo.com/news/2026-social-security-raise-set-074400064.html)
 - Sep 06 - [Hezbollah says Lebanon move on army plan is 'opportunity,' urges Israel to commit to ceasefire](https://www.yahoo.com/news/articles/hezbollah-official-reuters-cabinet-move-070957986.html)
 - Sep 06 - [Mike Johnson Drops Bombshell About What Trump Really Knew About Epstein](https://www.yahoo.com/news/articles/mike-johnson-drops-bombshell-trump-010622538.html)
-- Sep 06 - [Japan's Prince Hisahito is the first male royal to reach adulthood in 40 years. He may be the last](https://www.yahoo.com/news/articles/japans-prince-hisahito-first-male-010135706.html)
 <!-- feed end -->
 
 ---
