@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Woman bashed in head with mini baseball bat on NYC subway: NYPD](https://www.yahoo.com/news/articles/woman-bashed-head-mini-baseball-032100301.html)
 - Sep 06 - [Japan's Prince Hisahito is the first male royal to reach adulthood in 40 years. He may be the last](https://www.yahoo.com/news/articles/japans-prince-hisahito-first-male-010135706.html)
 - Sep 05 - [What to do immediately after winning the Powerball jackpot, according to experts](https://www.yahoo.com/lifestyle/articles/immediately-winning-powerball-jackpot-according-225737836.html)
 - Sep 05 - [Trump seeking ways to take over 9/11 memorial in NYC](https://www.yahoo.com/news/articles/trump-seeking-ways-over-9-225213114.html)
+- Sep 05 - [Bryan Kohberger's Motive? Classmate Tells Police Why She Believes He Murdered 4 Idaho Students](https://www.yahoo.com/news/articles/bryan-kohbergers-motive-classmate-tells-212722217.html)
 - Sep 05 - [Neurosurgeon says there are 'rays of hope’ for girl critically hurt in Minneapolis church shooting](https://www.yahoo.com/news/articles/neurosurgeon-says-rays-hope-girl-211545743.html)
 <!-- feed end -->
 
