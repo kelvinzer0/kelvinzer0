@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [How a lone protester defied Xi’s ‘fascist’ China – after fleeing to Britain](https://www.yahoo.com/news/articles/lone-protester-defied-xi-fascist-093311386.html)
+- Sep 06 - [Ethereum: Can It Be a Long-Term Winner?](https://finance.yahoo.com/news/ethereum-long-term-winner-111500825.html)
 - Sep 06 - [Your 2026 Social Security Raise Is Set for a "Trump Bump" -- Here's How Much Extra You Can Expect](https://finance.yahoo.com/news/2026-social-security-raise-set-074400064.html)
-- Sep 06 - [Japan's Prince Hisahito is the first male royal to reach adulthood in 40 years. He may be the last](https://www.yahoo.com/news/articles/japans-prince-hisahito-first-male-010135706.html)
-- Sep 05 - [Trump seeking ways to take over 9/11 memorial in NYC](https://www.yahoo.com/news/articles/trump-seeking-ways-over-9-225213114.html)
-- Sep 05 - [Major freeway closures set to snarl weekend traffic across Southern California](https://www.yahoo.com/news/articles/major-freeway-closures-set-snarl-223057867.html)
+- Sep 06 - [Storm lights up Las Vegas with continuous lightning strikes](https://www.yahoo.com/news/articles/storm-lights-las-vegas-continuous-053927705.html)
+- Sep 06 - [New Tesla model turns heads after hitting showrooms: '[People] swarmed into a Tesla store'](https://autos.yahoo.com/ev-and-future-tech/articles/tesla-model-turns-heads-hitting-014500450.html)
+- Sep 06 - [Mike Johnson Drops Bombshell About What Trump Really Knew About Epstein](https://www.yahoo.com/news/articles/mike-johnson-drops-bombshell-trump-010622538.html)
 <!-- feed end -->
 
 ---
