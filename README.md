@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [New Tesla model turns heads after hitting showrooms: '[People] swarmed into a Tesla store'](https://autos.yahoo.com/ev-and-future-tech/articles/tesla-model-turns-heads-hitting-014500450.html)
 - Sep 06 - [Japan's Prince Hisahito is the first male royal to reach adulthood in 40 years. He may be the last](https://www.yahoo.com/news/articles/japans-prince-hisahito-first-male-010135706.html)
+- Sep 05 - [Should Powerball winner take lump sum or annual payments? Here's expert advice](https://finance.yahoo.com/news/powerball-winner-lump-sum-annual-231305922.html)
 - Sep 05 - [Trump seeking ways to take over 9/11 memorial in NYC](https://www.yahoo.com/news/articles/trump-seeking-ways-over-9-225213114.html)
-- Sep 05 - [Raid on upstate New York food manufacturer leads to dozens of detentions](https://www.yahoo.com/news/articles/raid-upstate-york-food-manufacturer-223653798.html)
+- Sep 05 - [Someone could win $1.8B Powerball jackpot Saturday. Odds are their identity will remain a mystery](https://www.yahoo.com/news/articles/someone-could-win-1-8b-215433634.html)
 - Sep 05 - [Neurosurgeon says there are 'rays of hope’ for girl critically hurt in Minneapolis church shooting](https://www.yahoo.com/news/articles/neurosurgeon-says-rays-hope-girl-211545743.html)
 <!-- feed end -->
 
