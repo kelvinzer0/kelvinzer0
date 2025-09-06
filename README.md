@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [The Smartest Way to Invest in Cryptocurrency With $100 Right Now](https://finance.yahoo.com/news/smartest-way-invest-cryptocurrency-100-153100476.html)
 - Sep 06 - [Bad economic news might actually be bad again](https://finance.yahoo.com/news/bad-economic-news-might-actually-be-bad-again-100058088.html)
 - Sep 06 - [There are 9 states in America taxing Social Security benefits in 2025](https://finance.yahoo.com/news/9-states-america-taxing-social-091700692.html)
 - Sep 06 - [Top Ford exec announces ambitious plan that could slash vehicle prices: 'Going to deliver what no other automaker has been able to'](https://finance.yahoo.com/news/top-ford-exec-announces-ambitious-091500580.html)
 - Sep 06 - [World's deadliest animal is probably outside your Ohio home right now. Protection tips](https://www.yahoo.com/news/articles/worlds-deadliest-animal-probably-outside-090449878.html)
-- Sep 06 - [Your 2026 Social Security Raise Is Set for a "Trump Bump" -- Here's How Much Extra You Can Expect](https://finance.yahoo.com/news/2026-social-security-raise-set-074400064.html)
 <!-- feed end -->
 
 ---
