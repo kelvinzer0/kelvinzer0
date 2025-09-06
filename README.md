@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [The Old-School Lexus Models You'll Want To Grab Before Prices Skyrocket](https://autos.yahoo.com/deals-and-buying-guides/articles/old-school-lexus-models-youll-204500219.html)
-- Sep 06 - [Maduro warns US against 'large-scale' military conflict](https://www.yahoo.com/news/articles/maduro-warns-us-against-large-204419377.html)
+- Sep 06 - [Cool, cloudy evening coming; sun and some showers expected Sunday](https://www.yahoo.com/news/articles/cool-cloudy-evening-coming-sun-215241454.html)
 - Sep 06 - [Turkish bear goes viral after eating too much fruit](https://www.yahoo.com/news/articles/turkish-bear-goes-viral-eating-185512343.html)
-- Sep 06 - [‘Phillies Karen’ Roasted Online After Miami Baseball Game Confrontation: ‘Wouldn’t Want to Be Her Right Now’ | Video](https://www.yahoo.com/entertainment/articles/phillies-karen-roasted-online-miami-181007243.html)
 - Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
+- Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
+- Sep 06 - [The attorney general suggested Boston Mayor Michelle Wu is somehow responsible for an alleged crime that occurred 100 miles outside city limits.](https://www.yahoo.com/news/videos/attorney-general-suggested-boston-mayor-145736759.html)
 <!-- feed end -->
 
 ---
