@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Ethereum: Can It Be a Long-Term Winner?](https://finance.yahoo.com/news/ethereum-long-term-winner-111500825.html)
+- Sep 06 - [Sudanese villagers dig with hands to reach landslide victims, group says](https://www.yahoo.com/news/articles/villagers-hands-reach-victims-buried-110242322.html)
 - Sep 06 - [Your 2026 Social Security Raise Is Set for a "Trump Bump" -- Here's How Much Extra You Can Expect](https://finance.yahoo.com/news/2026-social-security-raise-set-074400064.html)
-- Sep 06 - [Storm lights up Las Vegas with continuous lightning strikes](https://www.yahoo.com/news/articles/storm-lights-las-vegas-continuous-053927705.html)
-- Sep 06 - [New Tesla model turns heads after hitting showrooms: '[People] swarmed into a Tesla store'](https://autos.yahoo.com/ev-and-future-tech/articles/tesla-model-turns-heads-hitting-014500450.html)
+- Sep 06 - [Hezbollah says Lebanon move on army plan is 'opportunity,' urges Israel to commit to ceasefire](https://www.yahoo.com/news/articles/hezbollah-official-reuters-cabinet-move-070957986.html)
 - Sep 06 - [Mike Johnson Drops Bombshell About What Trump Really Knew About Epstein](https://www.yahoo.com/news/articles/mike-johnson-drops-bombshell-trump-010622538.html)
+- Sep 06 - [Japan's Prince Hisahito is the first male royal to reach adulthood in 40 years. He may be the last](https://www.yahoo.com/news/articles/japans-prince-hisahito-first-male-010135706.html)
 <!-- feed end -->
 
 ---
