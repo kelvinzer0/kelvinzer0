@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 06 - [‘Phillies Karen’ Roasted Online After Miami Baseball Game Confrontation: ‘Wouldn’t Want to Be Her Right Now’ | Video](https://www.yahoo.com/entertainment/articles/phillies-karen-roasted-online-miami-181007243.html)
-- Sep 06 - [Severe storms in Mass. on Saturday with threats of wind damage, flooding, possible tornado](https://www.yahoo.com/news/articles/severe-storms-mass-saturday-threats-160444942.html)
 - Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
-- Sep 06 - [Pete Hegseth Just Gave The Most Terrifying Response To A Simple Legal Question, And People Are Genuinely Worried](https://www.yahoo.com/news/articles/pete-hegseths-answer-basic-legal-152402085.html)
 - Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
+- Sep 06 - [Scientists Intrigued by Non-Human Skull Embedded in Cave Wall](https://www.yahoo.com/news/articles/scientists-intrigued-non-human-skull-140012382.html)
+- Sep 06 - [Bill Maher Makes Bold Declaration About Robert F. Kennedy Jr.](https://www.yahoo.com/entertainment/tv/articles/bill-maher-makes-bold-declaration-125559982.html)
 <!-- feed end -->
 
 ---
