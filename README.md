@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Cool, cloudy evening coming; sun and some showers expected Sunday](https://www.yahoo.com/news/articles/cool-cloudy-evening-coming-sun-215241454.html)
-- Sep 06 - [Turkish bear goes viral after eating too much fruit](https://www.yahoo.com/news/articles/turkish-bear-goes-viral-eating-185512343.html)
+- Sep 06 - [US government lab makes breakthrough that sounds like something from Marvel: 'Game-changing'](https://www.yahoo.com/news/articles/us-government-lab-makes-breakthrough-211500472.html)
+- Sep 06 - [Behold The Humanoid Robot That Will Turn Tesla Into A $5 Trillion Company](https://autos.yahoo.com/ev-and-future-tech/articles/behold-humanoid-robot-turn-tesla-190500254.html)
+- Sep 06 - [South Sudan repatriates Mexican man deported from US in July](https://www.yahoo.com/news/articles/south-sudan-repatriates-mexican-man-172059983.html)
 - Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
 - Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
-- Sep 06 - [The attorney general suggested Boston Mayor Michelle Wu is somehow responsible for an alleged crime that occurred 100 miles outside city limits.](https://www.yahoo.com/news/videos/attorney-general-suggested-boston-mayor-145736759.html)
 <!-- feed end -->
 
 ---
