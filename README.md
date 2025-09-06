@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [‘Phillies Karen’ Roasted Online After Miami Baseball Game Confrontation: ‘Wouldn’t Want to Be Her Right Now’ | Video](https://www.yahoo.com/entertainment/articles/phillies-karen-roasted-online-miami-181007243.html)
+- Sep 06 - [Severe storms in Mass. on Saturday with threats of wind damage, flooding, possible tornado](https://www.yahoo.com/news/articles/severe-storms-mass-saturday-threats-160444942.html)
 - Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
+- Sep 06 - [Pete Hegseth Just Gave The Most Terrifying Response To A Simple Legal Question, And People Are Genuinely Worried](https://www.yahoo.com/news/articles/pete-hegseths-answer-basic-legal-152402085.html)
 - Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
-- Sep 06 - [Bill Maher Makes Bold Declaration About Robert F. Kennedy Jr.](https://www.yahoo.com/entertainment/tv/articles/bill-maher-makes-bold-declaration-125559982.html)
-- Sep 06 - [Bad economic news might actually be bad again](https://finance.yahoo.com/news/bad-economic-news-might-actually-be-bad-again-100058088.html)
-- Sep 06 - [There are 9 states in America taxing Social Security benefits in 2025](https://finance.yahoo.com/news/9-states-america-taxing-social-091700692.html)
 <!-- feed end -->
 
 ---
