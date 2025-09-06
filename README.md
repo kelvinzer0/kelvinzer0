@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 06 - [New Tesla model turns heads after hitting showrooms: '[People] swarmed into a Tesla store'](https://autos.yahoo.com/ev-and-future-tech/articles/tesla-model-turns-heads-hitting-014500450.html)
 - Sep 06 - [Japan's Prince Hisahito is the first male royal to reach adulthood in 40 years. He may be the last](https://www.yahoo.com/news/articles/japans-prince-hisahito-first-male-010135706.html)
-- Sep 06 - [Trump was ‘FBI informant on Epstein’](https://www.yahoo.com/news/articles/trump-fbi-informant-epstein-001039929.html)
 - Sep 05 - [Trump seeking ways to take over 9/11 memorial in NYC](https://www.yahoo.com/news/articles/trump-seeking-ways-over-9-225213114.html)
 - Sep 05 - [Raid on upstate New York food manufacturer leads to dozens of detentions](https://www.yahoo.com/news/articles/raid-upstate-york-food-manufacturer-223653798.html)
-- Sep 05 - [Exclusive-Bill Pulte accused Fed Governor Lisa Cook of fraud. His relatives filed housing claims similar to hers](https://www.yahoo.com/news/articles/exclusive-bill-pulte-accused-fed-210312352.html)
+- Sep 05 - [Neurosurgeon says there are 'rays of hope’ for girl critically hurt in Minneapolis church shooting](https://www.yahoo.com/news/articles/neurosurgeon-says-rays-hope-girl-211545743.html)
 <!-- feed end -->
 
 ---
