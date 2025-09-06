@@ -28,10 +28,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
-- Sep 06 - [Pete Hegseth's Answer To A Basic Legal Question Is Really, Really, Really Concerning](https://www.yahoo.com/news/articles/pete-hegseths-answer-basic-legal-152402085.html)
-- Sep 06 - [The attorney general suggested Boston Mayor Michelle Wu is somehow responsible for an alleged crime that occurred 100 miles outside city limits.](https://www.yahoo.com/news/videos/attorney-general-suggested-boston-mayor-145736759.html)
-- Sep 06 - [The Seafood Chain That Could Be Swimming Towards A Comeback](https://finance.yahoo.com/news/seafood-chain-could-swimming-towards-104000615.html)
-- Sep 06 - [Top Ford exec announces ambitious plan that could slash vehicle prices: 'Going to deliver what no other automaker has been able to'](https://finance.yahoo.com/news/top-ford-exec-announces-ambitious-091500580.html)
+- Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
+- Sep 06 - [Bill Maher Makes Bold Declaration About Robert F. Kennedy Jr.](https://www.yahoo.com/entertainment/tv/articles/bill-maher-makes-bold-declaration-125559982.html)
+- Sep 06 - [Bad economic news might actually be bad again](https://finance.yahoo.com/news/bad-economic-news-might-actually-be-bad-again-100058088.html)
+- Sep 06 - [There are 9 states in America taxing Social Security benefits in 2025](https://finance.yahoo.com/news/9-states-america-taxing-social-091700692.html)
 <!-- feed end -->
 
 ---
