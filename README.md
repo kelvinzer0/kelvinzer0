@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [Storm lights up Las Vegas with continuous lightning strikes](https://www.yahoo.com/news/articles/storm-lights-las-vegas-continuous-053927705.html)
-- Sep 06 - [Two Marquette University students die in two-vehicle crash in Milwaukee; driver arrested](https://www.yahoo.com/news/articles/2-dead-4-injured-two-012147880.html)
+- Sep 06 - [Woman bashed in head with mini baseball bat on NYC subway: NYPD](https://www.yahoo.com/news/articles/woman-bashed-head-mini-baseball-032100301.html)
 - Sep 06 - [Japan's Prince Hisahito is the first male royal to reach adulthood in 40 years. He may be the last](https://www.yahoo.com/news/articles/japans-prince-hisahito-first-male-010135706.html)
 - Sep 05 - [What to do immediately after winning the Powerball jackpot, according to experts](https://www.yahoo.com/lifestyle/articles/immediately-winning-powerball-jackpot-according-225737836.html)
 - Sep 05 - [Trump seeking ways to take over 9/11 memorial in NYC](https://www.yahoo.com/news/articles/trump-seeking-ways-over-9-225213114.html)
+- Sep 05 - [Someone could win $1.8B Powerball jackpot Saturday. Odds are their identity will remain a mystery](https://www.yahoo.com/news/articles/someone-could-win-1-8b-215433634.html)
 <!-- feed end -->
 
 ---
