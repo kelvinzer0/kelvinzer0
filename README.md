@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Citizenship Tests Could Tougher. What You Need to Know](https://www.yahoo.com/news/articles/citizenship-tests-could-tougher-know-201339386.html)
+- Sep 07 - [Here's How The US Open Crowd Reacted To Trump Showing Up On The Jumbotron](https://www.yahoo.com/news/articles/heres-us-open-crowd-reacted-200844568.html)
 - Sep 07 - [‘Phillies Karen’ Caught in 2 More Verbal Confrontations With Baseball Fans After Home-Run Ball Flap | Video](https://www.yahoo.com/entertainment/articles/phillies-karen-caught-2-more-191136147.html)
-- Sep 07 - [Beverage company brings back iconic drink in reusable glass bottles  — here's how it could reshape industry](https://www.yahoo.com/news/articles/beverage-company-brings-back-iconic-151500742.html)
-- Sep 07 - [Suspected drunken driver going wrong way on I-41 in Kaukauna crashes into SUV with family, pregnant woman](https://www.yahoo.com/news/articles/suspected-drunken-driver-going-wrong-143802805.html)
-- Sep 07 - [Massive Study Finds That There Really Is Something Wrong With Your Husband](https://www.yahoo.com/news/articles/massive-study-finds-really-something-134527259.html)
-- Sep 07 - ['Never seen anything like it' — what Trump's favorite phrase says about his presidency](https://www.yahoo.com/news/articles/never-seen-anything-trumps-favorite-124043794.html)
+- Sep 07 - [Trump ready for 'phase two' of Russia sanctions over Ukraine conflict](https://www.yahoo.com/news/articles/trump-ready-second-stage-sanctions-161541072.html)
+- Sep 07 - [Two brothers have the same genetic disorder. Their insurance only covered life-altering treatment for one of them](https://www.yahoo.com/news/articles/two-brothers-same-genetic-disorder-121959885.html)
 <!-- feed end -->
 
 ---
