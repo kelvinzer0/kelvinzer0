@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Portland Dress 'holds space for everyone'](https://www.yahoo.com/news/articles/portland-dress-holds-space-everyone-072805761.html)
 - Sep 07 - ['Bear Grylls was our 8,000th water filter customer and then became a co-owner'](https://uk.finance.yahoo.com/news/water-filter-water2-bear-grylls-050052958.html)
-- Sep 06 - [Officials sound alarm over looming threat that could wipe out entire nation: 'These are life and death matters'](https://www.yahoo.com/news/articles/officials-sound-alarm-over-looming-230000863.html)
-- Sep 06 - [DOJ says names of two associates Epstein wired $100k and $250k to should stay secret](https://www.yahoo.com/news/articles/doj-says-names-two-associates-182943515.html)
-- Sep 06 - [West Point Association of Graduates Cancels Award Ceremony Intended to Honor Tom Hanks](https://www.yahoo.com/news/articles/west-point-association-graduates-cancels-182225827.html)
 - Sep 06 - [Jim Cramer flips the playbook on the S&P 500](https://finance.yahoo.com/news/jim-cramer-flips-playbook-p-181700932.html)
+- Sep 06 - [South Sudan repatriates Mexican man deported from US in July](https://www.yahoo.com/news/articles/south-sudan-repatriates-mexican-man-172059983.html)
+- Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
 <!-- feed end -->
 
 ---
