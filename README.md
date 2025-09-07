@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Citizenship Tests Could Tougher. What You Need to Know](https://www.yahoo.com/news/articles/citizenship-tests-could-tougher-know-201339386.html)
-- Sep 07 - [Here's How The US Open Crowd Reacted To Trump Showing Up On The Jumbotron](https://www.yahoo.com/news/articles/heres-us-open-crowd-reacted-200844568.html)
+- Sep 07 - [“Apocalypse Now” in Chicago,  No Love For Trump in New York: This Weekend’s Top Stories](https://www.yahoo.com/news/articles/apocalypse-now-chicago-no-love-214359098.html)
+- Sep 07 - [Death of man restrained in a Kansas jail is a homicide, authorities say](https://www.yahoo.com/news/articles/death-man-restrained-kansas-jail-213413576.html)
+- Sep 07 - [People Are Absolutely Losing It Over Donald Trump Getting Booed At The US Open Final](https://www.yahoo.com/news/articles/people-absolutely-losing-over-donald-205617626.html)
+- Sep 07 - [The US Open Crowd's Reaction To Trump On The Jumbotron Is Going Viral](https://www.yahoo.com/news/articles/heres-us-open-crowd-reacted-200844568.html)
 - Sep 07 - [‘Phillies Karen’ Caught in 2 More Verbal Confrontations With Baseball Fans After Home-Run Ball Flap | Video](https://www.yahoo.com/entertainment/articles/phillies-karen-caught-2-more-191136147.html)
-- Sep 07 - [Trump ready for 'phase two' of Russia sanctions over Ukraine conflict](https://www.yahoo.com/news/articles/trump-ready-second-stage-sanctions-161541072.html)
-- Sep 07 - [Two brothers have the same genetic disorder. Their insurance only covered life-altering treatment for one of them](https://www.yahoo.com/news/articles/two-brothers-same-genetic-disorder-121959885.html)
 <!-- feed end -->
 
 ---
