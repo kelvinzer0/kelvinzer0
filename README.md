@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [21 Extremely Rare, Mind-Blowing Photos From The 1960s That Show How Wildly Different Things Used To Be](https://www.yahoo.com/lifestyle/articles/21-extremely-rare-mind-blowing-103107121.html)
+- Sep 07 - [Boris Johnson ‘will never be welcomed into Reform’](https://www.yahoo.com/news/articles/boris-johnson-never-welcomed-reform-102805751.html)
+- Sep 07 - [Homeowner installs security cameras after neighborhood Karen colludes with heavyhanded HOA over a single plant: 'Report them for trespassing'](https://www.yahoo.com/news/articles/homeowner-installs-security-cameras-neighborhood-100000141.html)
 - Sep 07 - ['Bear Grylls was our 8,000th water filter customer and then became a co-owner'](https://uk.finance.yahoo.com/news/water-filter-water2-bear-grylls-050052958.html)
 - Sep 07 - [Undersea cables cut in the Red Sea, disrupting internet access in Asia and the Mideast](https://www.yahoo.com/news/articles/undersea-cables-cut-red-sea-045755796.html)
-- Sep 07 - [Donald Trump famously avoided the Vietnam War thanks to bone spurs. But Vance wouldn’t be “shocked” to learn POTUS had been a Marine.](https://www.yahoo.com/news/videos/donald-trump-famously-avoided-vietnam-035442741.html)
-- Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
-- Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
 <!-- feed end -->
 
 ---
