@@ -29,9 +29,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Sep 06 - [Officials sound alarm over looming threat that could wipe out entire nation: 'These are life and death matters'](https://www.yahoo.com/news/articles/officials-sound-alarm-over-looming-230000863.html)
 - Sep 06 - [‘Godfather of AI’ says the technology will create massive unemployment and send profits soaring — ‘that is the capitalist system’](https://www.yahoo.com/news/articles/godfather-ai-says-technology-create-192740371.html)
-- Sep 06 - [DOJ says names of two associates Epstein wired $100k and $250k to should stay secret](https://www.yahoo.com/news/articles/doj-says-names-two-associates-182943515.html)
 - Sep 06 - [West Point Association of Graduates Cancels Award Ceremony Intended to Honor Tom Hanks](https://www.yahoo.com/news/articles/west-point-association-graduates-cancels-182225827.html)
-- Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
+- Sep 06 - [South Sudan repatriates Mexican man deported from US in July](https://www.yahoo.com/news/articles/south-sudan-repatriates-mexican-man-172059983.html)
+- Sep 06 - [Pete Hegseth Just Gave The Most Terrifying Response To A Simple Legal Question, And People Are Genuinely Worried](https://www.yahoo.com/news/articles/pete-hegseths-answer-basic-legal-152402085.html)
 <!-- feed end -->
 
 ---
