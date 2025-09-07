@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [N.J. town transforms parking lot into 6 pickleball courts, doubles size of exiting park](https://www.yahoo.com/news/articles/n-j-town-transforms-parking-170041598.html)
-- Sep 07 - [Businesses Buy 1,755 Bitcoin Daily, Adding $1.3 Trillion in 20 Months – BTC Above $125K Next?](https://finance.yahoo.com/news/businesses-buy-1-755-bitcoin-145042398.html)
-- Sep 07 - [Suspected drunken driver going wrong way on I-41 in Kaukauna crashes into SUV with family, pregnant woman](https://www.yahoo.com/news/articles/suspected-drunken-driver-going-wrong-143802805.html)
-- Sep 07 - [Driver shares dashcam footage of unbelievable road rage incident: 'Short temper'](https://www.yahoo.com/news/articles/driver-shares-dashcam-footage-unbelievable-141500272.html)
+- Sep 07 - [Donald Trump arrives at US Open men’s final to cheers and boos after broadcasters asked not to show reactions](https://www.yahoo.com/news/articles/donald-trump-arrives-us-open-175535502.html)
+- Sep 07 - [People Are Having A Field Day Over Donald Trump's First Event In The New Rose Garden](https://www.yahoo.com/news/articles/people-having-field-day-over-181133321.html)
 - Sep 07 - [Massive Study Finds That There Really Is Something Wrong With Your Husband](https://www.yahoo.com/news/articles/massive-study-finds-really-something-134527259.html)
+- Sep 07 - [Mother-in-Law Throws Away Bride’s Wedding Dress Weeks Before Her Big Day for Being ‘Too Revealing’](https://www.yahoo.com/lifestyle/articles/mother-law-throws-away-bride-130000998.html)
+- Sep 07 - ['Never seen anything like it' — what Trump's favorite phrase says about his presidency](https://www.yahoo.com/news/articles/never-seen-anything-trumps-favorite-124043794.html)
 <!-- feed end -->
 
 ---
