@@ -27,9 +27,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [Europe’s new defensive plan will literally bog down Russia’s tanks](https://www.yahoo.com/news/articles/europe-defensive-plan-literally-bog-070000911.html)
 - Sep 07 - ['Bear Grylls was our 8,000th water filter customer and then became a co-owner'](https://uk.finance.yahoo.com/news/water-filter-water2-bear-grylls-050052958.html)
 - Sep 07 - [Undersea cables cut in the Red Sea, disrupting internet access in Asia and the Mideast](https://www.yahoo.com/news/articles/undersea-cables-cut-red-sea-045755796.html)
+- Sep 07 - [Donald Trump famously avoided the Vietnam War thanks to bone spurs. But Vance wouldn’t be “shocked” to learn POTUS had been a Marine.](https://www.yahoo.com/news/videos/donald-trump-famously-avoided-vietnam-035442741.html)
 - Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
 - Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
 <!-- feed end -->
