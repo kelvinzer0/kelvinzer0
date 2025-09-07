@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [N.J. town transforms parking lot into 6 pickleball courts, doubles size of exiting park](https://www.yahoo.com/news/articles/n-j-town-transforms-parking-170041598.html)
+- Sep 07 - [Businesses Buy 1,755 Bitcoin Daily, Adding $1.3 Trillion in 20 Months – BTC Above $125K Next?](https://finance.yahoo.com/news/businesses-buy-1-755-bitcoin-145042398.html)
+- Sep 07 - [Suspected drunken driver going wrong way on I-41 in Kaukauna crashes into SUV with family, pregnant woman](https://www.yahoo.com/news/articles/suspected-drunken-driver-going-wrong-143802805.html)
+- Sep 07 - [Driver shares dashcam footage of unbelievable road rage incident: 'Short temper'](https://www.yahoo.com/news/articles/driver-shares-dashcam-footage-unbelievable-141500272.html)
 - Sep 07 - [Massive Study Finds That There Really Is Something Wrong With Your Husband](https://www.yahoo.com/news/articles/massive-study-finds-really-something-134527259.html)
-- Sep 07 - ['Never seen anything like it' — what Trump's favorite phrase says about his presidency](https://www.yahoo.com/news/articles/never-seen-anything-trumps-favorite-124043794.html)
-- Sep 07 - [Giant Dinosaurs Were Riddled With a Devastating Disease, Fossils Show](https://www.yahoo.com/news/articles/giant-dinosaurs-were-riddled-devastating-120029946.html)
-- Sep 07 - [21 Extremely Rare, Mind-Blowing Photos From The 1960s That Show How Wildly Different Things Used To Be](https://www.yahoo.com/lifestyle/articles/21-extremely-rare-mind-blowing-103107121.html)
-- Sep 07 - [Four Telescopes Confirm There's Something Deeply Strange About the Mysterious Object Headed Into the Solar System](https://www.yahoo.com/news/articles/four-telescopes-confirm-theres-something-100023490.html)
 <!-- feed end -->
 
 ---
