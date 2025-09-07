@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 07 - [21 Extremely Rare, Mind-Blowing Photos From The 1960s That Show How Wildly Different Things Used To Be](https://www.yahoo.com/lifestyle/articles/21-extremely-rare-mind-blowing-103107121.html)
-- Sep 07 - [Boris Johnson ‘will never be welcomed into Reform’](https://www.yahoo.com/news/articles/boris-johnson-never-welcomed-reform-102805751.html)
+- Sep 07 - [Four Telescopes Confirm There's Something Deeply Strange About the Mysterious Object Headed Into the Solar System](https://www.yahoo.com/news/articles/four-telescopes-confirm-theres-something-100023490.html)
 - Sep 07 - [Homeowner installs security cameras after neighborhood Karen colludes with heavyhanded HOA over a single plant: 'Report them for trespassing'](https://www.yahoo.com/news/articles/homeowner-installs-security-cameras-neighborhood-100000141.html)
+- Sep 07 - [Angler stunned after catching strange 'frankenfish' in unexpected location: 'I saw rows and rows of very sharp teeth'](https://www.yahoo.com/news/articles/angler-stunned-catching-strange-frankenfish-090000447.html)
+- Sep 07 - [Donald Trump has ordered the removal of a peace memorial that has stood outside the White House for 44 years.](https://www.yahoo.com/news/videos/donald-trump-ordered-removal-peace-050924660.html)
 - Sep 07 - ['Bear Grylls was our 8,000th water filter customer and then became a co-owner'](https://uk.finance.yahoo.com/news/water-filter-water2-bear-grylls-050052958.html)
-- Sep 07 - [Undersea cables cut in the Red Sea, disrupting internet access in Asia and the Mideast](https://www.yahoo.com/news/articles/undersea-cables-cut-red-sea-045755796.html)
 <!-- feed end -->
 
 ---
