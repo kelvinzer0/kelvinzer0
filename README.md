@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 06 - [US government lab makes breakthrough that sounds like something from Marvel: 'Game-changing'](https://www.yahoo.com/news/articles/us-government-lab-makes-breakthrough-211500472.html)
-- Sep 06 - [Behold The Humanoid Robot That Will Turn Tesla Into A $5 Trillion Company](https://autos.yahoo.com/ev-and-future-tech/articles/behold-humanoid-robot-turn-tesla-190500254.html)
+- Sep 06 - [Officials sound alarm over looming threat that could wipe out entire nation: 'These are life and death matters'](https://www.yahoo.com/news/articles/officials-sound-alarm-over-looming-230000863.html)
+- Sep 06 - [‘Godfather of AI’ says the technology will create massive unemployment and send profits soaring — ‘that is the capitalist system’](https://www.yahoo.com/news/articles/godfather-ai-says-technology-create-192740371.html)
+- Sep 06 - [Turkish bear goes viral after eating too much fruit](https://www.yahoo.com/news/articles/turkish-bear-goes-viral-eating-185512343.html)
+- Sep 06 - [DOJ says names of two associates Epstein wired $100k and $250k to should stay secret](https://www.yahoo.com/news/articles/doj-says-names-two-associates-182943515.html)
 - Sep 06 - [South Sudan repatriates Mexican man deported from US in July](https://www.yahoo.com/news/articles/south-sudan-repatriates-mexican-man-172059983.html)
-- Sep 06 - [Kid Rock faces backlash after private jet with shocking feature is spotted at airport: 'Money cannot buy class'](https://www.yahoo.com/news/articles/kid-rock-faces-backlash-private-163000249.html)
-- Sep 06 - [Barron Trump's Shocking College Move Sparks Buzz About His Bond With Melania & Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trumps-shocking-college-move-150826054.html)
 <!-- feed end -->
 
 ---
