@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 07 - [Massive Study Finds That There Really Is Something Wrong With Your Husband](https://www.yahoo.com/news/articles/massive-study-finds-really-something-134527259.html)
 - Sep 07 - ['Never seen anything like it' — what Trump's favorite phrase says about his presidency](https://www.yahoo.com/news/articles/never-seen-anything-trumps-favorite-124043794.html)
+- Sep 07 - [Two brothers have the same genetic disorder. Their insurance only covered life-altering treatment for one of them](https://www.yahoo.com/news/articles/two-brothers-same-genetic-disorder-121959885.html)
+- Sep 07 - [21 Extremely Rare, Mind-Blowing Photos From The 1960s That Show How Wildly Different Things Used To Be](https://www.yahoo.com/lifestyle/articles/21-extremely-rare-mind-blowing-103107121.html)
 - Sep 07 - [Four Telescopes Confirm There's Something Deeply Strange About the Mysterious Object Headed Into the Solar System](https://www.yahoo.com/news/articles/four-telescopes-confirm-theres-something-100023490.html)
-- Sep 07 - [Homeowner installs security cameras after neighborhood Karen colludes with heavyhanded HOA over a single plant: 'Report them for trespassing'](https://www.yahoo.com/news/articles/homeowner-installs-security-cameras-neighborhood-100000141.html)
-- Sep 07 - [This Stanford computer science professor went to written exams 2 years ago because of AI. He says his students insisted on it](https://www.yahoo.com/news/articles/stanford-computer-science-professor-went-093500264.html)
-- Sep 07 - [Donald Trump has ordered the removal of a peace memorial that has stood outside the White House for 44 years.](https://www.yahoo.com/news/videos/donald-trump-ordered-removal-peace-050924660.html)
 <!-- feed end -->
 
 ---
