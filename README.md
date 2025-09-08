@@ -31,7 +31,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Sep 08 - [A New Zealand father who evaded authorities with his 3 children for years is shot dead by the police](https://www.yahoo.com/news/articles/zealand-father-evaded-authorities-3-001725074.html)
 - Sep 07 - [Customs officials make mind-blowing seizure at major international airport — here's what they found](https://www.yahoo.com/news/articles/customs-officials-mind-blowing-seizure-224500487.html)
 - Sep 07 - [People Are Absolutely Losing It Over Donald Trump Getting Booed At The US Open Final](https://www.yahoo.com/news/articles/people-absolutely-losing-over-donald-205617626.html)
-- Sep 07 - [The High-Fiber Snack To Avoid if You Want To Lose Weight, According to Registered Dietitians](https://health.yahoo.com/wellness/nutrition/weight-loss/articles/high-fiber-snack-avoid-want-202500699.html)
+- Sep 07 - [Mexico says it's cracking down on fuel theft and critics say it underscores the depth of the problem](https://www.yahoo.com/news/articles/mexico-says-cracking-down-fuel-205245721.html)
 <!-- feed end -->
 
 ---
