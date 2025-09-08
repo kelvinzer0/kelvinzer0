@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Police shoot dead fugitive father on run for years in wilderness as frantic search for children continues](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
 - Sep 08 - [New Zealand fugitive father on the run with children shot dead by police](https://www.yahoo.com/news/articles/zealand-fugitive-father-run-children-025316638.html)
-- Sep 08 - [Father on run with three children in wilderness believed to be shot dead during armed confrontation with police](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
-- Sep 07 - [Trump Issues ‘Last Warning’ From U.S. Open](https://www.yahoo.com/news/articles/trump-issues-last-warning-u-234203735.html)
 - Sep 07 - [Customs officials make mind-blowing seizure at major international airport — here's what they found](https://www.yahoo.com/news/articles/customs-officials-mind-blowing-seizure-224500487.html)
 - Sep 07 - [People Are Absolutely Losing It Over Donald Trump Getting Booed At The US Open Final](https://www.yahoo.com/news/articles/people-absolutely-losing-over-donald-205617626.html)
+- Sep 07 - [‘Phillies Karen’ Caught in 2 More Verbal Confrontations With Baseball Fans After Home-Run Ball Flap | Video](https://www.yahoo.com/entertainment/articles/phillies-karen-caught-2-more-191136147.html)
 <!-- feed end -->
 
 ---
