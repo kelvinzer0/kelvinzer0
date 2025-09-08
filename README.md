@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Cyprus talks to UAE over European subsea cable project, president says](https://www.yahoo.com/news/articles/cyprus-talks-uae-over-european-074609197.html)
 - Sep 08 - [Ex-sergeant major admits sexually assaulting soldier who took her own life](https://www.yahoo.com/news/articles/ex-sergeant-major-admits-sexually-043013120.html)
-- Sep 08 - [Police shoot dead fugitive father and find his three children missing for years in wilderness](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
-- Sep 08 - [People Are Sharing The Historical Facts We Didn't Learn In School, And Wow, They Sure Glossed Over A Lot In Class](https://www.yahoo.com/news/articles/people-sharing-historical-facts-didnt-021604886.html)
-- Sep 07 - [Explainer-Why E20 fuel is causing angst in India's auto market](https://finance.yahoo.com/news/explainer-why-e20-fuel-causing-233952235.html)
+- Sep 08 - [Teenager kills 2 officers in attack on Turkish police station](https://www.yahoo.com/news/articles/teenager-kills-2-officers-attack-074054982.html)
+- Sep 07 - [Trump Issues ‘Last Warning’ From U.S. Open](https://www.yahoo.com/news/articles/trump-issues-last-warning-u-234203735.html)
 - Sep 07 - [Customs officials make mind-blowing seizure at major international airport — here's what they found](https://www.yahoo.com/news/articles/customs-officials-mind-blowing-seizure-224500487.html)
 <!-- feed end -->
 
