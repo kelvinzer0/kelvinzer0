@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Police shoot dead fugitive father on run for years in wilderness as frantic search for children continues](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
-- Sep 08 - [New Zealand fugitive father on the run with children shot dead by police](https://www.yahoo.com/news/articles/zealand-fugitive-father-run-children-025316638.html)
+- Sep 08 - [Ex-sergeant major admits sexually assaulting soldier who took her own life](https://www.yahoo.com/news/articles/ex-sergeant-major-admits-sexually-043013120.html)
+- Sep 08 - [Police shoot dead fugitive father and find his three children missing for years in wilderness](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
+- Sep 08 - [People Are Sharing The Historical Facts We Didn't Learn In School, And Wow, They Sure Glossed Over A Lot In Class](https://www.yahoo.com/news/articles/people-sharing-historical-facts-didnt-021604886.html)
+- Sep 07 - [Explainer-Why E20 fuel is causing angst in India's auto market](https://finance.yahoo.com/news/explainer-why-e20-fuel-causing-233952235.html)
 - Sep 07 - [Customs officials make mind-blowing seizure at major international airport — here's what they found](https://www.yahoo.com/news/articles/customs-officials-mind-blowing-seizure-224500487.html)
-- Sep 07 - [People Are Absolutely Losing It Over Donald Trump Getting Booed At The US Open Final](https://www.yahoo.com/news/articles/people-absolutely-losing-over-donald-205617626.html)
-- Sep 07 - [‘Phillies Karen’ Caught in 2 More Verbal Confrontations With Baseball Fans After Home-Run Ball Flap | Video](https://www.yahoo.com/entertainment/articles/phillies-karen-caught-2-more-191136147.html)
 <!-- feed end -->
 
 ---
