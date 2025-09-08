@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [In Full: VW CEO Blume on Tariffs, China EV Competition, Munich Auto Show](https://finance.yahoo.com/video/full-vw-ceo-blume-tariffs-083006475.html)
-- Sep 08 - [Suze Orman: 6 Brutally Honest Money Tips To Follow](https://finance.yahoo.com/news/suze-orman-6-brutally-honest-190006088.html)
-- Sep 08 - [Cyprus talks to UAE over European subsea cable project, president says](https://www.yahoo.com/news/articles/cyprus-talks-uae-over-european-074609197.html)
-- Sep 08 - [As Ethiopia launches Africa's biggest dam, citizens are hopeful despite concerns by Egypt and Sudan](https://www.yahoo.com/news/articles/ethiopia-launches-africas-biggest-dam-074338433.html)
-- Sep 08 - [Ex-sergeant major admits sexually assaulting soldier who took her own life](https://www.yahoo.com/news/articles/ex-sergeant-major-admits-sexually-043013120.html)
+- Sep 08 - [Future Combat: Military Vehicles Powered by AI and Stealth Tech](https://www.yahoo.com/news/articles/future-combat-military-vehicles-powered-100019327.html)
+- Sep 08 - [China pushing ASEAN to seal trade pact upgrade as US tariffs bite](https://finance.yahoo.com/news/china-pushing-asean-seal-trade-093535257.html)
+- Sep 08 - [AstraZeneca’s Tagrisso combination shows survival benefit in lung cancer trial](https://finance.yahoo.com/news/astrazeneca-tagrisso-combination-shows-survival-093143542.html)
+- Sep 08 - [Lawmakers hear Australians' concerns about AUKUS pact](https://www.yahoo.com/news/articles/lawmakers-hear-australians-concerns-aukus-090141311.html)
+- Sep 08 - [Thailand's Thaksin Shinawatra returns from overseas ahead of court verdict](https://www.yahoo.com/news/articles/jet-used-thailands-thaksin-shinawatra-082524412.html)
 <!-- feed end -->
 
 ---
