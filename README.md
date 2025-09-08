@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Europeans aim to coordinate first sanctions against Russia with Trump administration](https://www.yahoo.com/news/articles/europeans-aim-coordinate-first-sanctions-150324020.html)
-- Sep 08 - [‘I’m gonna punch you in your f---ing face’: Dramatic feud between Trump officials revealed](https://www.yahoo.com/news/articles/m-gonna-punch-f-ing-132615565.html)
-- Sep 08 - [Neighbour smelt gas weeks before fatal explosion](https://www.yahoo.com/news/articles/neighbour-smelt-gas-weeks-fatal-122050470.html)
-- Sep 08 - [Officials raise red flag on disturbing phenomenon that killed more than 100 hikers this summer: 'Too many'](https://www.yahoo.com/news/articles/officials-raise-red-flag-disturbing-143000892.html)
-- Sep 08 - [Trump fails to overturn E. Jean Carroll's $83 million verdict](https://www.yahoo.com/news/articles/trump-fails-overturn-e-jean-140530336.html)
+- Sep 08 - [‘Putin wants us to panic’: Why Russia launched the largest aerial strike of the war so far](https://www.yahoo.com/news/articles/trying-sow-fear-russia-amped-154821188.html)
+- Sep 08 - [Thune says Senate will change the rules to push through Trump's blocked nominees](https://www.yahoo.com/news/articles/thune-says-senate-change-rules-152256331.html)
+- Sep 08 - [Trump Slaps His Name on Infrastructure Projects Funded by Biden](https://www.yahoo.com/news/articles/trump-slaps-name-infrastructure-projects-150942855.html)
+- Sep 08 - [What Americans think about socialism and capitalism, according to a new Gallup poll](https://www.yahoo.com/news/articles/americans-think-socialism-capitalism-according-150845501.html)
+- Sep 08 - [A multi-county chase ended with an officer shooting, killing a Boone man near Highway 30](https://www.yahoo.com/news/articles/multi-county-chase-ended-officer-144958339.html)
 <!-- feed end -->
 
 ---
