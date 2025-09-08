@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Report: Iran decides to resume nuclear negotiations with the US](https://www.yahoo.com/news/articles/report-iran-decides-resume-nuclear-134421550.html)
-- Sep 08 - [Donald Trump Rejoices Over West Point Canceling Tom Hanks Award Ceremony: ‘We Don’t Need Destructive, Woke Recipients Getting American Awards’](https://www.yahoo.com/entertainment/celebrity/articles/donald-trump-rejoices-over-west-132518741.html)
-- Sep 08 - [Here’s What It Costs To Charge a Tesla Monthly vs. Using Gas for a Honda CR-V Hybrid](https://www.yahoo.com/lifestyle/articles/costs-charge-tesla-monthly-vs-130609710.html)
-- Sep 08 - [I Told My Doctor I'd Been Living In Debilitating Pain For 7 Years. His 2-Word Response Was The Final Straw.](https://health.yahoo.com/your-body/womens-health/period-health/articles/told-doctor-id-living-debilitating-122329036.html)
+- Sep 08 - [Europeans aim to coordinate first sanctions against Russia with Trump administration](https://www.yahoo.com/news/articles/europeans-aim-coordinate-first-sanctions-150324020.html)
+- Sep 08 - [‘I’m gonna punch you in your f---ing face’: Dramatic feud between Trump officials revealed](https://www.yahoo.com/news/articles/m-gonna-punch-f-ing-132615565.html)
 - Sep 08 - [Neighbour smelt gas weeks before fatal explosion](https://www.yahoo.com/news/articles/neighbour-smelt-gas-weeks-fatal-122050470.html)
+- Sep 08 - [Officials raise red flag on disturbing phenomenon that killed more than 100 hikers this summer: 'Too many'](https://www.yahoo.com/news/articles/officials-raise-red-flag-disturbing-143000892.html)
+- Sep 08 - [Trump fails to overturn E. Jean Carroll's $83 million verdict](https://www.yahoo.com/news/articles/trump-fails-overturn-e-jean-140530336.html)
 <!-- feed end -->
 
 ---
