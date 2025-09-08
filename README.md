@@ -27,10 +27,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [In LA port, bobbing blue floats are turning wave power into clean energy](https://www.yahoo.com/news/articles/la-port-bobbing-blue-floats-130721258.html)
-- Sep 08 - [Mark Ruffalo, Olivia Colman, Javier Bardem and 1,300 More Pledge to End Film Industry’s Complicity in Palestinian Genocide](https://www.yahoo.com/entertainment/movies/articles/mark-ruffalo-olivia-colman-javier-130058114.html)
-- Sep 08 - [Chase launches a limited-time mortgage rate refinance sale](https://finance.yahoo.com/personal-finance/mortgages/article/chase-limited-time-mortgage-refinance-rate-sale-130032595.html)
-- Sep 08 - [1 Cash-Producing Stock on Our Watchlist and 2 Facing Headwinds](https://finance.yahoo.com/news/1-cash-producing-stock-watchlist-122635675.html)
+- Sep 08 - [Report: Iran decides to resume nuclear negotiations with the US](https://www.yahoo.com/news/articles/report-iran-decides-resume-nuclear-134421550.html)
+- Sep 08 - [Donald Trump Rejoices Over West Point Canceling Tom Hanks Award Ceremony: ‘We Don’t Need Destructive, Woke Recipients Getting American Awards’](https://www.yahoo.com/entertainment/celebrity/articles/donald-trump-rejoices-over-west-132518741.html)
+- Sep 08 - [Here’s What It Costs To Charge a Tesla Monthly vs. Using Gas for a Honda CR-V Hybrid](https://www.yahoo.com/lifestyle/articles/costs-charge-tesla-monthly-vs-130609710.html)
+- Sep 08 - [I Told My Doctor I'd Been Living In Debilitating Pain For 7 Years. His 2-Word Response Was The Final Straw.](https://health.yahoo.com/your-body/womens-health/period-health/articles/told-doctor-id-living-debilitating-122329036.html)
 - Sep 08 - [Neighbour smelt gas weeks before fatal explosion](https://www.yahoo.com/news/articles/neighbour-smelt-gas-weeks-fatal-122050470.html)
 <!-- feed end -->
 
