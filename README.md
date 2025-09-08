@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Murdoch Settlement Stunner: Lachlan’s Status Reaffirmed As James, Elisabeth And Prudence Cut Ties With Family](https://finance.yahoo.com/news/murdoch-settlement-stunner-lachlan-status-205121187.html)
+- Sep 08 - [New jobs revision report expected to show lower growth](https://finance.yahoo.com/video/jobs-revision-report-expected-show-213140306.html)
+- Sep 08 - [Russian-installed official reports Ukrainian attacks on Russian-held parts of Donetsk region](https://www.yahoo.com/news/articles/russian-installed-official-reports-ukrainian-211341259.html)
+- Sep 08 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
 - Sep 08 - [2 St. Louis area doctors sentenced for federal health care crimes](https://www.yahoo.com/news/articles/two-st-louis-area-doctors-192858953.html)
-- Sep 08 - [Actor Mark Wahlberg to bring Mexican restaurant to San Diego County](https://www.yahoo.com/entertainment/celebrity/articles/actor-mark-wahlberg-bring-mexican-185630209.html)
 - Sep 08 - [French government collapses after prime minister loses confidence vote](https://www.yahoo.com/news/articles/french-government-collapses-prime-minister-182222262.html)
-- Sep 08 - [Fed nominee Miran must resign from White House, Democratic lawmakers say](https://www.yahoo.com/news/articles/fed-nominee-miran-must-resign-174200747.html)
 <!-- feed end -->
 
 ---
