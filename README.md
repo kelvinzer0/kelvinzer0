@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [New Zealand fugitive father on the run with children shot dead by police](https://www.yahoo.com/news/articles/zealand-fugitive-father-run-children-025316638.html)
 - Sep 08 - [Father on run with three children in wilderness believed to be shot dead during armed confrontation with police](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
-- Sep 08 - [A New Zealand father who evaded authorities with his 3 children for years is shot dead by the police](https://www.yahoo.com/news/articles/zealand-father-evaded-authorities-3-001725074.html)
+- Sep 07 - [Trump Issues ‘Last Warning’ From U.S. Open](https://www.yahoo.com/news/articles/trump-issues-last-warning-u-234203735.html)
 - Sep 07 - [Customs officials make mind-blowing seizure at major international airport — here's what they found](https://www.yahoo.com/news/articles/customs-officials-mind-blowing-seizure-224500487.html)
 - Sep 07 - [People Are Absolutely Losing It Over Donald Trump Getting Booed At The US Open Final](https://www.yahoo.com/news/articles/people-absolutely-losing-over-donald-205617626.html)
-- Sep 07 - [Mexico says it's cracking down on fuel theft and critics say it underscores the depth of the problem](https://www.yahoo.com/news/articles/mexico-says-cracking-down-fuel-205245721.html)
 <!-- feed end -->
 
 ---
