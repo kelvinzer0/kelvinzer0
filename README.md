@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [What's that going in across from Aldo's Pizza Pies in Midtown Memphis?](https://www.yahoo.com/news/articles/whats-going-across-aldos-pizza-100123483.html)
-- Sep 08 - [Trump Is a Weak and Failing President, and It’s Time to Say So](https://www.yahoo.com/news/articles/trump-weak-failing-president-time-090000098.html)
-- Sep 08 - [Police shoot dead fugitive father and find his three children missing for years in wilderness](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
-- Sep 08 - [Blood Moon: the most beautiful images of the total lunar eclipse around the world](https://www.yahoo.com/news/articles/blood-moon-most-beautiful-images-065432915.html)
-- Sep 08 - [Friend of Michael Brown who helped spark ‘hands up, don’t shoot’ chant dies after being shot in Ferguson](https://www.yahoo.com/news/articles/friend-michael-brown-helped-spark-064931654.html)
+- Sep 08 - [Market Reaction: GM Rolls Back EV Production](https://autos.yahoo.com/policy-and-environment/articles/market-reaction-gm-rolls-back-121807110.html)
+- Sep 08 - [Bitcoin Google Searches Hit 11-Month Low as Gold Continues to Climb](https://finance.yahoo.com/news/bitcoin-google-searches-hit-11-120909209.html)
+- Sep 08 - [McDonald’s President on Extra Value Meals, Economic Uncertainty](https://www.yahoo.com/news/videos/mcdonald-president-extra-value-meals-115431742.html)
+- Sep 08 - [Pastor Doug Wilson’s fringe teachings go mainstream in Trump’s Washington](https://www.yahoo.com/news/articles/pastor-doug-wilson-fringe-teachings-111620487.html)
+- Sep 08 - [Shortage of homebuyers forces many sellers to lower prices or walk away as sales slump drags on](https://finance.yahoo.com/news/shortage-homebuyers-forces-many-sellers-105323090.html)
 <!-- feed end -->
 
 ---
