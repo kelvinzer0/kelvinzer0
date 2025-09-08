@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Market Reaction: GM Rolls Back EV Production](https://autos.yahoo.com/policy-and-environment/articles/market-reaction-gm-rolls-back-121807110.html)
-- Sep 08 - [Bitcoin Google Searches Hit 11-Month Low as Gold Continues to Climb](https://finance.yahoo.com/news/bitcoin-google-searches-hit-11-120909209.html)
-- Sep 08 - [McDonald’s President on Extra Value Meals, Economic Uncertainty](https://www.yahoo.com/news/videos/mcdonald-president-extra-value-meals-115431742.html)
-- Sep 08 - [Pastor Doug Wilson’s fringe teachings go mainstream in Trump’s Washington](https://www.yahoo.com/news/articles/pastor-doug-wilson-fringe-teachings-111620487.html)
-- Sep 08 - [Shortage of homebuyers forces many sellers to lower prices or walk away as sales slump drags on](https://finance.yahoo.com/news/shortage-homebuyers-forces-many-sellers-105323090.html)
+- Sep 08 - [In LA port, bobbing blue floats are turning wave power into clean energy](https://www.yahoo.com/news/articles/la-port-bobbing-blue-floats-130721258.html)
+- Sep 08 - [Mark Ruffalo, Olivia Colman, Javier Bardem and 1,300 More Pledge to End Film Industry’s Complicity in Palestinian Genocide](https://www.yahoo.com/entertainment/movies/articles/mark-ruffalo-olivia-colman-javier-130058114.html)
+- Sep 08 - [Chase launches a limited-time mortgage rate refinance sale](https://finance.yahoo.com/personal-finance/mortgages/article/chase-limited-time-mortgage-refinance-rate-sale-130032595.html)
+- Sep 08 - [1 Cash-Producing Stock on Our Watchlist and 2 Facing Headwinds](https://finance.yahoo.com/news/1-cash-producing-stock-watchlist-122635675.html)
+- Sep 08 - [Neighbour smelt gas weeks before fatal explosion](https://www.yahoo.com/news/articles/neighbour-smelt-gas-weeks-fatal-122050470.html)
 <!-- feed end -->
 
 ---
