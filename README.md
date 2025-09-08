@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [Eat the rich: The computer programmer who believed he could join the elite through cannibalism](https://www.yahoo.com/news/articles/moved-silicon-valley-fortune-instead-141626706.html)
 - Sep 08 - [Trump administration tells Supreme Court that handing out $4B foreign aid poses ‘grave’ threat to presidency](https://www.yahoo.com/news/articles/trump-administration-tells-supreme-court-174642591.html)
 - Sep 08 - [Fed nominee Miran must resign from White House, Democratic lawmakers say](https://www.yahoo.com/news/articles/fed-nominee-miran-must-resign-174200747.html)
-- Sep 08 - [Florida parents take gender pronoun dispute at school to U.S. Supreme Court](https://www.yahoo.com/news/articles/florida-parents-gender-pronoun-dispute-172247858.html)
-- Sep 08 - [Shark kills surfer in Australia who 'lost a number of limbs': Police](https://www.yahoo.com/news/articles/shark-kills-surfer-australia-lost-162301136.html)
-- Sep 08 - [Supreme Court lifts restrictions on LA immigration stops set after agents swept up US citizens](https://www.yahoo.com/news/articles/supreme-court-lifts-restrictions-la-153725879.html)
+- Sep 08 - ['I Ate More Protein And My Hair Got Noticeably Thicker. Here's Why—And What To Eat For Results.'](https://health.yahoo.com/your-body/hair-loss/articles/ate-more-protein-hair-got-172300998.html)
+- Sep 08 - [GBU-57 Massive Ordnance Penetrator’s Replacement Prototypes Just Ordered By USAF](https://www.yahoo.com/news/articles/gbu-57-massive-ordnance-perpetrator-171924723.html)
 <!-- feed end -->
 
 ---
