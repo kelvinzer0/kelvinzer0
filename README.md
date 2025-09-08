@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Future Combat: Military Vehicles Powered by AI and Stealth Tech](https://www.yahoo.com/news/articles/future-combat-military-vehicles-powered-100019327.html)
-- Sep 08 - [China pushing ASEAN to seal trade pact upgrade as US tariffs bite](https://finance.yahoo.com/news/china-pushing-asean-seal-trade-093535257.html)
-- Sep 08 - [AstraZeneca’s Tagrisso combination shows survival benefit in lung cancer trial](https://finance.yahoo.com/news/astrazeneca-tagrisso-combination-shows-survival-093143542.html)
-- Sep 08 - [Lawmakers hear Australians' concerns about AUKUS pact](https://www.yahoo.com/news/articles/lawmakers-hear-australians-concerns-aukus-090141311.html)
-- Sep 08 - [Thailand's Thaksin Shinawatra returns from overseas ahead of court verdict](https://www.yahoo.com/news/articles/jet-used-thailands-thaksin-shinawatra-082524412.html)
+- Sep 08 - [What's that going in across from Aldo's Pizza Pies in Midtown Memphis?](https://www.yahoo.com/news/articles/whats-going-across-aldos-pizza-100123483.html)
+- Sep 08 - [Trump Is a Weak and Failing President, and It’s Time to Say So](https://www.yahoo.com/news/articles/trump-weak-failing-president-time-090000098.html)
+- Sep 08 - [Police shoot dead fugitive father and find his three children missing for years in wilderness](https://www.yahoo.com/news/articles/father-run-three-children-wilderness-002911288.html)
+- Sep 08 - [Blood Moon: the most beautiful images of the total lunar eclipse around the world](https://www.yahoo.com/news/articles/blood-moon-most-beautiful-images-065432915.html)
+- Sep 08 - [Friend of Michael Brown who helped spark ‘hands up, don’t shoot’ chant dies after being shot in Ferguson](https://www.yahoo.com/news/articles/friend-michael-brown-helped-spark-064931654.html)
 <!-- feed end -->
 
 ---
