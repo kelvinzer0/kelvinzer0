@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 08 - [In Full: VW CEO Blume on Tariffs, China EV Competition, Munich Auto Show](https://finance.yahoo.com/video/full-vw-ceo-blume-tariffs-083006475.html)
+- Sep 08 - [Suze Orman: 6 Brutally Honest Money Tips To Follow](https://finance.yahoo.com/news/suze-orman-6-brutally-honest-190006088.html)
 - Sep 08 - [Cyprus talks to UAE over European subsea cable project, president says](https://www.yahoo.com/news/articles/cyprus-talks-uae-over-european-074609197.html)
+- Sep 08 - [As Ethiopia launches Africa's biggest dam, citizens are hopeful despite concerns by Egypt and Sudan](https://www.yahoo.com/news/articles/ethiopia-launches-africas-biggest-dam-074338433.html)
 - Sep 08 - [Ex-sergeant major admits sexually assaulting soldier who took her own life](https://www.yahoo.com/news/articles/ex-sergeant-major-admits-sexually-043013120.html)
-- Sep 08 - [Teenager kills 2 officers in attack on Turkish police station](https://www.yahoo.com/news/articles/teenager-kills-2-officers-attack-074054982.html)
-- Sep 07 - [Trump Issues ‘Last Warning’ From U.S. Open](https://www.yahoo.com/news/articles/trump-issues-last-warning-u-234203735.html)
-- Sep 07 - [Customs officials make mind-blowing seizure at major international airport — here's what they found](https://www.yahoo.com/news/articles/customs-officials-mind-blowing-seizure-224500487.html)
 <!-- feed end -->
 
 ---
