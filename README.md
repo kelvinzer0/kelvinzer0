@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Eat the rich: The computer programmer who believed he could join the elite through cannibalism](https://www.yahoo.com/news/articles/moved-silicon-valley-fortune-instead-141626706.html)
-- Sep 08 - [Trump administration tells Supreme Court that handing out $4B foreign aid poses ‘grave’ threat to presidency](https://www.yahoo.com/news/articles/trump-administration-tells-supreme-court-174642591.html)
+- Sep 08 - [Sunny Hostin slams RFK Jr. for limiting COVID vaccine access after in-laws died of disease: 'A horrible loss'](https://www.yahoo.com/entertainment/tv/articles/sunny-hostin-slams-rfk-jr-192209493.html)
+- Sep 08 - [Democrats release suggestive letter to Epstein purportedly signed by Trump, which he denies](https://www.yahoo.com/news/articles/democrats-release-suggestive-letter-epstein-191224400.html)
+- Sep 08 - [‘Catastrophic injuries’: Family suing truck company, driver after I-35 bridge crash](https://www.yahoo.com/news/articles/catastrophic-injuries-family-suing-truck-174412753.html)
 - Sep 08 - [Fed nominee Miran must resign from White House, Democratic lawmakers say](https://www.yahoo.com/news/articles/fed-nominee-miran-must-resign-174200747.html)
-- Sep 08 - ['I Ate More Protein And My Hair Got Noticeably Thicker. Here's Why—And What To Eat For Results.'](https://health.yahoo.com/your-body/hair-loss/articles/ate-more-protein-hair-got-172300998.html)
-- Sep 08 - [GBU-57 Massive Ordnance Penetrator’s Replacement Prototypes Just Ordered By USAF](https://www.yahoo.com/news/articles/gbu-57-massive-ordnance-perpetrator-171924723.html)
+- Sep 08 - [What's that new restaurant on Montana Avenue coming to East El Paso?](https://www.yahoo.com/news/articles/whats-restaurant-montana-avenue-coming-163800301.html)
 <!-- feed end -->
 
 ---
