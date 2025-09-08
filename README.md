@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [In-N-Out site plan denied by Smyrna planning commission. Here's why](https://www.yahoo.com/news/articles/n-plan-denied-smyrna-planning-164050541.html)
+- Sep 08 - [Trump administration tells Supreme Court that handing out $4B foreign aid poses ‘grave’ threat to presidency](https://www.yahoo.com/news/articles/trump-administration-tells-supreme-court-174642591.html)
+- Sep 08 - [Fed nominee Miran must resign from White House, Democratic lawmakers say](https://www.yahoo.com/news/articles/fed-nominee-miran-must-resign-174200747.html)
+- Sep 08 - [Florida parents take gender pronoun dispute at school to U.S. Supreme Court](https://www.yahoo.com/news/articles/florida-parents-gender-pronoun-dispute-172247858.html)
+- Sep 08 - [Shark kills surfer in Australia who 'lost a number of limbs': Police](https://www.yahoo.com/news/articles/shark-kills-surfer-australia-lost-162301136.html)
 - Sep 08 - [Supreme Court lifts restrictions on LA immigration stops set after agents swept up US citizens](https://www.yahoo.com/news/articles/supreme-court-lifts-restrictions-la-153725879.html)
-- Sep 08 - [Thune says Senate will change the rules to push through Trump's blocked nominees](https://www.yahoo.com/news/articles/thune-says-senate-change-rules-152256331.html)
-- Sep 08 - [Officials raise red flag on disturbing phenomenon that killed more than 100 hikers this summer: 'Too many'](https://www.yahoo.com/news/articles/officials-raise-red-flag-disturbing-143000892.html)
-- Sep 08 - [Archaeologists Found a Smoking Gun Behind the End of the Maya Kingdom’s Reign](https://www.yahoo.com/news/articles/archaeologists-found-smoking-gun-behind-141800275.html)
 <!-- feed end -->
 
 ---
