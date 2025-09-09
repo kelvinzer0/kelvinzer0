@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [China Fires Up Reusable Zhuque-3 Rocket Ahead Of Maiden Flight](https://www.yahoo.com/news/videos/china-fires-reusable-zhuque-3-160000779.html)
+- Sep 09 - [BBC boss: We need to serve Reform voters](https://www.yahoo.com/news/articles/bbc-boss-serve-reform-voters-114908937.html)
+- Sep 09 - [Tampa Bay Rays' Wander Franco has been detained and admitted into a clinic for mental health issues](https://sports.yahoo.com/article/tampa-bay-rays-wander-franco-161610356.html)
+- Sep 09 - [Police arrest 13-year-old boy with 23 guns over school shooting threats](https://www.yahoo.com/news/articles/police-arrest-13-old-boy-160134864.html)
 - Sep 09 - [Amy Coney Barrett Gives Least Reassuring Answer on Trump Third Term](https://www.yahoo.com/news/articles/amy-coney-barrett-gives-least-145746420.html)
 - Sep 09 - [Michigan judge tosses case against 15 accused fake electors for President Donald Trump in 2020](https://www.yahoo.com/news/articles/michigan-judge-tosses-case-against-142716148.html)
-- Sep 09 - [Florida’s surgeon general said he didn’t calculate the costs of ending vaccine mandates in the state. But scientists have.](https://www.yahoo.com/news/articles/florida-surgeon-general-said-didn-114808311.html)
-- Sep 09 - [Sweden to reduce age of criminal responsibility as gangs hire children as hitmen](https://www.yahoo.com/news/articles/sweden-reduce-age-criminal-responsibility-133126096.html)
 <!-- feed end -->
 
 ---
