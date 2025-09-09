@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 08 - [Thailand's top court to deliver judgment on tycoon Thaksin dodging jail](https://www.yahoo.com/news/articles/thailands-top-court-deliver-judgment-230359556.html)
-- Sep 08 - [Huntsville mayor welcomes U.S. Space Command commander to town](https://www.yahoo.com/news/articles/huntsville-mayor-welcomes-u-space-220216236.html)
-- Sep 08 - [White House Melts Down Over Proof of Trump’s Gross Letter to Epstein](https://www.yahoo.com/news/articles/white-house-melts-down-over-214440381.html)
-- Sep 08 - [Donald Trump Rebrands the White House Rose Garden Patio, and Its Controversial New Name Has a Very Mar-a-Lago Twist](https://www.yahoo.com/news/articles/donald-trump-rebrands-white-house-205830450.html)
+- Sep 09 - [Avi Loeb on how he'll determine if 3I/ATLAS is 'alien tech' | Elizabeth Vargas Reports](https://www.yahoo.com/news/videos/avi-loeb-hell-determine-3i-001246055.html)
 - Sep 08 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
+- Sep 08 - [Husband Speaks Out amid Divorce from Woman Caught on Camera with Her Boss at Coldplay Concert (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/husband-speaks-amid-divorce-woman-232749435.html)
+- Sep 08 - [Teens at Waffle House jump over counter, attack employee, Cobb County police say](https://www.yahoo.com/news/articles/teens-waffle-house-jump-over-193636185.html)
+- Sep 08 - [‘I couldn’t even scream’: Jogger brutally attacked in Rocky River Reservation](https://www.yahoo.com/news/articles/couldn-t-even-scream-jogger-222220088.html)
 <!-- feed end -->
 
 ---
