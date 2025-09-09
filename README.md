@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Stewart agrees that the president doesn’t seem to be in the best state.](https://www.yahoo.com/news/videos/stewart-agrees-president-doesn-t-043419029.html)
-- Sep 09 - [‘Putin wants us to panic’: Why Russia launched the largest aerial strike of the war so far](https://www.yahoo.com/news/articles/trying-sow-fear-russia-amped-154821188.html)
-- Sep 09 - [Goldman says to buy these 3 areas of the stock market poised to dominate through the end of 2025](https://finance.yahoo.com/news/goldman-says-buy-3-areas-000858762.html)
+- Sep 09 - [Heroes and villains: Russia braces for eventual return of its enormous army](https://www.yahoo.com/news/articles/heroes-villains-russia-braces-eventual-051526311.html)
+- Sep 09 - [Africa's Largest Hydroelectric Dam to Power Ethiopia](https://finance.yahoo.com/video/africas-largest-hydroelectric-dam-power-051327317.html)
+- Sep 09 - [Avi Loeb on how he'll determine if 3I/ATLAS is 'alien tech' | Elizabeth Vargas Reports](https://www.yahoo.com/news/videos/avi-loeb-hell-determine-3i-001246055.html)
+- Sep 08 - [Flotilla for Gaza says boat struck by drone at Tunisian port, authorities deny strike](https://www.yahoo.com/news/articles/flotilla-gaza-says-boat-struck-235813749.html)
 - Sep 08 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
-- Sep 08 - [Husband Speaks Out amid Divorce from Woman Caught on Camera with Her Boss at Coldplay Concert (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/husband-speaks-amid-divorce-woman-232749435.html)
 <!-- feed end -->
 
 ---
