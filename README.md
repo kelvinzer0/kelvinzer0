@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Hardware vs. IP: How to trade the gaming industry](https://finance.yahoo.com/video/hardware-vs-ip-trade-gaming-183000002.html)
+- Sep 09 - [Top US immigration official defends new rule targeting 'anti-American' views in immigration benefits](https://www.yahoo.com/news/articles/top-us-immigration-official-defends-192902833.html)
+- Sep 09 - [A dead body was reportedly found in singer D4vd's impounded car: What we know](https://www.yahoo.com/entertainment/music/article/a-dead-body-was-reportedly-found-in-singer-d4vds-impounded-car-what-we-know-192055745.html)
+- Sep 09 - [Trump press secretary hurls another accusation at Democrats—and is immediately slammed](https://www.yahoo.com/news/articles/trump-press-secretary-hurls-another-185559992.html)
+- Sep 09 - [Wildlife rescuers issue warning after responding to tragic incident on local road: 'These calls never get easier'](https://www.yahoo.com/news/articles/wildlife-rescuers-issue-warning-responding-180000169.html)
 - Sep 09 - [Oliver North marries Fawn Hall, his document-shredding secretary at the center of Iran-Contra scandal](https://www.yahoo.com/news/articles/oliver-north-marries-fawn-hall-170152739.html)
-- Sep 09 - [UFC fighters are finally getting their money: Antitrust payouts explained, from highest earners to next steps](https://sports.yahoo.com/mma/article/ufc-fighters-are-finally-getting-their-money-antitrust-payouts-explained-from-highest-earners-to-next-steps-170537959.html)
-- Sep 09 - [Hosts of Fox & Friends Brian Kilmeade seemed to take a dim view Tuesday of the Trump administration’s decision to effectively shut down the Department of Education.](https://www.yahoo.com/news/videos/hosts-fox-friends-brian-kilmeade-165513358.html)
-- Sep 09 - [Moskowitz On UFOs: 'We Are Definitely Being Lied To'](https://www.yahoo.com/news/videos/moskowitz-ufos-definitely-being-lied-163200084.html)
 <!-- feed end -->
 
 ---
