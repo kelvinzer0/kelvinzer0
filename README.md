@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Residents take action amid worsening crisis at local lake: 'It's sort of like hand-harvesting on steroids'](https://www.yahoo.com/news/articles/residents-action-amid-worsening-crisis-090000584.html)
+- Sep 09 - [I was in the stands as Donald Trump watched the US Open. Here’s what really happened](https://www.yahoo.com/news/articles/stands-donald-trump-watched-us-111150392.html)
+- Sep 09 - [Researchers issue warning after discovering concerning pattern along US coastline: 'Something is going on, and it is real'](https://www.yahoo.com/news/articles/researchers-issue-warning-discovering-concerning-101000757.html)
+- Sep 09 - [Mortgage and refinance interest rates today, September 9, 2025: Why rates are on a deep slide before the Fed meeting](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-rates-today-tuesday-september-9-2025-100100387.html)
+- Sep 09 - [The conservative justice was asked whether the 22nd Amendment barring more than two presidential terms was “cut-and-dried.”](https://www.yahoo.com/news/videos/conservative-justice-asked-whether-22nd-095113700.html)
 - Sep 09 - [India revs up alternate EV motor tests as China curbs rare earths exports](https://finance.yahoo.com/news/india-revs-alternate-ev-motor-062254794.html)
-- Sep 09 - [Heroes and villains: Russia braces for eventual return of its enormous army](https://www.yahoo.com/news/articles/heroes-villains-russia-braces-eventual-051526311.html)
-- Sep 09 - [Big lottery prizes won in Ashwaubenon, Winneconne, Neenah and Sister Bay](https://www.yahoo.com/news/articles/big-lottery-prizes-won-ashwaubenon-030848433.html)
-- Sep 09 - [Tesla raises eyebrows after major Cybertruck announcement in key market: 'Probably going to be just as niche'](https://autos.yahoo.com/ev-and-future-tech/articles/tesla-raises-eyebrows-major-cybertruck-014500951.html)
 <!-- feed end -->
 
 ---
