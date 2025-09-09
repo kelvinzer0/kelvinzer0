@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Norway says it seeks to keep large US investments despite Caterpillar brawl](https://finance.yahoo.com/news/norway-says-seeks-keep-large-131215179.html)
+- Sep 09 - [Ghislaine Maxwell Lawyer Makes Stunning Quid Pro Quo Confession](https://www.yahoo.com/news/articles/ghislaine-maxwell-lawyer-makes-stunning-132630239.html)
+- Sep 09 - [Car crashes into California jewelry store, robbers steal thousands](https://www.yahoo.com/news/videos/car-crashes-california-jewelry-store-124345806.html)
+- Sep 09 - [Florida’s surgeon general said he didn’t calculate the costs of ending vaccine mandates in the state. But scientists have.](https://www.yahoo.com/news/articles/florida-surgeon-general-said-didn-114808311.html)
 - Sep 09 - [I was in the stands as Donald Trump watched the US Open. Here’s what really happened](https://www.yahoo.com/news/articles/stands-donald-trump-watched-us-111150392.html)
 - Sep 09 - ['The party is over' as European carmakers face tariffs and a price war in China](https://finance.yahoo.com/news/party-over-european-carmakers-face-110127007.html)
-- Sep 09 - [Researchers issue warning after discovering concerning pattern along US coastline: 'Something is going on, and it is real'](https://www.yahoo.com/news/articles/researchers-issue-warning-discovering-concerning-101000757.html)
-- Sep 09 - [The conservative justice was asked whether the 22nd Amendment barring more than two presidential terms was “cut-and-dried.”](https://www.yahoo.com/news/videos/conservative-justice-asked-whether-22nd-095113700.html)
 <!-- feed end -->
 
 ---
