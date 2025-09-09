@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Cenovus Energy must sweeten its bid for MEG Energy, says shareholder who sees 'big move' as unlikely](https://finance.yahoo.com/news/cenovus-energy-must-sweeten-its-bid-for-meg-energy-says-shareholder-who-sees-big-move-as-unlikely-140654868.html)
+- Sep 09 - [Hawley calls for HUD investigation into 'unsafe conditions' at Blue Springs apartment complex](https://www.yahoo.com/news/videos/hawley-calls-hud-investigation-unsafe-215608193.html)
+- Sep 09 - [Israel told US military of plan to strike Hamas, but didn't say where: US official](https://www.yahoo.com/news/articles/israel-told-us-military-plan-212113585.html)
+- Sep 09 - [Police arrested a 13-year-old in Washington state who had ‘everything ready to go’ for a mass shooting](https://www.yahoo.com/news/articles/police-arrested-13-old-washington-204258067.html)
+- Sep 09 - [Apple iPhone 17 hands-on: No Plus, no problem](https://tech.yahoo.com/phones/article/apple-iphone-17-hands-no-192747242.html)
 - Sep 09 - [Rosie O’Donnell Says Security Told Her Not to Come Back to the U.S. for Daughter’s Graduation Due to Trump Feud: He’ll ‘Use Me to Rile His Base’](https://www.yahoo.com/entertainment/celebrity/articles/rosie-o-donnell-says-security-192312546.html)
-- Sep 09 - [UFC fighters are finally getting their money: Antitrust payouts explained, from highest earners to next steps](https://sports.yahoo.com/mma/article/ufc-fighters-are-finally-getting-their-money-antitrust-payouts-explained-from-highest-earners-to-next-steps-170537959.html)
-- Sep 09 - [Hosts of Fox & Friends Brian Kilmeade seemed to take a dim view Tuesday of the Trump administration’s decision to effectively shut down the Department of Education.](https://www.yahoo.com/news/videos/hosts-fox-friends-brian-kilmeade-165513358.html)
-- Sep 09 - [Police arrest 13-year-old boy with 23 guns over school shooting threats](https://www.yahoo.com/news/articles/police-arrest-13-old-boy-160134864.html)
 <!-- feed end -->
 
 ---
