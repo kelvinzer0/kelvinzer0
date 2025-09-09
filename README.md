@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Paramedic details what happened at Jerusalem bus stop shooting | Elizabeth Vargas Reports](https://www.yahoo.com/news/videos/paramedic-details-happened-jerusalem-bus-001800727.html)
-- Sep 09 - [Avi Loeb on how he'll determine if 3I/ATLAS is 'alien tech' | Elizabeth Vargas Reports](https://www.yahoo.com/news/videos/avi-loeb-hell-determine-3i-001246055.html)
+- Sep 09 - [This startup says it can halve the cost of a heat pump — here’s how](https://finance.yahoo.com/news/startup-says-halve-cost-heat-040000275.html)
+- Sep 09 - [Battle Creek shooting leaves one person hurt](https://www.yahoo.com/news/videos/battle-creek-shooting-leaves-one-030922521.html)
 - Sep 08 - [Flotilla for Gaza says boat struck by drone in Tunisian waters, authorities deny](https://www.yahoo.com/news/articles/flotilla-gaza-says-boat-struck-235813749.html)
+- Sep 08 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
 - Sep 08 - [Husband Speaks Out amid Divorce from Woman Caught on Camera with Her Boss at Coldplay Concert (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/husband-speaks-amid-divorce-woman-232749435.html)
-- Sep 08 - [‘I couldn’t even scream’: Jogger brutally attacked in Rocky River Reservation](https://www.yahoo.com/news/articles/couldn-t-even-scream-jogger-222220088.html)
 <!-- feed end -->
 
 ---
