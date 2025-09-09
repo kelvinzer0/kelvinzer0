@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [New Zealand police investigate how a man hid his 3 children in a forest for years without discovery](https://www.yahoo.com/news/articles/zealand-police-investigate-man-hid-075600684.html)
-- Sep 09 - [Africa's Largest Hydroelectric Dam to Power Ethiopia](https://finance.yahoo.com/video/africas-largest-hydroelectric-dam-power-051327317.html)
+- Sep 09 - [In North Korea, mass dances and fireworks mark founding day](https://www.yahoo.com/news/videos/north-korea-mass-dances-fireworks-085559523.html)
+- Sep 09 - [Heroes and villains: Russia braces for eventual return of its enormous army](https://www.yahoo.com/news/articles/heroes-villains-russia-braces-eventual-051526311.html)
+- Sep 09 - ["Just Got My First Tariff Bill": People Are Sharing How The "Trump Tax" Is Showing Up In Their Lives](https://www.yahoo.com/news/articles/just-got-first-tariff-bill-031602020.html)
 - Sep 08 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
 - Sep 08 - [Husband Speaks Out amid Divorce from Woman Caught on Camera with Her Boss at Coldplay Concert (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/husband-speaks-amid-divorce-woman-232749435.html)
-- Sep 08 - [Tesla crashes into CHP motorcycle officer, ejecting him from bike, causing I-280 backup](https://www.yahoo.com/news/articles/tesla-crashes-chp-motorcycle-officer-222343597.html)
 <!-- feed end -->
 
 ---
