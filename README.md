@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 09 - [34 rodent droppings: State inspectors temporarily closed Okaloosa County restaurant](https://www.yahoo.com/news/articles/34-rodent-droppings-state-inspectors-090511980.html)
 - Sep 09 - [In North Korea, mass dances and fireworks mark founding day](https://www.yahoo.com/news/videos/north-korea-mass-dances-fireworks-085559523.html)
 - Sep 09 - [Heroes and villains: Russia braces for eventual return of its enormous army](https://www.yahoo.com/news/articles/heroes-villains-russia-braces-eventual-051526311.html)
-- Sep 09 - ["Just Got My First Tariff Bill": People Are Sharing How The "Trump Tax" Is Showing Up In Their Lives](https://www.yahoo.com/news/articles/just-got-first-tariff-bill-031602020.html)
-- Sep 08 - [These are the conditions that make you eligible for an updated Covid-19 vaccine](https://www.yahoo.com/news/articles/conditions-eligible-updated-covid-19-120006123.html)
-- Sep 08 - [Husband Speaks Out amid Divorce from Woman Caught on Camera with Her Boss at Coldplay Concert (Exclusive)](https://www.yahoo.com/entertainment/celebrity/articles/husband-speaks-amid-divorce-woman-232749435.html)
+- Sep 09 - [Tesla raises eyebrows after major Cybertruck announcement in key market: 'Probably going to be just as niche'](https://autos.yahoo.com/ev-and-future-tech/articles/tesla-raises-eyebrows-major-cybertruck-014500951.html)
+- Sep 09 - [Avi Loeb on how he'll determine if 3I/ATLAS is 'alien tech' | Elizabeth Vargas Reports](https://www.yahoo.com/news/videos/avi-loeb-hell-determine-3i-001246055.html)
 <!-- feed end -->
 
 ---
