@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - ['Here we go': Trump reacts after Russian drones shot down over Poland](https://www.yahoo.com/news/articles/polish-foreign-minister-says-putin-144511437.html)
-- Sep 10 - [At least 4 students injured in shooting at Colorado high school: Officials](https://www.yahoo.com/news/articles/shooting-reported-colorado-high-school-192158104.html)
+- Sep 10 - [AT&T CEO: Apple's iPhone hype days are over —  unless AI can deliver](https://finance.yahoo.com/news/att-ceo-apples-iphone-hype-days-are-over--unless-ai-can-deliver-212653611.html)
 - Sep 10 - [Suspect in N.C. Train Killing of Ukrainian Refugee Speaks Out About Crime from Jail: Report](https://www.yahoo.com/news/articles/suspect-n-c-train-killing-210012637.html)
-- Sep 10 - [The conservative influencer was shot in the neck at a Turning Point USA event at Utah Valley State University.](https://www.yahoo.com/news/videos/local-reports-indicate-suspect-taken-185056134.html)
 - Sep 10 - [‘This changes everything’: NY leaders react to Charlie Kirk shooting](https://www.yahoo.com/news/articles/changes-everything-ny-leaders-react-195346172.html)
+- Sep 10 - [Tuberville blocks measure to prevent Babbitt from receiving military funeral honors](https://www.yahoo.com/news/articles/tuberville-blocks-measure-prevent-babbitt-194652506.html)
+- Sep 10 - [Judge says 3 months in jail are enough for Chinese scientist in US smuggling case](https://www.yahoo.com/news/articles/judge-says-3-months-jail-184621566.html)
 <!-- feed end -->
 
 ---
