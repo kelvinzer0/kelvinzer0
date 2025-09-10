@@ -12,6 +12,19 @@ Here are some insights into my work and skills:
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=kelvinzer0&layout=compact&theme=radical" alt="Kelvin's Top Languages" />
 </p>
 
+---
+
+## 🚀 My Product Ideology
+
+- **MVP (Minimum Viable Product):**  
+  Don’t start by building the full product. *"Sell it first"* through ads or a simple landing page, collect contacts, validate demand, then build the product.
+
+- **GPD (Gather – Plan – Decide):**  
+  Stress and worry don’t help. Gather information → plan → make a decision. Execution > overthinking.
+
+- **Core Principle:**  
+  Building products is easy, but **validating the market is what creates real value**.
+
 ## Professional Credentials
 
 My expertise is backed by various industry certifications. You can view my verified professional credentials on [Credly](https://www.credly.com/users/kelvin-yuli-andrian/badges), which demonstrates my commitment to professional excellence and continuous learning.
