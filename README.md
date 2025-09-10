@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Charlie Kirk Shot at Utah Valley University Event, Suspect in Custody](https://www.yahoo.com/news/articles/charlie-kirk-shot-utah-valley-190123878.html)
-- Sep 10 - [The conservative influencer was rushed to a hospital, but his condition “doesn’t look good,” according to a Turning Point USA spokesperson.](https://www.yahoo.com/news/videos/local-reports-indicate-suspect-taken-185056134.html)
-- Sep 10 - [Judge says 3 months in jail are enough for Chinese scientist in US smuggling case](https://www.yahoo.com/news/articles/judge-says-3-months-jail-184621566.html)
-- Sep 10 - [Appeals court finds Florida's open carry ban unconstitutional](https://www.yahoo.com/news/articles/appeals-court-finds-floridas-open-183520569.html)
-- Sep 10 - [See inside Dwight D. Eisenhower's Air Force One, the only plane of its kind ever built](https://www.yahoo.com/news/articles/see-inside-dwight-d-eisenhowers-183403759.html)
+- Sep 10 - [Starmer facing pressure over Mandelson's Epstein links](https://www.yahoo.com/news/articles/starmer-facing-pressure-over-mandelsons-203303430.html)
+- Sep 10 - [Queens double murder suspect indicted but not jailed for parole violation: sources](https://www.yahoo.com/news/articles/queens-double-murder-suspect-indicted-201615233.html)
+- Sep 10 - [Three people were critically wounded in shooting at a suburban Denver high school, authorities say](https://www.yahoo.com/news/articles/least-2-students-wounded-shooting-193732348.html)
+- Sep 10 - [Boeing Defense, union reach tentative deal to end strike in St. Louis area](https://www.yahoo.com/news/articles/boeing-defense-union-reach-tentative-193503370.html)
+- Sep 10 - [Suspect Still at Large After Charlie Kirk Killed in Utah Valley University Shooting](https://www.yahoo.com/news/articles/charlie-kirk-shot-utah-valley-190123878.html)
 <!-- feed end -->
 
 ---
