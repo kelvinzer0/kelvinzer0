@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Poland and allies down 'huge number' of Russian drones in 'act of aggression'](https://www.yahoo.com/news/articles/polands-armed-forces-down-multiple-050511005.html)
+- Sep 10 - [Scientists make stunning discovery in remote corner of Alaska: 'We were surprised'](https://www.yahoo.com/news/articles/scientists-stunning-discovery-remote-corner-030000749.html)
+- Sep 10 - [The teenager is reportedly moving in at the White House.](https://www.yahoo.com/news/videos/teenager-reportedly-moving-white-house-012911948.html)
 - Sep 10 - [Qatar calls for retaliation against Israel for strike in Doha](https://www.yahoo.com/news/articles/qatar-calls-retaliation-against-israel-011833568.html)
 - Sep 10 - [Burning Man festival sparks outrage after troubling video surfaces from desert: 'Isn't that completely against the whole idea?'](https://www.yahoo.com/news/articles/burning-man-festival-sparks-outrage-001000426.html)
 - Sep 09 - [Democrat wins special election in Virginia, shrinking House Republican majority](https://www.yahoo.com/news/articles/democrat-wins-special-election-virginia-235830728.html)
-- Sep 09 - [Grove of giant sequoia trees burns in California's Sierra National Forest](https://www.yahoo.com/news/articles/grove-giant-sequoia-trees-burns-223618536.html)
 <!-- feed end -->
 
 ---
