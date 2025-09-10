@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [How long had Israel been planning its attack in Qatar?](https://www.yahoo.com/news/articles/long-had-israel-planning-attack-155428119.html)
-- Sep 10 - [Four guilty of murdering man by stab wound to heart](https://www.yahoo.com/news/articles/four-guilty-murdering-man-stab-130630246.html)
+- Sep 10 - [Labor Department to audit BLS's data collection and reporting](https://www.yahoo.com/news/articles/labor-department-audit-blss-data-162455265.html)
+- Sep 10 - [New Orleans Dad Of Three Earning Up To $20,000 A Month Seeks Help As Wife's $5,000 Credit Card Bills Cause 'Chaos'](https://finance.yahoo.com/news/orleans-dad-three-earning-20-160010651.html)
+- Sep 10 - [West Allis woman charged with homicide in crash that killed 2 Marquette lacrosse players](https://www.yahoo.com/news/articles/west-allis-woman-charged-homicide-152531792.html)
+- Sep 10 - [Astronomers get best view yet of two merging black holes](https://www.yahoo.com/news/articles/astronomers-best-view-yet-two-150853642.html)
 - Sep 10 - [New findings by NASA Mars rover provide strongest hints yet of potential signs of ancient life](https://www.yahoo.com/news/articles/findings-nasa-mars-rover-strongest-150137880.html)
-- Sep 10 - [Israel attacks Sanaa, al-Jawf in latest strikes on Houthis](https://www.yahoo.com/news/articles/israel-strikes-yemens-sanaa-houthi-142219669.html)
-- Sep 10 - [NATO allies held Article 4 consultations after Russian drone incursion. Here's what that means](https://www.yahoo.com/news/articles/nato-allies-held-article-4-125933772.html)
 <!-- feed end -->
 
 ---
