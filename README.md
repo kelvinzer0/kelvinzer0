@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [5 Top Dividend Stocks Yielding 5% or More That You Shouldn't Hesitate to Buy Right Now](https://finance.yahoo.com/news/5-top-dividend-stocks-yielding-101700579.html)
-- Sep 10 - [US misses out on billions in China soybean sales midway through peak season](https://finance.yahoo.com/news/us-misses-billions-china-soybean-045132067.html)
-- Sep 10 - [Qatar calls for retaliation against Israel for strike in Doha](https://www.yahoo.com/news/articles/qatar-calls-retaliation-against-israel-011833568.html)
-- Sep 10 - [Burning Man festival sparks outrage after troubling video surfaces from desert: 'Isn't that completely against the whole idea?'](https://www.yahoo.com/news/articles/burning-man-festival-sparks-outrage-001000426.html)
-- Sep 09 - [Democrat wins special election in Virginia, shrinking House Republican majority](https://www.yahoo.com/news/articles/democrat-wins-special-election-virginia-235830728.html)
+- Sep 10 - [UPDATE: Coroner responds to crash in Clark County](https://www.yahoo.com/news/articles/state-troopers-respond-serious-crash-101025955.html)
+- Sep 10 - [Hillary Clinton Says Trump Administration Is 'Going Great' For The President, Shares Accusations Of Crypto Corruption](https://finance.yahoo.com/news/hillary-clinton-says-trump-administration-094603750.html)
+- Sep 10 - [Jim Rogers warns of worst market crash in his life — these are the safe-haven assets he is banking on](https://finance.yahoo.com/news/jim-rogers-warns-worst-market-091300689.html)
+- Sep 10 - [Prediction: After Slumping by 12% So Far This Year, This High-Yield Dividend Stock Is Poised to Bounce Back Big-Time](https://finance.yahoo.com/news/prediction-slumping-12-far-high-082200102.html)
+- Sep 10 - [Officials issue sweeping ban that will have major impact on retail stores — here's what's happening](https://www.yahoo.com/news/articles/officials-issue-sweeping-ban-major-020000291.html)
 <!-- feed end -->
 
 ---
