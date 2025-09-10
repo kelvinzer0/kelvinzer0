@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 09 - [Police arrested a 13-year-old in Washington state who had ‘everything ready to go’ for a mass shooting](https://www.yahoo.com/news/articles/police-arrested-13-old-washington-204258067.html)
-- Sep 09 - [Wharton professor issues gruesome warning on Bitcoin](https://finance.yahoo.com/news/wharton-professor-issues-gruesome-warning-194056715.html)
+- Sep 10 - [More children are obese than underweight, says Unicef](https://www.yahoo.com/news/articles/more-children-obese-underweight-says-004603194.html)
+- Sep 10 - [Ramsey Show Erupts After Woman Says She Doesn't Want $600,000 Rolls-Royce, Husband Makes Millions In Crypto But Buys Wrong Color Car](https://finance.yahoo.com/news/ramsey-show-erupts-woman-says-003042865.html)
+- Sep 09 - [Democrat wins special election in Virginia, shrinking House Republican majority](https://www.yahoo.com/news/articles/democrat-wins-special-election-virginia-235830728.html)
+- Sep 09 - [Grove of giant sequoia trees burns in California's Sierra National Forest](https://www.yahoo.com/news/articles/grove-giant-sequoia-trees-burns-223618536.html)
 - Sep 09 - [Apple iPhone 17 hands-on: No Plus, no problem](https://tech.yahoo.com/phones/article/apple-iphone-17-hands-no-192747242.html)
-- Sep 09 - [Rosie O’Donnell Says Security Told Her Not to Come Back to the U.S. for Daughter’s Graduation Due to Trump Feud: He’ll ‘Use Me to Rile His Base’](https://www.yahoo.com/entertainment/celebrity/articles/rosie-o-donnell-says-security-192312546.html)
-- Sep 09 - [Dozens of cargo containers spill into Port of Long Beach](https://www.yahoo.com/news/articles/dozens-cargo-containers-spill-port-175454573.html)
 <!-- feed end -->
 
 ---
