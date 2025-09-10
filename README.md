@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Trump responds after NATO forces shoot down Russian drones in Polish airspace](https://www.yahoo.com/news/articles/trump-responds-nato-forces-shoot-174919698.html)
-- Sep 10 - [“The Long Knives Are Out” For NVIDIA Corporation (NVDA), Says Jim Cramer](https://finance.yahoo.com/news/long-knives-nvidia-corporation-nvda-172839015.html)
-- Sep 10 - [When is the iPhone 17 coming out? What to know in Tennessee after Apple reveals new updates, features](https://www.yahoo.com/news/articles/iphone-17-coming-know-tennessee-172500339.html)
-- Sep 10 - [Four guilty of murdering man by stab wound to heart](https://www.yahoo.com/news/articles/four-guilty-murdering-man-stab-130630246.html)
-- Sep 10 - [Schumer moves to force vote on Epstein files release in brazen breach of Senate protocol](https://www.yahoo.com/news/articles/schumer-moves-force-vote-epstein-162254320.html)
+- Sep 10 - [Charlie Kirk Shot at Utah Valley University Event, Suspect in Custody](https://www.yahoo.com/news/articles/charlie-kirk-shot-utah-valley-190123878.html)
+- Sep 10 - [Prince Harry meets King for 54 minutes](https://www.yahoo.com/lifestyle/articles/prince-harry-arrives-clarence-house-164042467.html)
+- Sep 10 - [After Unprecedented Night Of Downing Drones Over Poland, NATO Reports No Posture Changes (Updated)](https://www.yahoo.com/news/articles/unprecedented-night-downing-drones-over-172047173.html)
+- Sep 10 - [New findings by NASA Mars rover provide strongest hints yet of potential signs of ancient life](https://www.yahoo.com/news/articles/findings-nasa-mars-rover-strongest-150137880.html)
+- Sep 10 - [Israel attacks Sanaa, al-Jawf in latest strikes on Houthis](https://www.yahoo.com/news/articles/israel-strikes-yemens-sanaa-houthi-142219669.html)
 <!-- feed end -->
 
 ---
