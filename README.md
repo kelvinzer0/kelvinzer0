@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [UPDATE: Coroner responds to crash in Clark County](https://www.yahoo.com/news/articles/state-troopers-respond-serious-crash-101025955.html)
+- Sep 10 - [Bain Capital to sell China data centre business to Chinese consortium for $3.9 billion](https://tech.yahoo.com/business/articles/bain-capital-sell-china-data-125341980.html)
+- Sep 10 - [Waymo Robotaxis Face New Challenger in Atlanta](https://finance.yahoo.com/news/waymo-robotaxis-face-challenger-atlanta-120000391.html)
+- Sep 10 - [Harris Opens Up About Biden’s Decision to Run for Reelection](https://www.yahoo.com/news/videos/harris-opens-biden-decision-run-112634545.html)
 - Sep 10 - [Hillary Clinton Says Trump Administration Is 'Going Great' For The President, Shares Accusations Of Crypto Corruption](https://finance.yahoo.com/news/hillary-clinton-says-trump-administration-094603750.html)
-- Sep 10 - [Jim Rogers warns of worst market crash in his life — these are the safe-haven assets he is banking on](https://finance.yahoo.com/news/jim-rogers-warns-worst-market-091300689.html)
-- Sep 10 - [Prediction: After Slumping by 12% So Far This Year, This High-Yield Dividend Stock Is Poised to Bounce Back Big-Time](https://finance.yahoo.com/news/prediction-slumping-12-far-high-082200102.html)
-- Sep 10 - [Officials issue sweeping ban that will have major impact on retail stores — here's what's happening](https://www.yahoo.com/news/articles/officials-issue-sweeping-ban-major-020000291.html)
+- Sep 10 - ['It's too late': Pilots' final words captured before fatal 2024 highway crash in Naples, FL](https://www.yahoo.com/news/articles/too-pilots-final-words-captured-090311805.html)
 <!-- feed end -->
 
 ---
