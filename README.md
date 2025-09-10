@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Starmer facing pressure over Mandelson's Epstein links](https://www.yahoo.com/news/articles/starmer-facing-pressure-over-mandelsons-203303430.html)
-- Sep 10 - [Queens double murder suspect indicted but not jailed for parole violation: sources](https://www.yahoo.com/news/articles/queens-double-murder-suspect-indicted-201615233.html)
-- Sep 10 - [Three people were critically wounded in shooting at a suburban Denver high school, authorities say](https://www.yahoo.com/news/articles/least-2-students-wounded-shooting-193732348.html)
-- Sep 10 - [Boeing Defense, union reach tentative deal to end strike in St. Louis area](https://www.yahoo.com/news/articles/boeing-defense-union-reach-tentative-193503370.html)
-- Sep 10 - [Suspect Still at Large After Charlie Kirk Killed in Utah Valley University Shooting](https://www.yahoo.com/news/articles/charlie-kirk-shot-utah-valley-190123878.html)
+- Sep 10 - ['Here we go': Trump reacts after Russian drones shot down over Poland](https://www.yahoo.com/news/articles/polish-foreign-minister-says-putin-144511437.html)
+- Sep 10 - [At least 4 students injured in shooting at Colorado high school: Officials](https://www.yahoo.com/news/articles/shooting-reported-colorado-high-school-192158104.html)
+- Sep 10 - [Suspect in N.C. Train Killing of Ukrainian Refugee Speaks Out About Crime from Jail: Report](https://www.yahoo.com/news/articles/suspect-n-c-train-killing-210012637.html)
+- Sep 10 - [The conservative influencer was shot in the neck at a Turning Point USA event at Utah Valley State University.](https://www.yahoo.com/news/videos/local-reports-indicate-suspect-taken-185056134.html)
+- Sep 10 - [‘This changes everything’: NY leaders react to Charlie Kirk shooting](https://www.yahoo.com/news/articles/changes-everything-ny-leaders-react-195346172.html)
 <!-- feed end -->
 
 ---
