@@ -27,8 +27,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Scientists make stunning discovery in remote corner of Alaska: 'We were surprised'](https://www.yahoo.com/news/articles/scientists-stunning-discovery-remote-corner-030000749.html)
-- Sep 10 - [The teenager is reportedly moving in at the White House.](https://www.yahoo.com/news/videos/teenager-reportedly-moving-white-house-012911948.html)
+- Sep 10 - [5 Top Dividend Stocks Yielding 5% or More That You Shouldn't Hesitate to Buy Right Now](https://finance.yahoo.com/news/5-top-dividend-stocks-yielding-101700579.html)
+- Sep 10 - [US misses out on billions in China soybean sales midway through peak season](https://finance.yahoo.com/news/us-misses-billions-china-soybean-045132067.html)
 - Sep 10 - [Qatar calls for retaliation against Israel for strike in Doha](https://www.yahoo.com/news/articles/qatar-calls-retaliation-against-israel-011833568.html)
 - Sep 10 - [Burning Man festival sparks outrage after troubling video surfaces from desert: 'Isn't that completely against the whole idea?'](https://www.yahoo.com/news/articles/burning-man-festival-sparks-outrage-001000426.html)
 - Sep 09 - [Democrat wins special election in Virginia, shrinking House Republican majority](https://www.yahoo.com/news/articles/democrat-wins-special-election-virginia-235830728.html)
