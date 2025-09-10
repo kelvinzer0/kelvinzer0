@@ -41,10 +41,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 10 - [Charlie Kirk Shot at Utah Valley University Event, Suspect in Custody](https://www.yahoo.com/news/articles/charlie-kirk-shot-utah-valley-190123878.html)
-- Sep 10 - [Prince Harry meets King for 54 minutes](https://www.yahoo.com/lifestyle/articles/prince-harry-arrives-clarence-house-164042467.html)
-- Sep 10 - [After Unprecedented Night Of Downing Drones Over Poland, NATO Reports No Posture Changes (Updated)](https://www.yahoo.com/news/articles/unprecedented-night-downing-drones-over-172047173.html)
-- Sep 10 - [New findings by NASA Mars rover provide strongest hints yet of potential signs of ancient life](https://www.yahoo.com/news/articles/findings-nasa-mars-rover-strongest-150137880.html)
-- Sep 10 - [Israel attacks Sanaa, al-Jawf in latest strikes on Houthis](https://www.yahoo.com/news/articles/israel-strikes-yemens-sanaa-houthi-142219669.html)
+- Sep 10 - [The conservative influencer was rushed to a hospital, but his condition “doesn’t look good,” according to a Turning Point USA spokesperson.](https://www.yahoo.com/news/videos/local-reports-indicate-suspect-taken-185056134.html)
+- Sep 10 - [Judge says 3 months in jail are enough for Chinese scientist in US smuggling case](https://www.yahoo.com/news/articles/judge-says-3-months-jail-184621566.html)
+- Sep 10 - [Appeals court finds Florida's open carry ban unconstitutional](https://www.yahoo.com/news/articles/appeals-court-finds-floridas-open-183520569.html)
+- Sep 10 - [See inside Dwight D. Eisenhower's Air Force One, the only plane of its kind ever built](https://www.yahoo.com/news/articles/see-inside-dwight-d-eisenhowers-183403759.html)
 <!-- feed end -->
 
 ---
