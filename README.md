@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [imec CEO on Global AI Ecosystem](https://finance.yahoo.com/video/imec-ceo-global-ai-ecosystem-054848756.html)
-- Sep 10 - [Qatar calls for retaliation against Israel for strike in Doha](https://www.yahoo.com/news/articles/qatar-calls-retaliation-against-israel-011833568.html)
+- Sep 10 - [Poland's armed forces down multiple Russian drones in airspace violation](https://www.yahoo.com/news/articles/polands-armed-forces-down-multiple-050511005.html)
+- Sep 10 - [Poland Shoots Down Russian Drones, Condemns Incursion](https://finance.yahoo.com/video/poland-shoots-down-russian-drones-061759581.html)
 - Sep 10 - [Burning Man festival sparks outrage after troubling video surfaces from desert: 'Isn't that completely against the whole idea?'](https://www.yahoo.com/news/articles/burning-man-festival-sparks-outrage-001000426.html)
 - Sep 09 - [Democrat wins special election in Virginia, shrinking House Republican majority](https://www.yahoo.com/news/articles/democrat-wins-special-election-virginia-235830728.html)
-- Sep 09 - [This East Peoria restaurant has closed its doors. Here's what to know](https://www.yahoo.com/news/articles/east-peoria-restaurant-closed-doors-215238825.html)
+- Sep 09 - [UFO hearing: Newly released video appears to show US missile bouncing off object](https://www.yahoo.com/news/articles/congressman-shows-never-seen-video-230028789.html)
 <!-- feed end -->
 
 ---
