@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Police in Poland village secure parts of a damaged object after it was shot down](https://www.yahoo.com/news/videos/police-poland-village-secure-parts-145744765.html)
+- Sep 10 - [How long had Israel been planning its attack in Qatar?](https://www.yahoo.com/news/articles/long-had-israel-planning-attack-155428119.html)
+- Sep 10 - [Four guilty of murdering man by stab wound to heart](https://www.yahoo.com/news/articles/four-guilty-murdering-man-stab-130630246.html)
+- Sep 10 - [New findings by NASA Mars rover provide strongest hints yet of potential signs of ancient life](https://www.yahoo.com/news/articles/findings-nasa-mars-rover-strongest-150137880.html)
 - Sep 10 - [Israel attacks Sanaa, al-Jawf in latest strikes on Houthis](https://www.yahoo.com/news/articles/israel-strikes-yemens-sanaa-houthi-142219669.html)
-- Sep 10 - [EU chief says Europe in ‘a fight for our future’](https://www.yahoo.com/news/articles/eu-chief-says-europe-fight-141330498.html)
 - Sep 10 - [NATO allies held Article 4 consultations after Russian drone incursion. Here's what that means](https://www.yahoo.com/news/articles/nato-allies-held-article-4-125933772.html)
-- Sep 10 - [PsiQuantum valued at $7 billion in latest funding round, teams up with Nvidia](https://finance.yahoo.com/news/psiquantum-valued-7-billion-latest-110302668.html)
 <!-- feed end -->
 
 ---
