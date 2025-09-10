@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Trump Family-Backed Bitcoin Play Surges On Big Stake](https://www.investors.com/news/trump-family-american-bitcoin-abtc-stock-dominari-holdings-stake/?src=A00220&yptr=yahoo)
-- Sep 10 - [Oracle Missed Q1 Top and Bottom Lines -- Here's Why the Stock Jumping](https://finance.yahoo.com/news/oracle-missed-q1-top-bottom-132244822.html)
+- Sep 10 - [Police in Poland village secure parts of a damaged object after it was shot down](https://www.yahoo.com/news/videos/police-poland-village-secure-parts-145744765.html)
+- Sep 10 - [Israel attacks Sanaa, al-Jawf in latest strikes on Houthis](https://www.yahoo.com/news/articles/israel-strikes-yemens-sanaa-houthi-142219669.html)
+- Sep 10 - [EU chief says Europe in ‘a fight for our future’](https://www.yahoo.com/news/articles/eu-chief-says-europe-fight-141330498.html)
 - Sep 10 - [NATO allies held Article 4 consultations after Russian drone incursion. Here's what that means](https://www.yahoo.com/news/articles/nato-allies-held-article-4-125933772.html)
-- Sep 10 - [Is Nato sliding towards war with Russia?](https://www.yahoo.com/news/articles/nato-sliding-towards-war-russia-122344400.html)
-- Sep 10 - [Jim Rogers warns of worst market crash in his life — these are the safe-haven assets he is banking on](https://finance.yahoo.com/news/jim-rogers-warns-worst-market-091300689.html)
+- Sep 10 - [PsiQuantum valued at $7 billion in latest funding round, teams up with Nvidia](https://finance.yahoo.com/news/psiquantum-valued-7-billion-latest-110302668.html)
 <!-- feed end -->
 
 ---
