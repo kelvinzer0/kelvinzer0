@@ -27,11 +27,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 10 - [Bain Capital to sell China data centre business to Chinese consortium for $3.9 billion](https://tech.yahoo.com/business/articles/bain-capital-sell-china-data-125341980.html)
-- Sep 10 - [Waymo Robotaxis Face New Challenger in Atlanta](https://finance.yahoo.com/news/waymo-robotaxis-face-challenger-atlanta-120000391.html)
-- Sep 10 - [Harris Opens Up About Biden’s Decision to Run for Reelection](https://www.yahoo.com/news/videos/harris-opens-biden-decision-run-112634545.html)
-- Sep 10 - [Hillary Clinton Says Trump Administration Is 'Going Great' For The President, Shares Accusations Of Crypto Corruption](https://finance.yahoo.com/news/hillary-clinton-says-trump-administration-094603750.html)
-- Sep 10 - ['It's too late': Pilots' final words captured before fatal 2024 highway crash in Naples, FL](https://www.yahoo.com/news/articles/too-pilots-final-words-captured-090311805.html)
+- Sep 10 - [Trump Family-Backed Bitcoin Play Surges On Big Stake](https://www.investors.com/news/trump-family-american-bitcoin-abtc-stock-dominari-holdings-stake/?src=A00220&yptr=yahoo)
+- Sep 10 - [Oracle Missed Q1 Top and Bottom Lines -- Here's Why the Stock Jumping](https://finance.yahoo.com/news/oracle-missed-q1-top-bottom-132244822.html)
+- Sep 10 - [NATO allies held Article 4 consultations after Russian drone incursion. Here's what that means](https://www.yahoo.com/news/articles/nato-allies-held-article-4-125933772.html)
+- Sep 10 - [Is Nato sliding towards war with Russia?](https://www.yahoo.com/news/articles/nato-sliding-towards-war-russia-122344400.html)
+- Sep 10 - [Jim Rogers warns of worst market crash in his life — these are the safe-haven assets he is banking on](https://finance.yahoo.com/news/jim-rogers-warns-worst-market-091300689.html)
 <!-- feed end -->
 
 ---
