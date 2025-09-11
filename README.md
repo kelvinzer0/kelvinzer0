@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [The Mysterious Object Cruising Toward Mars Is Doing Something Very Peculiar](https://www.yahoo.com/news/articles/mysterious-object-cruising-toward-mars-163300900.html)
-- Sep 11 - [Japanese Warship Fires Railgun At Target Vessel For The First Time](https://www.yahoo.com/news/articles/japanese-warship-fires-railgun-target-161349441.html)
-- Sep 11 - [I’m 80 and my RMD is $300,000. What the heck am I supposed to do about my huge tax bill?](https://finance.yahoo.com/news/m-80-rmd-300-000-203000902.html)
-- Sep 11 - [India's Adani bans entry of sanctioned ships at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
-- Sep 11 - [Elite Sniper Uncovers Charlie Kirk Assassin’s Critical Error](https://www.yahoo.com/news/articles/elite-sniper-uncovers-charlie-kirk-134509897.html)
+- Sep 11 - [If You're Wondering What Charlie Kirk Believed In, Here Are 14 Real Quotes](https://www.yahoo.com/news/articles/following-death-14-quotes-thoughts-195129835.html)
+- Sep 11 - [Trump Keeps Making This Dangerous Threat — And Experts Say It's Becoming More Credible](https://www.yahoo.com/news/articles/trump-keeps-making-dangerous-threat-180950276.html)
+- Sep 11 - [West Palm Beach cancels popular downtown concert series, movie night event](https://www.yahoo.com/news/articles/west-palm-beach-cancels-popular-180406169.html)
+- Sep 11 - [Girl, 7, Survived Being Kidnapped, Raped, Strangled and Thrown Off Bridge. Now She's Facing Her Alleged Attacker in Court](https://www.yahoo.com/news/articles/girl-7-survived-being-kidnapped-180149526.html)
+- Sep 11 - [Warren Buffett wouldn’t worry about cash if he retired with just $1M — here’s why and how to copy his strategy](https://finance.yahoo.com/news/warren-buffett-wouldn-t-worry-173000008.html)
 <!-- feed end -->
 
 ---
