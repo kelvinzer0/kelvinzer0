@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Spain's parliament kills shorter work week bill in blow to government](https://www.yahoo.com/news/articles/spains-parliament-kills-shorter-week-062514814.html)
+- Sep 11 - [Exxon makes unexpected move with plans to join booming battery industry: 'We … see the demand'](https://finance.yahoo.com/news/exxon-makes-unexpected-move-plans-073500177.html)
+- Sep 11 - [Nation on edge: Experts warn of “vicious spiral" in political violence after Kirk killing](https://www.yahoo.com/news/articles/nation-edge-experts-warn-vicious-014044743.html)
 - Sep 11 - [Graphic video of Kirk shooting was everywhere online, showing how media gatekeeper role has changed](https://www.yahoo.com/news/articles/graphic-video-kirk-shooting-everywhere-005739866.html)
 - Sep 10 - [Jimmy Kimmel Reacts To Charlie Kirk’s Shooting Death: “Instead Of Angry Finger-Pointing, Can We Just For One Day Agree That It Is Horrible And Monstrous To Shoot Another Human?”](https://www.yahoo.com/news/articles/jimmy-kimmel-reacts-charlie-kirk-224701755.html)
-- Sep 10 - [AT&T CEO: Apple's iPhone hype days are over —  unless AI can deliver](https://finance.yahoo.com/news/att-ceo-apples-iphone-hype-days-are-over--unless-ai-can-deliver-212653611.html)
-- Sep 10 - [Exclusive-South Koreans head home from more LGES US battery sites after raid, sources say](https://finance.yahoo.com/news/exclusive-south-koreans-head-home-195057912.html)
+- Sep 10 - [Senate Republicans barely defeat effort by Democrats to force release of Epstein files](https://www.yahoo.com/news/articles/senate-republicans-barely-defeat-effort-223120061.html)
 <!-- feed end -->
 
 ---
