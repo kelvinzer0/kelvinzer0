@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [China's Financial Flows Exceed Trade for First Time](https://finance.yahoo.com/video/chinas-financial-flows-exceed-trade-043616453.html)
 - Sep 11 - [Nation on edge: Experts warn of “vicious spiral" in political violence after Kirk killing](https://www.yahoo.com/news/articles/nation-edge-experts-warn-vicious-014044743.html)
 - Sep 11 - [Graphic video of Kirk shooting was everywhere online, showing how media gatekeeper role has changed](https://www.yahoo.com/news/articles/graphic-video-kirk-shooting-everywhere-005739866.html)
 - Sep 10 - [Tesla owner reveals how he bought his used EV for surprisingly low price: 'Please tell me what dealership you went to'](https://www.yahoo.com/lifestyle/articles/tesla-owner-reveals-bought-used-231500594.html)
 - Sep 10 - [Jimmy Kimmel Reacts To Charlie Kirk’s Shooting Death: “Instead Of Angry Finger-Pointing, Can We Just For One Day Agree That It Is Horrible And Monstrous To Shoot Another Human?”](https://www.yahoo.com/news/articles/jimmy-kimmel-reacts-charlie-kirk-224701755.html)
+- Sep 10 - [Democratic senator warns colleagues of 'distorted system' if college sports bill passes](https://sports.yahoo.com/article/democratic-senator-warns-colleagues-distorted-223550898.html)
 <!-- feed end -->
 
 ---
