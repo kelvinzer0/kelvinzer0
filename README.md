@@ -40,10 +40,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Prediction: This Artificial Intelligence (AI) Stock Will Be the Market's Biggest Winner by 2030](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-104500596.html)
 - Sep 11 - [People Are Sharing The Saddest Historical Facts They Know, And I Can Feel Tears Welling In My Eyes](https://www.yahoo.com/news/articles/people-sharing-saddest-historical-facts-103002444.html)
-- Sep 11 - [Anna Paulina Luna shouted “Y’all caused this!” to Democrats on the House floor.](https://www.yahoo.com/news/videos/anna-paulina-luna-shouted-y-102944101.html)
-- Sep 11 - [Americans uneasy at Trump's moves to expand presidential power, Reuters/Ipsos poll finds](https://www.yahoo.com/news/articles/americans-uneasy-trumps-moves-expand-100250084.html)
+- Sep 11 - [Mortgage and refinance interest rates today, September 11, 2025: A small move higher, against the bond market trend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-thursday-september-11-2025-100036298.html)
+- Sep 11 - [Husband Switches Seats with Wife on Tourist Attraction, Then Dies in Crash. She Didn’t Know What Happened for Days](https://www.yahoo.com/news/articles/husband-switches-seats-wife-tourist-093000306.html)
+- Sep 11 - [Prediction: This $1 Trillion Artificial Intelligence (AI) Stock Will Be the Next Nvidia](https://finance.yahoo.com/news/prediction-1-trillion-artificial-intelligence-070000091.html)
 - Sep 11 - [Gavin Newsom Names 'Best Way To Honor' Charlie Kirk After 'Senseless Murder'](https://www.yahoo.com/news/articles/gavin-newsom-names-best-way-040059568.html)
 <!-- feed end -->
 
