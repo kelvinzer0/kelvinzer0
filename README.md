@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [This Estonian firm helps launch Ukraine’s combat drones](https://www.yahoo.com/news/articles/estonian-firm-helps-launch-ukraine-150023228.html)
-- Sep 11 - [AccuWeather revises hurricane season prediction. The forecast isn't all good for Florida](https://www.yahoo.com/news/articles/accuweather-revises-hurricane-season-prediction-141816301.html)
+- Sep 11 - [China breaks ground on unprecedented project that could reshape global energy: 'Missing puzzle piece'](https://www.yahoo.com/news/articles/china-breaks-ground-unprecedented-project-150000099.html)
 - Sep 11 - [India's Adani bans entry of sanctioned ships at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
+- Sep 11 - [Texas State University president fires professor for remarks 'advocating violence'](https://www.yahoo.com/news/articles/texas-state-university-president-fires-140338097.html)
 - Sep 11 - [Elite Sniper Uncovers Charlie Kirk Assassin’s Critical Error](https://www.yahoo.com/news/articles/elite-sniper-uncovers-charlie-kirk-134509897.html)
-- Sep 11 - [IDF soldiers wounded in IED explosion at West Bank crossing near Tulkarm](https://www.yahoo.com/news/articles/idf-soldiers-wounded-ied-explosion-133815904.html)
+- Sep 11 - [1 Excellent Energy Stock to Buy on the Dip](https://finance.yahoo.com/news/1-excellent-energy-stock-buy-102400529.html)
 <!-- feed end -->
 
 ---
