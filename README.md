@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Husband Switches Seats with Wife on Tourist Attraction, Then Dies in Crash. She Didn’t Know What Happened for Days](https://www.yahoo.com/news/articles/husband-switches-seats-wife-tourist-093000306.html)
-- Sep 11 - [Nation on edge: Experts warn of “vicious spiral" in political violence after Kirk killing](https://www.yahoo.com/news/articles/nation-edge-experts-warn-vicious-014044743.html)
-- Sep 10 - [Jimmy Kimmel Reacts To Charlie Kirk’s Shooting Death: “Instead Of Angry Finger-Pointing, Can We Just For One Day Agree That It Is Horrible And Monstrous To Shoot Another Human?”](https://www.yahoo.com/news/articles/jimmy-kimmel-reacts-charlie-kirk-224701755.html)
-- Sep 10 - [Democratic senator warns colleagues of 'distorted system' if college sports bill passes](https://sports.yahoo.com/article/democratic-senator-warns-colleagues-distorted-223550898.html)
-- Sep 10 - [Senate Republicans barely defeat effort by Democrats to force release of Epstein files](https://www.yahoo.com/news/articles/senate-republicans-barely-defeat-effort-223120061.html)
+- Sep 11 - [Prediction: This Artificial Intelligence (AI) Stock Will Be the Market's Biggest Winner by 2030](https://finance.yahoo.com/news/prediction-artificial-intelligence-ai-stock-104500596.html)
+- Sep 11 - [People Are Sharing The Saddest Historical Facts They Know, And I Can Feel Tears Welling In My Eyes](https://www.yahoo.com/news/articles/people-sharing-saddest-historical-facts-103002444.html)
+- Sep 11 - [Anna Paulina Luna shouted “Y’all caused this!” to Democrats on the House floor.](https://www.yahoo.com/news/videos/anna-paulina-luna-shouted-y-102944101.html)
+- Sep 11 - [Americans uneasy at Trump's moves to expand presidential power, Reuters/Ipsos poll finds](https://www.yahoo.com/news/articles/americans-uneasy-trumps-moves-expand-100250084.html)
+- Sep 11 - [Gavin Newsom Names 'Best Way To Honor' Charlie Kirk After 'Senseless Murder'](https://www.yahoo.com/news/articles/gavin-newsom-names-best-way-040059568.html)
 <!-- feed end -->
 
 ---
