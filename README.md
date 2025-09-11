@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Charlie Kirk’s ‘College Age’ Shooter Remains at Large, High-Powered Bolt Action Rifle Recovered](https://www.yahoo.com/news/articles/charlie-kirk-shooter-remains-large-132351512.html)
+- Sep 11 - [Palestinians face new dilemma as Israeli forces advance](https://www.yahoo.com/news/articles/palestinians-face-dilemma-israeli-forces-105101058.html)
 - Sep 11 - [People Are Sharing The Saddest Historical Facts They Know, And I Can Feel Tears Welling In My Eyes](https://www.yahoo.com/news/articles/people-sharing-saddest-historical-facts-103002444.html)
 - Sep 11 - [Mortgage and refinance interest rates today, September 11, 2025: A small move higher, against the bond market trend](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-thursday-september-11-2025-100036298.html)
-- Sep 11 - [Husband Switches Seats with Wife on Tourist Attraction, Then Dies in Crash. She Didn’t Know What Happened for Days](https://www.yahoo.com/news/articles/husband-switches-seats-wife-tourist-093000306.html)
-- Sep 11 - [Prediction: This $1 Trillion Artificial Intelligence (AI) Stock Will Be the Next Nvidia](https://finance.yahoo.com/news/prediction-1-trillion-artificial-intelligence-070000091.html)
-- Sep 11 - [Gavin Newsom Names 'Best Way To Honor' Charlie Kirk After 'Senseless Murder'](https://www.yahoo.com/news/articles/gavin-newsom-names-best-way-040059568.html)
+- Sep 11 - [Matthew Dowd Fired From MSNBC for Charlie Kirk Comments](https://www.yahoo.com/news/articles/matthew-dowd-fired-msnbc-charlie-020835082.html)
 <!-- feed end -->
 
 ---
