@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Syrian government captures Hezbollah cells operating near Israel](https://www.yahoo.com/news/articles/syrian-government-captures-hezbollah-cells-143438594.html)
-- Sep 11 - [As Breeze Airways expands at Daytona Beach Airport, here's 5 destinations you can fly to](https://www.yahoo.com/news/articles/breeze-airways-expands-daytona-beach-141431836.html)
-- Sep 11 - [India's Adani stops accepting sanctioned vessels at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
+- Sep 11 - [This Estonian firm helps launch Ukraine’s combat drones](https://www.yahoo.com/news/articles/estonian-firm-helps-launch-ukraine-150023228.html)
+- Sep 11 - [AccuWeather revises hurricane season prediction. The forecast isn't all good for Florida](https://www.yahoo.com/news/articles/accuweather-revises-hurricane-season-prediction-141816301.html)
+- Sep 11 - [India's Adani bans entry of sanctioned ships at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
 - Sep 11 - [Elite Sniper Uncovers Charlie Kirk Assassin’s Critical Error](https://www.yahoo.com/news/articles/elite-sniper-uncovers-charlie-kirk-134509897.html)
-- Sep 11 - [Charlie Kirk’s ‘College Age’ Shooter Remains at Large, High-Powered Bolt Action Rifle Recovered](https://www.yahoo.com/news/articles/charlie-kirk-shooter-remains-large-132351512.html)
+- Sep 11 - [IDF soldiers wounded in IED explosion at West Bank crossing near Tulkarm](https://www.yahoo.com/news/articles/idf-soldiers-wounded-ied-explosion-133815904.html)
 <!-- feed end -->
 
 ---
