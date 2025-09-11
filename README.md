@@ -40,8 +40,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Husband Switches Seats with Wife on Tourist Attraction, Then Dies in Crash. She Didn’t Know What Happened for Days](https://www.yahoo.com/news/articles/husband-switches-seats-wife-tourist-093000306.html)
 - Sep 11 - [Nation on edge: Experts warn of “vicious spiral" in political violence after Kirk killing](https://www.yahoo.com/news/articles/nation-edge-experts-warn-vicious-014044743.html)
-- Sep 11 - [Graphic video of Kirk shooting was everywhere online, showing how media gatekeeper role has changed](https://www.yahoo.com/news/articles/graphic-video-kirk-shooting-everywhere-005739866.html)
 - Sep 10 - [Jimmy Kimmel Reacts To Charlie Kirk’s Shooting Death: “Instead Of Angry Finger-Pointing, Can We Just For One Day Agree That It Is Horrible And Monstrous To Shoot Another Human?”](https://www.yahoo.com/news/articles/jimmy-kimmel-reacts-charlie-kirk-224701755.html)
 - Sep 10 - [Democratic senator warns colleagues of 'distorted system' if college sports bill passes](https://sports.yahoo.com/article/democratic-senator-warns-colleagues-distorted-223550898.html)
 - Sep 10 - [Senate Republicans barely defeat effort by Democrats to force release of Epstein files](https://www.yahoo.com/news/articles/senate-republicans-barely-defeat-effort-223120061.html)
