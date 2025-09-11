@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [At least 4 students injured in shooting at Colorado high school: Officials](https://www.yahoo.com/news/articles/shooting-reported-colorado-high-school-192158104.html)
+- Sep 11 - [Nation on edge: Experts warn of “vicious spiral" in political violence after Kirk killing](https://www.yahoo.com/news/articles/nation-edge-experts-warn-vicious-014044743.html)
 - Sep 10 - [Jimmy Kimmel Reacts To Charlie Kirk’s Shooting Death: “Instead Of Angry Finger-Pointing, Can We Just For One Day Agree That It Is Horrible And Monstrous To Shoot Another Human?”](https://www.yahoo.com/news/articles/jimmy-kimmel-reacts-charlie-kirk-224701755.html)
-- Sep 10 - [Senate Republicans barely defeat effort by Democrats to force release of Epstein files](https://www.yahoo.com/news/articles/senate-republicans-barely-defeat-effort-223120061.html)
-- Sep 10 - [Authorities say a boy shot two other teens then himself at a suburban Denver high school](https://www.yahoo.com/news/articles/least-2-students-wounded-shooting-193732348.html)
-- Sep 10 - [Judge says 3 months in jail are enough for Chinese scientist in US smuggling case](https://www.yahoo.com/news/articles/judge-says-3-months-jail-184621566.html)
+- Sep 10 - [Shouting In House After Prayer For Charlie Kirk; Rep. James Walkinshaw (D-VA) Takes Oath](https://www.yahoo.com/news/videos/shouting-house-prayer-charlie-kirk-224000460.html)
+- Sep 10 - [Democratic senator warns colleagues of 'distorted system' if college sports bill passes](https://sports.yahoo.com/article/democratic-senator-warns-colleagues-distorted-223550898.html)
+- Sep 10 - [Three people shot at a suburban Denver high school, authorities say](https://www.yahoo.com/news/videos/three-people-shot-suburban-denver-204002116.html)
 <!-- feed end -->
 
 ---
