@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [China breaks ground on unprecedented project that could reshape global energy: 'Missing puzzle piece'](https://www.yahoo.com/news/articles/china-breaks-ground-unprecedented-project-150000099.html)
+- Sep 11 - [Their Son Wants A Bailout After Racking Up $200,000 In Taxes, Interest, And Penalties. Dave Ramsey Says, 'I Probably Wouldn't' Step In Today](https://finance.yahoo.com/news/son-wants-bailout-racking-200-170108970.html)
+- Sep 11 - [Bethune-Cookman University on lockdown, closes campus ‘due to a potential threat’](https://www.yahoo.com/news/articles/bethune-cookman-university-lockdown-closes-164722293.html)
+- Sep 11 - [Kawhi Leonard scandal gets worse after Pablo Torre reveals ‘smoking gun’ investment](https://sports.yahoo.com/article/kawhi-leonard-scandal-gets-worse-143500942.html)
 - Sep 11 - [India's Adani bans entry of sanctioned ships at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
 - Sep 11 - [Texas State University president fires professor for remarks 'advocating violence'](https://www.yahoo.com/news/articles/texas-state-university-president-fires-140338097.html)
-- Sep 11 - [Elite Sniper Uncovers Charlie Kirk Assassin’s Critical Error](https://www.yahoo.com/news/articles/elite-sniper-uncovers-charlie-kirk-134509897.html)
-- Sep 11 - [1 Excellent Energy Stock to Buy on the Dip](https://finance.yahoo.com/news/1-excellent-energy-stock-buy-102400529.html)
 <!-- feed end -->
 
 ---
