@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Thousands in Slovakia gather in renewed protest against pro-Russian policies of Prime Minister Fico](https://www.yahoo.com/news/articles/thousands-slovakia-gather-renewed-protest-183253428.html)
-- Sep 11 - [Trump Keeps Making This Dangerous Threat — And Experts Say It's Becoming More Credible](https://www.yahoo.com/news/articles/trump-keeps-making-dangerous-threat-180950276.html)
-- Sep 11 - [West Palm Beach cancels popular downtown concert series, movie night event](https://www.yahoo.com/news/articles/west-palm-beach-cancels-popular-180406169.html)
-- Sep 11 - [Ghislaine Maxwell and Epstein ‘were planning fertility treatment together’](https://www.yahoo.com/news/articles/ghislaine-maxwell-epstein-were-planning-175520140.html)
-- Sep 11 - [Their Son Wants A Bailout After Racking Up $200,000 In Taxes, Interest, And Penalties. Dave Ramsey Says, 'I Probably Wouldn't' Step In Today](https://finance.yahoo.com/news/son-wants-bailout-racking-200-170108970.html)
+- Sep 11 - [The Mysterious Object Cruising Toward Mars Is Doing Something Very Peculiar](https://www.yahoo.com/news/articles/mysterious-object-cruising-toward-mars-163300900.html)
+- Sep 11 - [India's Adani bans entry of sanctioned ships at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
+- Sep 11 - [US Economy Is Slowly Grinding to a Halt, Kelly Says](https://finance.yahoo.com/video/us-economy-slowly-grinding-halt-135207912.html)
+- Sep 11 - [Elite Sniper Uncovers Charlie Kirk Assassin’s Critical Error](https://www.yahoo.com/news/articles/elite-sniper-uncovers-charlie-kirk-134509897.html)
+- Sep 11 - [My Son Bought A Gun During A Psychotic Episode. I Was Shocked By What Happened When I Called The Cops.](https://www.yahoo.com/news/articles/son-bought-gun-during-psychotic-120810474.html)
 <!-- feed end -->
 
 ---
