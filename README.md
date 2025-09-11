@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [Trump Keeps Making This Dangerous Threat — And Experts Say It's Becoming More Credible](https://www.yahoo.com/news/articles/trump-keeps-making-dangerous-threat-180950276.html)
-- Sep 11 - [Warren Buffett wouldn’t worry about cash if he retired with just $1M — here’s why and how to copy his strategy](https://finance.yahoo.com/news/warren-buffett-wouldn-t-worry-173000008.html)
 - Sep 11 - [The Mysterious Object Cruising Toward Mars Is Doing Something Very Peculiar](https://www.yahoo.com/news/articles/mysterious-object-cruising-toward-mars-163300900.html)
-- Sep 11 - [Which iPhones will get iOS 26? What to expect with Apple’s upcoming update, release date](https://www.yahoo.com/news/articles/iphones-ios-26-expect-apple-161555284.html)
 - Sep 11 - [Japanese Warship Fires Railgun At Target Vessel For The First Time](https://www.yahoo.com/news/articles/japanese-warship-fires-railgun-target-161349441.html)
+- Sep 11 - [I’m 80 and my RMD is $300,000. What the heck am I supposed to do about my huge tax bill?](https://finance.yahoo.com/news/m-80-rmd-300-000-203000902.html)
+- Sep 11 - [India's Adani bans entry of sanctioned ships at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
+- Sep 11 - [Elite Sniper Uncovers Charlie Kirk Assassin’s Critical Error](https://www.yahoo.com/news/articles/elite-sniper-uncovers-charlie-kirk-134509897.html)
 <!-- feed end -->
 
 ---
