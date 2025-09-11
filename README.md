@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 11 - [Thousands in Slovakia gather in renewed protest against pro-Russian policies of Prime Minister Fico](https://www.yahoo.com/news/articles/thousands-slovakia-gather-renewed-protest-183253428.html)
+- Sep 11 - [Trump Keeps Making This Dangerous Threat — And Experts Say It's Becoming More Credible](https://www.yahoo.com/news/articles/trump-keeps-making-dangerous-threat-180950276.html)
+- Sep 11 - [West Palm Beach cancels popular downtown concert series, movie night event](https://www.yahoo.com/news/articles/west-palm-beach-cancels-popular-180406169.html)
+- Sep 11 - [Ghislaine Maxwell and Epstein ‘were planning fertility treatment together’](https://www.yahoo.com/news/articles/ghislaine-maxwell-epstein-were-planning-175520140.html)
 - Sep 11 - [Their Son Wants A Bailout After Racking Up $200,000 In Taxes, Interest, And Penalties. Dave Ramsey Says, 'I Probably Wouldn't' Step In Today](https://finance.yahoo.com/news/son-wants-bailout-racking-200-170108970.html)
-- Sep 11 - [Bethune-Cookman University on lockdown, closes campus ‘due to a potential threat’](https://www.yahoo.com/news/articles/bethune-cookman-university-lockdown-closes-164722293.html)
-- Sep 11 - [Kawhi Leonard scandal gets worse after Pablo Torre reveals ‘smoking gun’ investment](https://sports.yahoo.com/article/kawhi-leonard-scandal-gets-worse-143500942.html)
-- Sep 11 - [India's Adani bans entry of sanctioned ships at its ports, sources say](https://finance.yahoo.com/news/indias-adani-stops-accepting-sanctioned-140900677.html)
-- Sep 11 - [Texas State University president fires professor for remarks 'advocating violence'](https://www.yahoo.com/news/articles/texas-state-university-president-fires-140338097.html)
 <!-- feed end -->
 
 ---
