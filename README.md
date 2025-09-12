@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Her name and age are unconfirmed, but she could be North Korea’s next Supreme Leader](https://www.yahoo.com/news/articles/her-name-age-unconfirmed-she-082434832.html)
-- Sep 12 - [Apple Stock Downgraded After iPhone 17 Reveals](https://finance.yahoo.com/video/apple-stock-downgraded-iphone-17-140742152.html)
+- Sep 12 - [UN overwhelmingly endorses two-state solution declaration that condemns Hamas](https://www.yahoo.com/news/articles/un-overwhelmingly-endorses-declaration-two-145507752.html)
+- Sep 12 - [Utah man suspected in Charlie Kirk murder taken into custody](https://www.yahoo.com/news/videos/utah-man-suspected-charlie-kirk-145101904.html)
+- Sep 12 - [Former nurse practitioner pleads guilty to indecent assault on patient in Monroe County](https://www.yahoo.com/news/articles/former-nurse-practitioner-pleads-guilty-123810614.html)
+- Sep 12 - [The ‘Godfather of Financial Independence’ says young people should do two things to build wealth—and it’s not buying a house, which is ‘silly’](https://finance.yahoo.com/news/godfather-financial-independence-says-young-100300722.html)
 - Sep 12 - [Mortgage and refinance interest rates today, September 12, 2025: New low sparks big application demand](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-september-12-2025-100011329.html)
-- Sep 12 - [Russia calls Danish plan to host Ukrainian long-range missile fuel production hostile](https://www.yahoo.com/news/articles/russia-calls-danish-plan-host-095821393.html)
-- Sep 12 - [World's deadliest animal is probably outside your Bucks County home. See what the CDC says](https://www.yahoo.com/news/articles/worlds-deadliest-animal-probably-outside-091013361.html)
 <!-- feed end -->
 
 ---
