@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [The common spice that clears your nostrils and can help fight off cancer](https://health.yahoo.com/conditions/cancer/articles/common-spice-clears-nostrils-fight-130546393.html)
+- Sep 12 - [Russia calls Danish plan to host Ukrainian long-range missile fuel production hostile](https://www.yahoo.com/news/articles/russia-calls-danish-plan-host-095821393.html)
+- Sep 12 - [Is BigBear.ai the Next Palantir Technologies?](https://finance.yahoo.com/news/bigbear-ai-next-palantir-technologies-094500098.html)
+- Sep 12 - [Embattled surgeon Ben Brown sold his $2.4M Gulf Breeze home and left the new owner an issue](https://www.yahoo.com/news/articles/embattled-surgeon-ben-brown-sold-090746027.html)
 - Sep 12 - [Vessel struck by US military off Venezuela was heading back to shore, AP sources say](https://www.yahoo.com/news/articles/vessel-struck-us-military-off-000728608.html)
-- Sep 11 - [Scientists uncover concerning new link between common household items and serious diseases: 'This gives us a hint'](https://www.yahoo.com/news/articles/scientists-uncover-concerning-between-common-233000158.html)
-- Sep 11 - [Epstein's 'chilling' secrets exposed with bombshell personal email 'trove' on Maxwell, Trump, others](https://www.yahoo.com/news/videos/epsteins-chilling-secrets-exposed-bombshell-231905471.html)
-- Sep 11 - [Officials issue warning amid concerning spread of toxic 'hammerhead worm': 'Don't squish or cut them'](https://www.yahoo.com/news/articles/officials-issue-warning-amid-concerning-223000108.html)
-- Sep 11 - [Rubio vows US response following conviction of Brazil's Bolsonaro](https://www.yahoo.com/news/articles/rubio-vows-us-response-following-220623891.html)
 <!-- feed end -->
 
 ---
