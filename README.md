@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Woman attacked at MARTA station learns same suspect accused of attempted rape](https://www.yahoo.com/news/articles/woman-attacked-marta-station-learns-204842111.html)
 - Sep 12 - [Vessel struck by US military off Venezuela was heading back to shore, AP sources say](https://www.yahoo.com/news/articles/vessel-struck-us-military-off-000728608.html)
 - Sep 11 - [Scientists uncover concerning new link between common household items and serious diseases: 'This gives us a hint'](https://www.yahoo.com/news/articles/scientists-uncover-concerning-between-common-233000158.html)
-- Sep 11 - [A tech-stock fund manager who's crushed the S&P 500 over the last 3 years shares 4 companies he's most bullish on now](https://finance.yahoo.com/news/tech-stock-fund-manager-whos-173002461.html)
+- Sep 11 - [Epstein's 'chilling' secrets exposed with bombshell personal email 'trove' on Maxwell, Trump, others](https://www.yahoo.com/news/videos/epsteins-chilling-secrets-exposed-bombshell-231905471.html)
 - Sep 11 - [Officials issue warning amid concerning spread of toxic 'hammerhead worm': 'Don't squish or cut them'](https://www.yahoo.com/news/articles/officials-issue-warning-amid-concerning-223000108.html)
+- Sep 11 - [Rubio vows US response following conviction of Brazil's Bolsonaro](https://www.yahoo.com/news/articles/rubio-vows-us-response-following-220623891.html)
 <!-- feed end -->
 
 ---
