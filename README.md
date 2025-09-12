@@ -40,10 +40,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [‘Rapid developments’ in hunt for Charlie Kirk’s killer, says FBI](https://www.yahoo.com/news/articles/fbi-identifies-name-suspect-charlie-233820017.html)
 - Sep 12 - [Vessel struck by US military off Venezuela was heading back to shore, AP sources say](https://www.yahoo.com/news/articles/vessel-struck-us-military-off-000728608.html)
 - Sep 11 - [Officials issue warning amid concerning spread of toxic 'hammerhead worm': 'Don't squish or cut them'](https://www.yahoo.com/news/articles/officials-issue-warning-amid-concerning-223000108.html)
-- Sep 11 - [The conservative firebrand honored Kirk’s “legacy” on Thursday by unleashing a torrent of anti-trans hate.](https://www.yahoo.com/news/videos/conservative-firebrand-honored-kirk-legacy-214801575.html)
+- Sep 11 - [Rubio vows US response following conviction of Brazil's Bolsonaro](https://www.yahoo.com/news/articles/rubio-vows-us-response-following-220623891.html)
+- Sep 11 - [The right side of the president’s face sparked a wave of online speculation on Thursday.](https://www.yahoo.com/news/videos/side-president-face-sparked-wave-212837119.html)
 - Sep 11 - [Primanti Bros. closes two locations in south-central Pa. after 'careful consideration'](https://www.yahoo.com/news/articles/primanti-bros-closes-two-locations-203913252.html)
 <!-- feed end -->
 
