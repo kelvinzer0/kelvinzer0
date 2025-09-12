@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Ukraine's energy strikes hit Russians at the pump](https://www.yahoo.com/news/articles/ukraines-energy-strikes-hit-russians-055349770.html)
 - Sep 12 - [Vessel struck by US military off Venezuela was heading back to shore, AP sources say](https://www.yahoo.com/news/articles/vessel-struck-us-military-off-000728608.html)
 - Sep 11 - [Scientists uncover concerning new link between common household items and serious diseases: 'This gives us a hint'](https://www.yahoo.com/news/articles/scientists-uncover-concerning-between-common-233000158.html)
-- Sep 11 - [Epstein's 'chilling' secrets exposed with bombshell personal email 'trove' on Maxwell, Trump, others](https://www.yahoo.com/news/videos/epsteins-chilling-secrets-exposed-bombshell-231905471.html)
 - Sep 11 - [Officials issue warning amid concerning spread of toxic 'hammerhead worm': 'Don't squish or cut them'](https://www.yahoo.com/news/articles/officials-issue-warning-amid-concerning-223000108.html)
+- Sep 11 - [Rubio vows US response following conviction of Brazil's Bolsonaro](https://www.yahoo.com/news/articles/rubio-vows-us-response-following-220623891.html)
+- Sep 11 - [The right side of the president’s face sparked a wave of online speculation on Thursday.](https://www.yahoo.com/news/videos/side-president-face-sparked-wave-212837119.html)
 <!-- feed end -->
 
 ---
