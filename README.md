@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [NATO to launch Eastern Sentry programme to tighten defence on alliance's eastern border](https://www.yahoo.com/news/videos/nato-launch-eastern-sentry-programme-163740552.html)
+- Sep 12 - [New brain stimulation method might help relieve depression](https://www.yahoo.com/news/articles/brain-stimulation-method-might-help-175530023.html)
+- Sep 12 - [Would a Paramount Skydance bid for Warner Bros. be a good deal?](https://finance.yahoo.com/video/paramount-skydance-bid-warner-bros-174500462.html)
+- Sep 12 - [Son of Patriots owner exits Boston mayoral race after primary loss](https://www.yahoo.com/news/articles/son-patriots-owner-exits-boston-174409184.html)
+- Sep 12 - [Bernie Sanders raises eyebrows after details emerge about recent rallies: 'That's what campaign travel is about'](https://www.yahoo.com/news/articles/bernie-sanders-raises-eyebrows-details-163000157.html)
 - Sep 12 - [UN overwhelmingly endorses two-state solution declaration that condemns Hamas](https://www.yahoo.com/news/articles/un-overwhelmingly-endorses-declaration-two-145507752.html)
-- Sep 12 - [Polish PM Brutally Mocks Trump’s Pathetic Response to Russian Drones](https://www.yahoo.com/news/articles/polish-pm-brutally-mocks-trump-140717808.html)
-- Sep 12 - [ABC6 meteorologist Kelly Bates says she and others have lost their jobs](https://www.yahoo.com/news/articles/abc6-meteorologist-kelly-bates-says-123331304.html)
-- Sep 12 - [Russian drones force Europe to defend itself, perhaps alone, after Putin 'put down a marker' to NATO](https://www.yahoo.com/news/articles/russian-drones-force-europe-defend-102341735.html)
 <!-- feed end -->
 
 ---
