@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 11 - [If You're Wondering What Charlie Kirk Believed In, Here Are 14 Real Quotes](https://www.yahoo.com/news/articles/following-death-14-quotes-thoughts-195129835.html)
-- Sep 11 - [Trump Keeps Making This Dangerous Threat — And Experts Say It's Becoming More Credible](https://www.yahoo.com/news/articles/trump-keeps-making-dangerous-threat-180950276.html)
-- Sep 11 - [West Palm Beach cancels popular downtown concert series, movie night event](https://www.yahoo.com/news/articles/west-palm-beach-cancels-popular-180406169.html)
-- Sep 11 - [Girl, 7, Survived Being Kidnapped, Raped, Strangled and Thrown Off Bridge. Now She's Facing Her Alleged Attacker in Court](https://www.yahoo.com/news/articles/girl-7-survived-being-kidnapped-180149526.html)
-- Sep 11 - [Warren Buffett wouldn’t worry about cash if he retired with just $1M — here’s why and how to copy his strategy](https://finance.yahoo.com/news/warren-buffett-wouldn-t-worry-173000008.html)
+- Sep 12 - [‘Rapid developments’ in hunt for Charlie Kirk’s killer, says FBI](https://www.yahoo.com/news/articles/fbi-identifies-name-suspect-charlie-233820017.html)
+- Sep 12 - [Vessel struck by US military off Venezuela was heading back to shore, AP sources say](https://www.yahoo.com/news/articles/vessel-struck-us-military-off-000728608.html)
+- Sep 11 - [Officials issue warning amid concerning spread of toxic 'hammerhead worm': 'Don't squish or cut them'](https://www.yahoo.com/news/articles/officials-issue-warning-amid-concerning-223000108.html)
+- Sep 11 - [The conservative firebrand honored Kirk’s “legacy” on Thursday by unleashing a torrent of anti-trans hate.](https://www.yahoo.com/news/videos/conservative-firebrand-honored-kirk-legacy-214801575.html)
+- Sep 11 - [Primanti Bros. closes two locations in south-central Pa. after 'careful consideration'](https://www.yahoo.com/news/articles/primanti-bros-closes-two-locations-203913252.html)
 <!-- feed end -->
 
 ---
