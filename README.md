@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [The congresswoman called the right’s theory that someone on the left committed the killing “wild.”](https://www.yahoo.com/news/videos/congresswoman-called-theory-someone-left-182224962.html)
-- Sep 12 - [ICE officer shoots, kills suspect who dragged officer with car near Chicago, says Homeland Security](https://www.yahoo.com/news/articles/ice-officer-shoots-kills-suspect-181956586.html)
+- Sep 12 - [Nvidia-Backed SK hynix Soars As HBM4 Hits Production Ready](https://finance.yahoo.com/news/nvidia-backed-sk-hynix-soars-194446817.html)
+- Sep 12 - [Lawsuit says Musk's Tesla hires visa holders instead of Americans so it can pay less](https://www.yahoo.com/news/articles/lawsuit-says-musks-tesla-hires-192327284.html)
+- Sep 12 - [ICE officer fatally shoots suspect after being dragged by car near Chicago, officials say](https://www.yahoo.com/news/articles/ice-officer-shoots-kills-suspect-181956586.html)
+- Sep 12 - [Trump Just Went on Fox and Issued an Unnerving Threat Against Liberals](https://www.yahoo.com/news/articles/trump-just-went-fox-issued-181943299.html)
 - Sep 12 - [Potential tropical development in Gulf poses primary US threat before end of September](https://www.yahoo.com/news/articles/potential-tropical-development-gulf-poses-181408205.html)
-- Sep 12 - [Matthew Dowd Speaks Out After MSNBC Fired Him for Charlie Kirk Comments: Network ‘Reacted’ to ‘The Right Wing Media Mob’](https://www.yahoo.com/news/articles/matthew-dowd-speaks-msnbc-fired-175908412.html)
-- Sep 12 - [Kash Patel’s Big Mouth May Have Landed Trump in Hot Water](https://www.yahoo.com/news/articles/kash-patel-big-mouth-may-164305700.html)
 <!-- feed end -->
 
 ---
