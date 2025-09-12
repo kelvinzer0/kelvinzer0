@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Ukrainian drone attack injures 7, disrupts Russian oil production](https://www.yahoo.com/news/articles/ukrainian-drone-attack-injures-7-134338260.html)
-- Sep 12 - [Engadget Podcast: A deeper dive into the iPhone 17 and iPhone Air](https://tech.yahoo.com/phones/article/engadget-podcast-deeper-dive-iphone-124536151.html)
-- Sep 12 - [ABC6 meteorologist Kelly Bates says she and others have lost their jobs](https://www.yahoo.com/news/articles/abc6-meteorologist-kelly-bates-says-123331304.html)
-- Sep 12 - [Two shot outside Cleveland bar: police](https://www.yahoo.com/news/articles/two-shot-outside-cleveland-bar-102138893.html)
+- Sep 12 - [Her name and age are unconfirmed, but she could be North Korea’s next Supreme Leader](https://www.yahoo.com/news/articles/her-name-age-unconfirmed-she-082434832.html)
+- Sep 12 - [Apple Stock Downgraded After iPhone 17 Reveals](https://finance.yahoo.com/video/apple-stock-downgraded-iphone-17-140742152.html)
 - Sep 12 - [Mortgage and refinance interest rates today, September 12, 2025: New low sparks big application demand](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-september-12-2025-100011329.html)
+- Sep 12 - [Russia calls Danish plan to host Ukrainian long-range missile fuel production hostile](https://www.yahoo.com/news/articles/russia-calls-danish-plan-host-095821393.html)
+- Sep 12 - [World's deadliest animal is probably outside your Bucks County home. See what the CDC says](https://www.yahoo.com/news/articles/worlds-deadliest-animal-probably-outside-091013361.html)
 <!-- feed end -->
 
 ---
