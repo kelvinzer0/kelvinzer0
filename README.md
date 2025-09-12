@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [RFK Jr. makes announcement after federal agents seize more than 600,000 illicit products: 'Many of these … are being illegally brought into America'](https://www.yahoo.com/news/articles/rfk-jr-makes-announcement-federal-114000010.html)
-- Sep 12 - [Russia calls Danish plan to host Ukrainian long-range missile fuel production hostile](https://www.yahoo.com/news/articles/russia-calls-danish-plan-host-095821393.html)
-- Sep 12 - [China's newest aircraft carrier sails through Taiwan Strait for the first time](https://www.yahoo.com/news/articles/chinas-newest-aircraft-carrier-sails-074315737.html)
-- Sep 12 - [UK turns to King Charles and royals to mollify Trump like no others can](https://www.yahoo.com/news/articles/uk-turns-king-charles-royals-070244600.html)
-- Sep 12 - [Vessel struck by US military off Venezuela was heading back to shore, AP sources say](https://www.yahoo.com/news/articles/vessel-struck-us-military-off-000728608.html)
+- Sep 12 - [Ukrainian drone attack injures 7, disrupts Russian oil production](https://www.yahoo.com/news/articles/ukrainian-drone-attack-injures-7-134338260.html)
+- Sep 12 - [Engadget Podcast: A deeper dive into the iPhone 17 and iPhone Air](https://tech.yahoo.com/phones/article/engadget-podcast-deeper-dive-iphone-124536151.html)
+- Sep 12 - [ABC6 meteorologist Kelly Bates says she and others have lost their jobs](https://www.yahoo.com/news/articles/abc6-meteorologist-kelly-bates-says-123331304.html)
+- Sep 12 - [Two shot outside Cleveland bar: police](https://www.yahoo.com/news/articles/two-shot-outside-cleveland-bar-102138893.html)
+- Sep 12 - [Mortgage and refinance interest rates today, September 12, 2025: New low sparks big application demand](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-september-12-2025-100011329.html)
 <!-- feed end -->
 
 ---
