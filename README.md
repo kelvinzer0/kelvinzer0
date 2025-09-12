@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [New brain stimulation method might help relieve depression](https://www.yahoo.com/news/articles/brain-stimulation-method-might-help-175530023.html)
-- Sep 12 - [Would a Paramount Skydance bid for Warner Bros. be a good deal?](https://finance.yahoo.com/video/paramount-skydance-bid-warner-bros-174500462.html)
-- Sep 12 - [Son of Patriots owner exits Boston mayoral race after primary loss](https://www.yahoo.com/news/articles/son-patriots-owner-exits-boston-174409184.html)
-- Sep 12 - [Bernie Sanders raises eyebrows after details emerge about recent rallies: 'That's what campaign travel is about'](https://www.yahoo.com/news/articles/bernie-sanders-raises-eyebrows-details-163000157.html)
-- Sep 12 - [UN overwhelmingly endorses two-state solution declaration that condemns Hamas](https://www.yahoo.com/news/articles/un-overwhelmingly-endorses-declaration-two-145507752.html)
+- Sep 12 - [The congresswoman called the right’s theory that someone on the left committed the killing “wild.”](https://www.yahoo.com/news/videos/congresswoman-called-theory-someone-left-182224962.html)
+- Sep 12 - [ICE officer shoots, kills suspect who dragged officer with car near Chicago, says Homeland Security](https://www.yahoo.com/news/articles/ice-officer-shoots-kills-suspect-181956586.html)
+- Sep 12 - [Potential tropical development in Gulf poses primary US threat before end of September](https://www.yahoo.com/news/articles/potential-tropical-development-gulf-poses-181408205.html)
+- Sep 12 - [Matthew Dowd Speaks Out After MSNBC Fired Him for Charlie Kirk Comments: Network ‘Reacted’ to ‘The Right Wing Media Mob’](https://www.yahoo.com/news/articles/matthew-dowd-speaks-msnbc-fired-175908412.html)
+- Sep 12 - [Kash Patel’s Big Mouth May Have Landed Trump in Hot Water](https://www.yahoo.com/news/articles/kash-patel-big-mouth-may-164305700.html)
 <!-- feed end -->
 
 ---
