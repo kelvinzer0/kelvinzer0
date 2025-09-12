@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [NATO to launch Eastern Sentry programme to tighten defence on alliance's eastern border](https://www.yahoo.com/news/videos/nato-launch-eastern-sentry-programme-163740552.html)
 - Sep 12 - [UN overwhelmingly endorses two-state solution declaration that condemns Hamas](https://www.yahoo.com/news/articles/un-overwhelmingly-endorses-declaration-two-145507752.html)
-- Sep 12 - [Utah man suspected in Charlie Kirk murder taken into custody](https://www.yahoo.com/news/videos/utah-man-suspected-charlie-kirk-145101904.html)
-- Sep 12 - [Former nurse practitioner pleads guilty to indecent assault on patient in Monroe County](https://www.yahoo.com/news/articles/former-nurse-practitioner-pleads-guilty-123810614.html)
-- Sep 12 - [The ‘Godfather of Financial Independence’ says young people should do two things to build wealth—and it’s not buying a house, which is ‘silly’](https://finance.yahoo.com/news/godfather-financial-independence-says-young-100300722.html)
-- Sep 12 - [Mortgage and refinance interest rates today, September 12, 2025: New low sparks big application demand](https://finance.yahoo.com/personal-finance/mortgages/article/mortgage-refinance-interest-rates-today-friday-september-12-2025-100011329.html)
+- Sep 12 - [Polish PM Brutally Mocks Trump’s Pathetic Response to Russian Drones](https://www.yahoo.com/news/articles/polish-pm-brutally-mocks-trump-140717808.html)
+- Sep 12 - [ABC6 meteorologist Kelly Bates says she and others have lost their jobs](https://www.yahoo.com/news/articles/abc6-meteorologist-kelly-bates-says-123331304.html)
+- Sep 12 - [Russian drones force Europe to defend itself, perhaps alone, after Putin 'put down a marker' to NATO](https://www.yahoo.com/news/articles/russian-drones-force-europe-defend-102341735.html)
 <!-- feed end -->
 
 ---
