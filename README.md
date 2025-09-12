@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 12 - [RFK Jr. makes announcement after federal agents seize more than 600,000 illicit products: 'Many of these … are being illegally brought into America'](https://www.yahoo.com/news/articles/rfk-jr-makes-announcement-federal-114000010.html)
 - Sep 12 - [Russia calls Danish plan to host Ukrainian long-range missile fuel production hostile](https://www.yahoo.com/news/articles/russia-calls-danish-plan-host-095821393.html)
-- Sep 12 - [Businessmen face serious penalties after drone footage exposes illegal scheme: 'Should have known better'](https://www.yahoo.com/news/articles/businessmen-face-serious-penalties-drone-030000470.html)
+- Sep 12 - [China's newest aircraft carrier sails through Taiwan Strait for the first time](https://www.yahoo.com/news/articles/chinas-newest-aircraft-carrier-sails-074315737.html)
+- Sep 12 - [UK turns to King Charles and royals to mollify Trump like no others can](https://www.yahoo.com/news/articles/uk-turns-king-charles-royals-070244600.html)
 - Sep 12 - [Vessel struck by US military off Venezuela was heading back to shore, AP sources say](https://www.yahoo.com/news/articles/vessel-struck-us-military-off-000728608.html)
-- Sep 11 - [Scientists uncover concerning new link between common household items and serious diseases: 'This gives us a hint'](https://www.yahoo.com/news/articles/scientists-uncover-concerning-between-common-233000158.html)
-- Sep 11 - [A tech-stock fund manager who's crushed the S&P 500 over the last 3 years shares 4 companies he's most bullish on now](https://finance.yahoo.com/news/tech-stock-fund-manager-whos-173002461.html)
 <!-- feed end -->
 
 ---
