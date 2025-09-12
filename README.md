@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Spain summons Israel's acting ambassador following comments made by Netanyahu's office](https://www.yahoo.com/news/articles/spain-summons-israels-acting-ambassador-183100874.html)
-- Sep 12 - [The world's tallest sunflower blooms in an Indiana backyard as a tribute to Ukraine](https://www.yahoo.com/news/articles/worlds-tallest-sunflower-blooms-indiana-181441736.html)
-- Sep 12 - [Potential tropical development in Gulf poses primary US threat before end of September](https://www.yahoo.com/news/articles/potential-tropical-development-gulf-poses-181408205.html)
-- Sep 12 - [Six more officers fired over handling of domestic violence-fueled triple homicide in South Florida](https://www.yahoo.com/news/articles/six-more-officers-fired-over-181210658.html)
-- Sep 12 - [Matthew Dowd Speaks Out After MSNBC Fired Him for Charlie Kirk Comments: Network ‘Reacted’ to the ‘Right Wing Media Mob’](https://www.yahoo.com/news/articles/matthew-dowd-speaks-msnbc-fired-175908412.html)
+- Sep 12 - [Watchdog questions millions spent each year on shuttered US Embassy in Venezuela](https://www.yahoo.com/news/articles/watchdog-questions-millions-spent-shuttered-215340257.html)
+- Sep 12 - [BofA Shake-Up: Athanasia, DeMare Become Co-Presidents](https://finance.yahoo.com/video/bofa-shake-athanasia-demare-become-211936967.html)
+- Sep 12 - [Stephen Lawrence’s mother reveals Prince Harry told her she was being hacked](https://www.yahoo.com/news/articles/stephen-lawrence-mother-reveals-prince-204814949.html)
+- Sep 12 - [Trump administration to award a no-bid contract on research into vaccines and autism](https://www.yahoo.com/news/articles/us-government-award-no-bid-210715062.html)
+- Sep 12 - [Winklevoss Twins Call for $1 Million Bitcoin Price as Gemini Goes Public](https://finance.yahoo.com/news/winklevoss-twins-call-1-million-185804274.html)
 <!-- feed end -->
 
 ---
