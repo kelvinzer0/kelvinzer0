@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Watchdog questions millions spent each year on shuttered US Embassy in Venezuela](https://www.yahoo.com/news/articles/watchdog-questions-millions-spent-shuttered-215340257.html)
-- Sep 12 - [BofA Shake-Up: Athanasia, DeMare Become Co-Presidents](https://finance.yahoo.com/video/bofa-shake-athanasia-demare-become-211936967.html)
-- Sep 12 - [Stephen Lawrence’s mother reveals Prince Harry told her she was being hacked](https://www.yahoo.com/news/articles/stephen-lawrence-mother-reveals-prince-204814949.html)
+- Sep 12 - [Dacora Motors CEO on Building Luxury Electric Vehicles](https://finance.yahoo.com/video/dacora-motors-ceo-building-luxury-224048248.html)
+- Sep 12 - [Former Red Sox pitcher Austin Maddox sentenced to 3 years in prison for soliciting a minor](https://www.yahoo.com/news/articles/former-red-sox-pitcher-austin-222335539.html)
+- Sep 12 - [We Met With Ted Cruz In 2022 About Stopping Mass Shootings. His Response Was Disgusting.](https://www.yahoo.com/news/articles/met-ted-cruz-2022-stopping-215502367.html)
+- Sep 12 - ["Probably The Single Greatest Example Of How The MAGA Cult Works": It Was A BRUTAL Week In Politics, So Here Are All The Best Tweets](https://www.yahoo.com/news/articles/probably-single-greatest-example-maga-212221892.html)
 - Sep 12 - [Trump administration to award a no-bid contract on research into vaccines and autism](https://www.yahoo.com/news/articles/us-government-award-no-bid-210715062.html)
-- Sep 12 - [Winklevoss Twins Call for $1 Million Bitcoin Price as Gemini Goes Public](https://finance.yahoo.com/news/winklevoss-twins-call-1-million-185804274.html)
 <!-- feed end -->
 
 ---
