@@ -42,9 +42,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Sep 13 - [Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired](https://www.yahoo.com/news/articles/netanyahu-gambled-targeting-hamas-leaders-051052100.html)
 - Sep 13 - [Opendoor chair says the company currently has 1,400 employees but only needs 200 of them](https://finance.yahoo.com/news/opendoor-chair-says-company-currently-004744357.html)
-- Sep 12 - [Appeals court rules Trump administration can end legal protections for more than 400,000 migrants](https://www.yahoo.com/news/articles/appeals-court-rules-trump-administration-224632416.html)
-- Sep 12 - [Exclusive-Fed Governor Cook declared her Atlanta property as “vacation home,” documents show](https://www.yahoo.com/news/articles/exclusive-fed-governor-cook-declared-212353002.html)
-- Sep 12 - [Trump administration to award a no-bid contract on research into vaccines and autism](https://www.yahoo.com/news/articles/us-government-award-no-bid-210715062.html)
+- Sep 12 - [Worsening crisis forces millions of people to pack up and leave their homes: 'It hurts'](https://www.yahoo.com/news/articles/worsening-crisis-forces-millions-people-235500182.html)
+- Sep 12 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
+- Sep 12 - [Fact Check: Charlie Kirk called Martin Luther King Jr. 'awful'](https://www.yahoo.com/news/articles/fact-check-charlie-kirk-called-224000092.html)
 <!-- feed end -->
 
 ---
