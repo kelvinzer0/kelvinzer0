@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Heading to the airport this weekend? Here’s the closures you need to know about](https://www.yahoo.com/news/articles/heading-airport-weekend-closures-know-024433852.html)
-- Sep 13 - [Opendoor chair says the company currently has 1,400 employees but only needs 200 of them](https://finance.yahoo.com/news/opendoor-chair-says-company-currently-004744357.html)
-- Sep 12 - [“I don’t know what this guy was into,” the MAGA commentator admitted one day after smearing the entire transgender community.](https://www.yahoo.com/news/videos/don-t-know-guy-maga-225135494.html)
 - Sep 12 - [Appeals court rules Trump administration can end legal protections for more than 400,000 migrants](https://www.yahoo.com/news/articles/appeals-court-rules-trump-administration-224632416.html)
 - Sep 12 - [Former Red Sox pitcher Austin Maddox sentenced to 3 years in prison for soliciting a minor](https://www.yahoo.com/news/articles/former-red-sox-pitcher-austin-222335539.html)
+- Sep 12 - [Exclusive-Fed Governor Cook declared her Atlanta property as “vacation home,” documents show](https://www.yahoo.com/news/articles/exclusive-fed-governor-cook-declared-212353002.html)
+- Sep 12 - ["Florida Banning Dictionaries Is The Most On-Brand Move Ever": 31 Political Tweets From This Dystopian Week](https://www.yahoo.com/news/articles/probably-single-greatest-example-maga-212221892.html)
+- Sep 12 - [Trump administration to award a no-bid contract on research into vaccines and autism](https://www.yahoo.com/news/articles/us-government-award-no-bid-210715062.html)
 <!-- feed end -->
 
 ---
