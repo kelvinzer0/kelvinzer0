@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Ceremony held in Nagasaki, Japan to honor WWII Dutch POWs who were held under harsh conditions](https://www.yahoo.com/news/videos/ceremony-held-nagasaki-japan-honor-080047302.html)
 - Sep 13 - [Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired](https://www.yahoo.com/news/articles/netanyahu-gambled-targeting-hamas-leaders-051052100.html)
-- Sep 12 - [Worsening crisis forces millions of people to pack up and leave their homes: 'It hurts'](https://www.yahoo.com/news/articles/worsening-crisis-forces-millions-people-235500182.html)
-- Sep 12 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
-- Sep 12 - [People Are Applauding AOC's Viral Comments After Charlie Kirk's Death](https://www.yahoo.com/news/articles/charlie-kirks-death-aocs-statement-231442965.html)
+- Sep 13 - [Opendoor chair says the company currently has 1,400 employees but only needs 200 of them](https://finance.yahoo.com/news/opendoor-chair-says-company-currently-004744357.html)
+- Sep 12 - [“I don’t know what this guy was into,” the MAGA commentator admitted one day after smearing the entire transgender community.](https://www.yahoo.com/news/videos/don-t-know-guy-maga-225135494.html)
+- Sep 12 - [Appeals court rules Trump administration can end legal protections for more than 400,000 migrants](https://www.yahoo.com/news/articles/appeals-court-rules-trump-administration-224632416.html)
+- Sep 12 - [Fact Check: Charlie Kirk called Martin Luther King Jr. 'awful'](https://www.yahoo.com/news/articles/fact-check-charlie-kirk-called-224000092.html)
 <!-- feed end -->
 
 ---
