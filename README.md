@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Colombian court rules Meta was wrong to bar porn star's Instagram account](https://www.yahoo.com/news/articles/colombian-court-rules-meta-wrong-084443812.html)
+- Sep 13 - [Trump issues an ultimatum for NATO countries on Russia sanctions](https://www.yahoo.com/news/articles/trump-issues-ultimatum-nato-countries-143247386.html)
+- Sep 13 - [Charlie Kirk's allies warn Americans: Mourn him properly or else](https://www.yahoo.com/news/articles/charlie-kirks-allies-warn-americans-135045125.html)
+- Sep 13 - [Scientists Say They Can't Explain the Signal They Just Detected From Beyond Our Galaxy](https://www.yahoo.com/news/articles/scientists-cant-explain-signal-just-121524659.html)
+- Sep 13 - [More than 100,000 people pack streets of central London in march organized by far-right activist](https://www.yahoo.com/news/videos/thousands-converge-central-london-march-120729424.html)
 - Sep 13 - [I’m 40 and my mom just died — leaving me a $3.25M inheritance. How do I make the most of this sudden windfall?](https://finance.yahoo.com/news/m-40-mom-just-died-103000408.html)
-- Sep 13 - [Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired](https://www.yahoo.com/news/articles/netanyahu-gambled-targeting-hamas-leaders-051052100.html)
-- Sep 13 - [Scientists make stunning 8,000-year-old discovery during underwater expedition: 'It's like a time capsule'](https://www.yahoo.com/news/articles/scientists-stunning-8-000-old-011500307.html)
-- Sep 12 - [Worsening crisis forces millions of people to pack up and leave their homes: 'It hurts'](https://www.yahoo.com/news/articles/worsening-crisis-forces-millions-people-235500182.html)
 <!-- feed end -->
 
 ---
