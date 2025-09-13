@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Colombian court rules Meta was wrong to bar porn star's Instagram account](https://www.yahoo.com/news/articles/colombian-court-rules-meta-wrong-084443812.html)
+- Sep 13 - [I’m 40 and my mom just died — leaving me a $3.25M inheritance. How do I make the most of this sudden windfall?](https://finance.yahoo.com/news/m-40-mom-just-died-103000408.html)
 - Sep 13 - [Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired](https://www.yahoo.com/news/articles/netanyahu-gambled-targeting-hamas-leaders-051052100.html)
-- Sep 13 - [Opendoor chair says the company currently has 1,400 employees but only needs 200 of them](https://finance.yahoo.com/news/opendoor-chair-says-company-currently-004744357.html)
+- Sep 13 - [Scientists make stunning 8,000-year-old discovery during underwater expedition: 'It's like a time capsule'](https://www.yahoo.com/news/articles/scientists-stunning-8-000-old-011500307.html)
 - Sep 12 - [Worsening crisis forces millions of people to pack up and leave their homes: 'It hurts'](https://www.yahoo.com/news/articles/worsening-crisis-forces-millions-people-235500182.html)
-- Sep 12 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
-- Sep 12 - [Fact Check: Charlie Kirk called Martin Luther King Jr. 'awful'](https://www.yahoo.com/news/articles/fact-check-charlie-kirk-called-224000092.html)
 <!-- feed end -->
 
 ---
