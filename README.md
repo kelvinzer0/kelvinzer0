@@ -44,7 +44,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Sep 12 - [“I don’t know what this guy was into,” the MAGA commentator admitted one day after smearing the entire transgender community.](https://www.yahoo.com/news/videos/don-t-know-guy-maga-225135494.html)
 - Sep 12 - [Appeals court rules Trump administration can end legal protections for more than 400,000 migrants](https://www.yahoo.com/news/articles/appeals-court-rules-trump-administration-224632416.html)
 - Sep 12 - [Former Red Sox pitcher Austin Maddox sentenced to 3 years in prison for soliciting a minor](https://www.yahoo.com/news/articles/former-red-sox-pitcher-austin-222335539.html)
-- Sep 12 - [We Met With Ted Cruz In 2022 About Stopping Mass Shootings. His Response Was Disgusting.](https://www.yahoo.com/news/articles/met-ted-cruz-2022-stopping-215502367.html)
+- Sep 12 - [Exclusive-Fed Governor Cook declared her Atlanta property as “vacation home,” documents show](https://www.yahoo.com/news/articles/exclusive-fed-governor-cook-declared-212353002.html)
 <!-- feed end -->
 
 ---
