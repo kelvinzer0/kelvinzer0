@@ -42,9 +42,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 <!-- feed start -->
 - Sep 13 - [Trump issues an ultimatum for NATO countries on Russia sanctions](https://www.yahoo.com/news/articles/trump-issues-ultimatum-nato-countries-143247386.html)
 - Sep 13 - [Charlie Kirk's allies warn Americans: Mourn him properly or else](https://www.yahoo.com/news/articles/charlie-kirks-allies-warn-americans-135045125.html)
-- Sep 13 - [Scientists Say They Can't Explain the Signal They Just Detected From Beyond Our Galaxy](https://www.yahoo.com/news/articles/scientists-cant-explain-signal-just-121524659.html)
-- Sep 13 - [More than 100,000 people pack streets of central London in march organized by far-right activist](https://www.yahoo.com/news/videos/thousands-converge-central-london-march-120729424.html)
 - Sep 13 - [I’m 40 and my mom just died — leaving me a $3.25M inheritance. How do I make the most of this sudden windfall?](https://finance.yahoo.com/news/m-40-mom-just-died-103000408.html)
+- Sep 13 - [The Epstein Scandal Finally Takes Down a Politician](https://www.yahoo.com/news/articles/epstein-scandal-finally-takes-down-100000349.html)
+- Sep 13 - [Webb telescope snaps sparkling photo of a giant star blasting jets across the Milky Way](https://www.yahoo.com/news/articles/webb-telescope-snaps-sparkling-photo-090000501.html)
 <!-- feed end -->
 
 ---
