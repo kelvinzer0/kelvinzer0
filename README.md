@@ -41,10 +41,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 13 - [Sole Survivor of Air India Crash, Which Killed 241, Still Recovering Months Later — and Wife Is 'Not Sure' When He'll Return Home](https://www.yahoo.com/news/articles/sole-survivor-air-india-crash-170426178.html)
-- Sep 13 - [New French PM gives up predecessor's idea to cut back two public holidays](https://www.yahoo.com/news/articles/french-pm-gives-predecessors-idea-164605845.html)
-- Sep 13 - [Café explosion in Madrid injures more than 20](https://www.yahoo.com/news/videos/caf-explosion-madrid-injures-more-164507965.html)
 - Sep 13 - [Trump issues an ultimatum for NATO countries on Russia sanctions](https://www.yahoo.com/news/articles/trump-issues-ultimatum-nato-countries-143247386.html)
-- Sep 13 - [I’m 40 and my mom just died — leaving me a $3.25M inheritance. How do I make the most of this sudden windfall?](https://finance.yahoo.com/news/m-40-mom-just-died-103000408.html)
+- Sep 13 - [Forget the S-Class: The New Mercedes-Benz VLS Is in a League of Its Own](https://autos.yahoo.com/new-vehicles-and-reviews/articles/forget-class-mercedes-benz-vls-150000808.html)
+- Sep 13 - [More than 100,000 people pack streets of central London in march organized by far-right activist](https://www.yahoo.com/news/videos/thousands-converge-central-london-march-120729424.html)
+- Sep 13 - [Video captures fight erupting at Charlie Kirk vigil after activist reportedly shouts profanity at crowd](https://www.yahoo.com/news/articles/video-captures-fight-erupting-charlie-112325984.html)
 <!-- feed end -->
 
 ---
