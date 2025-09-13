@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [U.N. condemns reported massacre in Haiti that left more than 40 dead](https://www.yahoo.com/news/articles/u-n-condemns-reported-massacre-214736984.html)
 - Sep 13 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
 - Sep 13 - [Following another terrible week for Trump, national security veteran David Rothkopf says the 79-year-old president is spiraling.](https://www.yahoo.com/news/videos/following-another-terrible-week-trump-190426213.html)
+- Sep 13 - [Trump issues an ultimatum for NATO countries on Russia sanctions](https://www.yahoo.com/news/articles/trump-issues-ultimatum-nato-countries-143247386.html)
 - Sep 13 - ['Just Kill 'Em': Fox Host Makes Shocking Comment On Homeless People](https://www.yahoo.com/news/articles/just-kill-em-fox-host-171753345.html)
-- Sep 13 - [Sole Survivor of Air India Crash, Which Killed 241, Still Recovering Months Later — and Wife Is 'Not Sure' When He'll Return Home](https://www.yahoo.com/news/articles/sole-survivor-air-india-crash-170426178.html)
-- Sep 13 - [Charlie Kirk's allies warn Americans: Mourn him properly or else](https://www.yahoo.com/news/articles/charlie-kirks-allies-warn-americans-135045125.html)
 <!-- feed end -->
 
 ---
