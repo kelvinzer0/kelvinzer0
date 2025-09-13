@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 13 - [Social Security Will Permanently Change on Sept. 30, With 5 Additional Changes a Near-Certainty on Jan. 1](https://finance.yahoo.com/news/social-security-permanently-change-sept-074400939.html)
 - Sep 13 - [Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired](https://www.yahoo.com/news/articles/netanyahu-gambled-targeting-hamas-leaders-051052100.html)
-- Sep 13 - [Opendoor chair says the company currently has 1,400 employees but only needs 200 of them](https://finance.yahoo.com/news/opendoor-chair-says-company-currently-004744357.html)
-- Sep 12 - [“I don’t know what this guy was into,” the MAGA commentator admitted one day after smearing the entire transgender community.](https://www.yahoo.com/news/videos/don-t-know-guy-maga-225135494.html)
+- Sep 13 - [Scientists make stunning 8,000-year-old discovery during underwater expedition: 'It's like a time capsule'](https://www.yahoo.com/news/articles/scientists-stunning-8-000-old-011500307.html)
 - Sep 12 - [Appeals court rules Trump administration can end legal protections for more than 400,000 migrants](https://www.yahoo.com/news/articles/appeals-court-rules-trump-administration-224632416.html)
-- Sep 12 - [Fact Check: Charlie Kirk called Martin Luther King Jr. 'awful'](https://www.yahoo.com/news/articles/fact-check-charlie-kirk-called-224000092.html)
+- Sep 12 - [Former Red Sox pitcher Austin Maddox sentenced to 3 years in prison for soliciting a minor](https://www.yahoo.com/news/articles/former-red-sox-pitcher-austin-222335539.html)
 <!-- feed end -->
 
 ---
