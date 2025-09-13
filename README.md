@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 12 - [Appeals court rules Trump administration can end legal protections for more than 400,000 migrants](https://www.yahoo.com/news/articles/appeals-court-rules-trump-administration-224632416.html)
-- Sep 12 - [Former Red Sox pitcher Austin Maddox sentenced to 3 years in prison for soliciting a minor](https://www.yahoo.com/news/articles/former-red-sox-pitcher-austin-222335539.html)
-- Sep 12 - [Exclusive-Fed Governor Cook declared her Atlanta property as “vacation home,” documents show](https://www.yahoo.com/news/articles/exclusive-fed-governor-cook-declared-212353002.html)
-- Sep 12 - ["Florida Banning Dictionaries Is The Most On-Brand Move Ever": 31 Political Tweets From This Dystopian Week](https://www.yahoo.com/news/articles/probably-single-greatest-example-maga-212221892.html)
-- Sep 12 - [Trump administration to award a no-bid contract on research into vaccines and autism](https://www.yahoo.com/news/articles/us-government-award-no-bid-210715062.html)
+- Sep 13 - [Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired](https://www.yahoo.com/news/articles/netanyahu-gambled-targeting-hamas-leaders-051052100.html)
+- Sep 13 - [We won’t stop until Putin falls, say the Russians fighting against him](https://www.yahoo.com/news/articles/won-t-stop-until-putin-050600960.html)
+- Sep 12 - [Worsening crisis forces millions of people to pack up and leave their homes: 'It hurts'](https://www.yahoo.com/news/articles/worsening-crisis-forces-millions-people-235500182.html)
+- Sep 12 - [Bank of America shares an eye-popping chart showing a potential stock-market bubble: 'It better be different this time'](https://finance.yahoo.com/news/bank-america-shares-eye-popping-030409713.html)
+- Sep 12 - [“I don’t know what this guy was into,” the MAGA commentator admitted one day after smearing the entire transgender community.](https://www.yahoo.com/news/videos/don-t-know-guy-maga-225135494.html)
 <!-- feed end -->
 
 ---
