@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Sole Survivor of Air India Crash, Which Killed 241, Still Recovering Months Later — and Wife Is 'Not Sure' When He'll Return Home](https://www.yahoo.com/news/articles/sole-survivor-air-india-crash-170426178.html)
+- Sep 13 - [Driver in crash that killed Oregon softball coach and player sentenced to 20 years in prison](https://www.yahoo.com/news/articles/driver-crash-killed-oregon-softball-195318171.html)
+- Sep 13 - [Following another terrible week for Trump, national security veteran David Rothkopf says the 79-year-old president is spiraling.](https://www.yahoo.com/news/videos/following-another-terrible-week-trump-190426213.html)
 - Sep 13 - [Trump issues an ultimatum for NATO countries on Russia sanctions](https://www.yahoo.com/news/articles/trump-issues-ultimatum-nato-countries-143247386.html)
-- Sep 13 - [Forget the S-Class: The New Mercedes-Benz VLS Is in a League of Its Own](https://autos.yahoo.com/new-vehicles-and-reviews/articles/forget-class-mercedes-benz-vls-150000808.html)
-- Sep 13 - [More than 100,000 people pack streets of central London in march organized by far-right activist](https://www.yahoo.com/news/videos/thousands-converge-central-london-march-120729424.html)
-- Sep 13 - [Video captures fight erupting at Charlie Kirk vigil after activist reportedly shouts profanity at crowd](https://www.yahoo.com/news/articles/video-captures-fight-erupting-charlie-112325984.html)
+- Sep 13 - ['Just Kill 'Em': Fox Host Makes Shocking Comment On Homeless People](https://www.yahoo.com/news/articles/just-kill-em-fox-host-171753345.html)
+- Sep 13 - [Sole Survivor of Air India Crash, Which Killed 241, Still Recovering Months Later — and Wife Is 'Not Sure' When He'll Return Home](https://www.yahoo.com/news/articles/sole-survivor-air-india-crash-170426178.html)
 <!-- feed end -->
 
 ---
