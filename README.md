@@ -43,8 +43,8 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 - Sep 13 - [Netanyahu gambled by targeting Hamas leaders in Qatar. It appears to have backfired](https://www.yahoo.com/news/articles/netanyahu-gambled-targeting-hamas-leaders-051052100.html)
 - Sep 13 - [Opendoor chair says the company currently has 1,400 employees but only needs 200 of them](https://finance.yahoo.com/news/opendoor-chair-says-company-currently-004744357.html)
 - Sep 12 - [Appeals court rules Trump administration can end legal protections for more than 400,000 migrants](https://www.yahoo.com/news/articles/appeals-court-rules-trump-administration-224632416.html)
-- Sep 12 - [Former Red Sox pitcher Austin Maddox sentenced to 3 years in prison for soliciting a minor](https://www.yahoo.com/news/articles/former-red-sox-pitcher-austin-222335539.html)
-- Sep 12 - [We Met With Ted Cruz In 2022 About Stopping Mass Shootings. His Response Was Disgusting.](https://www.yahoo.com/news/articles/met-ted-cruz-2022-stopping-215502367.html)
+- Sep 12 - [Exclusive-Fed Governor Cook declared her Atlanta property as “vacation home,” documents show](https://www.yahoo.com/news/articles/exclusive-fed-governor-cook-declared-212353002.html)
+- Sep 12 - [Trump administration to award a no-bid contract on research into vaccines and autism](https://www.yahoo.com/news/articles/us-government-award-no-bid-210715062.html)
 <!-- feed end -->
 
 ---
