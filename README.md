@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Farmers struggle after pantry staple crop becomes extremely difficult to grow: 'One of the most difficult growing seasons'](https://www.yahoo.com/news/articles/farmers-struggle-pantry-staple-crop-235500653.html)
-- Sep 13 - [Surfer's side-by-side video of same beach 10 years apart reveals troubling trend: 'It no longer holds'](https://www.yahoo.com/news/articles/surfers-side-side-video-same-230000475.html)
-- Sep 13 - [4 Young Girls Die in a House Fire After Their Mom, 28, Allegedly Left Them Unsupervised: 'My Heart Is Shattered,' Dad Says](https://www.yahoo.com/news/articles/4-young-girls-die-house-200056066.html)
-- Sep 13 - [Following another terrible week for Trump, national security veteran David Rothkopf says the 79-year-old president is spiraling.](https://www.yahoo.com/news/videos/following-another-terrible-week-trump-190426213.html)
-- Sep 13 - [Trump issues an ultimatum for NATO countries on Russia sanctions](https://www.yahoo.com/news/articles/trump-issues-ultimatum-nato-countries-143247386.html)
+- Sep 14 - [Trump's travel ban keeps international students from coming to the US for college](https://www.yahoo.com/news/articles/trumps-travel-ban-keeps-international-040202214.html)
+- Sep 13 - [Warren Buffett Once Said Americans Should Be 'Lining Up' To Buy Homes, Calling The 30-Year Mortgage A 'No-Brainer' And A Good Way To Go Short the Dollar](https://finance.yahoo.com/news/warren-buffett-once-said-americans-223106755.html)
+- Sep 13 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
+- Sep 13 - [Whoopi Goldberg lashes out at Democrats, says they should have 'kept their mouths shut' about Biden](https://www.yahoo.com/news/articles/whoopi-goldberg-lashes-democrats-says-210009412.html)
+- Sep 13 - [Charlie Kirk's alleged assassin lived with transgender partner who is now cooperating with FBI: Officials](https://www.yahoo.com/news/articles/charlie-kirks-alleged-assassin-lived-201027503.html)
 <!-- feed end -->
 
 ---
