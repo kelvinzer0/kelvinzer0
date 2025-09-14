@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Trump's travel ban keeps international students from coming to the US for college](https://www.yahoo.com/news/articles/trumps-travel-ban-keeps-international-040202214.html)
-- Sep 13 - [Warren Buffett Once Said Americans Should Be 'Lining Up' To Buy Homes, Calling The 30-Year Mortgage A 'No-Brainer' And A Good Way To Go Short the Dollar](https://finance.yahoo.com/news/warren-buffett-once-said-americans-223106755.html)
+- Sep 14 - [Former Tesla owners sound off on concerning trend driving them away from brand: 'I'm out'](https://finance.yahoo.com/news/former-tesla-owners-sound-off-004500010.html)
+- Sep 13 - [Onlooker captures image of giant, mysterious vessel in open water: 'I have a hard time understanding this'](https://www.yahoo.com/news/articles/onlooker-captures-image-giant-mysterious-234000864.html)
 - Sep 13 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
 - Sep 13 - [Whoopi Goldberg lashes out at Democrats, says they should have 'kept their mouths shut' about Biden](https://www.yahoo.com/news/articles/whoopi-goldberg-lashes-democrats-says-210009412.html)
-- Sep 13 - [Charlie Kirk's alleged assassin lived with transgender partner who is now cooperating with FBI: Officials](https://www.yahoo.com/news/articles/charlie-kirks-alleged-assassin-lived-201027503.html)
+- Sep 13 - ['That's A Disgusting Entitlement' — Dave Ramsey Responds After Parents Say Their Kids Refuse To Pay $47,000 Mortgage](https://finance.yahoo.com/news/thats-disgusting-entitlement-dave-ramsey-203038507.html)
 <!-- feed end -->
 
 ---
