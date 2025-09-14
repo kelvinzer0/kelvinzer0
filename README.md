@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 14 - [Pilgrims turn Spain's Santiago de Compostela into the world's latest overtourism flashpoint](https://www.yahoo.com/news/articles/pilgrims-turn-spains-santiago-compostela-044744617.html)
 - Sep 14 - [Former Tesla owners sound off on concerning trend driving them away from brand: 'I'm out'](https://finance.yahoo.com/news/former-tesla-owners-sound-off-004500010.html)
+- Sep 14 - [Trump’s Facial Droop: 9/11 Memorial Appearance Raises Concerns About Health](https://www.yahoo.com/news/articles/trump-facial-droop-9-11-002129721.html)
 - Sep 13 - [Onlooker captures image of giant, mysterious vessel in open water: 'I have a hard time understanding this'](https://www.yahoo.com/news/articles/onlooker-captures-image-giant-mysterious-234000864.html)
 - Sep 13 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
-- Sep 13 - [Whoopi Goldberg lashes out at Democrats, says they should have 'kept their mouths shut' about Biden](https://www.yahoo.com/news/articles/whoopi-goldberg-lashes-democrats-says-210009412.html)
-- Sep 13 - ['That's A Disgusting Entitlement' — Dave Ramsey Responds After Parents Say Their Kids Refuse To Pay $47,000 Mortgage](https://finance.yahoo.com/news/thats-disgusting-entitlement-dave-ramsey-203038507.html)
 <!-- feed end -->
 
 ---
