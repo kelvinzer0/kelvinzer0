@@ -40,10 +40,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [What Does Space Actually Smell Like? Here's What Scientists Say](https://www.yahoo.com/news/articles/does-space-actually-smell-heres-201700529.html)
-- Sep 14 - [Spain’s Vuelta cycling finale abandoned after massive pro-Palestine protest](https://sports.yahoo.com/article/spain-vuelta-cycling-finale-abandoned-195701543.html)
-- Sep 14 - [UC Berkeley names 160 staff and faculty to Trump administration as part of antisemitism investigation](https://www.yahoo.com/news/articles/uc-berkeley-names-160-staff-171558828.html)
+- Sep 14 - [Zelenskiy says Ukrainian forces make progress in Sumy border areas](https://www.yahoo.com/news/articles/zelenskiy-says-ukrainian-forces-progress-220510704.html)
+- Sep 14 - [18 More Of The Wildest Historical Lies Most People Still Believe](https://www.yahoo.com/news/articles/18-more-wildest-historical-lies-203103334.html)
 - Sep 14 - [Barron Trump’s Unexpected College Decision Sparks Buzz About His Future With Dad Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-unexpected-college-decision-183252523.html)
+- Sep 14 - [Rep. Michael McCaul announces he will not seek reelection to House](https://www.yahoo.com/news/articles/rep-michael-mccaul-announces-not-143053654.html)
 - Sep 14 - [North Little Rock Officer Tommy Norman arrested on Saturday](https://www.yahoo.com/news/articles/north-little-rock-officer-tommy-141436077.html)
 <!-- feed end -->
 
