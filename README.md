@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Proud homeowner shares how they maximized their rooftop solar power: 'They'll pay me out at the end of the year'](https://www.yahoo.com/lifestyle/articles/proud-homeowner-shares-maximized-rooftop-074500167.html)
 - Sep 14 - [Turkey wary of Israeli threat following airstrike on Hamas in Qatar](https://www.yahoo.com/news/articles/turkey-wary-israeli-threat-following-050154246.html)
+- Sep 14 - [Former Tesla owners sound off on concerning trend driving them away from brand: 'I'm out'](https://finance.yahoo.com/news/former-tesla-owners-sound-off-004500010.html)
 - Sep 13 - [Onlooker captures image of giant, mysterious vessel in open water: 'I have a hard time understanding this'](https://www.yahoo.com/news/articles/onlooker-captures-image-giant-mysterious-234000864.html)
 - Sep 13 - [Tesla announces surprisingly affordable offer to get drivers into its vehicles: 'This is great'](https://autos.yahoo.com/deals-and-buying-guides/articles/tesla-announces-surprisingly-affordable-offer-231500571.html)
-- Sep 13 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
+- Sep 13 - [Whoopi Goldberg lashes out at Democrats, says they should have 'kept their mouths shut' about Biden](https://www.yahoo.com/news/articles/whoopi-goldberg-lashes-democrats-says-210009412.html)
 <!-- feed end -->
 
 ---
