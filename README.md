@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [People on Capitol Hill hated Stephen Miller so much they spread rumor he likes playing with dolls, report says](https://www.yahoo.com/news/articles/people-capitol-hill-hated-stephen-185202821.html)
-- Sep 14 - [North Little Rock Officer Tommy Norman arrested on Saturday](https://www.yahoo.com/news/articles/north-little-rock-officer-tommy-141436077.html)
-- Sep 14 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
-- Sep 14 - [Scientists issue warning over concerning phenomenon wreaking havoc in Mediterranean Sea: 'Their population is increasing year on year'](https://www.yahoo.com/news/articles/scientists-issue-warning-over-concerning-090000902.html)
-- Sep 14 - [Dear Abby: My husband wants my money](https://www.yahoo.com/lifestyle/articles/dear-abby-husband-wants-money-070000511.html)
+- Sep 14 - [GOP staff on Capitol Hill hated Stephen Miller so much they spread rumors he likes playing with dolls, report says](https://www.yahoo.com/news/articles/people-capitol-hill-hated-stephen-185202821.html)
+- Sep 14 - [One of Kurtz’s colleagues mocked him for the cancellation of his show “Media Buzz.”](https://www.yahoo.com/news/videos/one-kurtz-colleagues-mocked-him-192635367.html)
+- Sep 14 - [Barron Trump’s Unexpected College Decision Sparks Buzz About His Future With Dad Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-unexpected-college-decision-183252523.html)
+- Sep 14 - [Mark Kelly: 'The video is all over social media. It's kind of hard to avoid'](https://www.yahoo.com/news/articles/mark-kelly-video-over-social-152328341.html)
+- Sep 14 - [Four Jacksonville smoke shop clerks arrested in nitrous oxide sales investigation, police say](https://www.yahoo.com/news/articles/four-jacksonville-smoke-shop-clerks-143016905.html)
 <!-- feed end -->
 
 ---
