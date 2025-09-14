@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Four Jacksonville smoke shop clerks arrested in nitrous oxide sales investigation, police say](https://www.yahoo.com/news/articles/four-jacksonville-smoke-shop-clerks-143016905.html)
-- Sep 14 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
-- Sep 14 - [Erie County Firebirds restaurant closed, reopened after 7 violations found in inspection](https://www.yahoo.com/news/articles/erie-county-firebirds-restaurant-closed-090649267.html)
-- Sep 14 - [Dear Abby: My husband wants my money](https://www.yahoo.com/lifestyle/articles/dear-abby-husband-wants-money-070000511.html)
-- Sep 14 - [Turkey wary of Israeli threat following airstrike on Hamas in Qatar](https://www.yahoo.com/news/articles/turkey-wary-israeli-threat-following-050154246.html)
+- Sep 14 - [Competitors battle for crown at World Black Pudding Throwing Championships](https://www.yahoo.com/news/videos/competitors-battle-crown-world-black-153221275.html)
+- Sep 14 - [North Little Rock Officer Tommy Norman arrested on Saturday](https://www.yahoo.com/news/articles/north-little-rock-officer-tommy-141436077.html)
+- Sep 14 - [Ukrainian drones strike one of Russia's top oil refineries, sparking fire](https://www.yahoo.com/news/articles/ukrainian-drones-strike-one-russias-102115322.html)
+- Sep 14 - [All Social Security Retirees Should Do This on Oct. 15](https://finance.yahoo.com/news/social-security-retirees-oct-15-094800885.html)
+- Sep 14 - [Scientists issue warning over concerning phenomenon wreaking havoc in Mediterranean Sea: 'Their population is increasing year on year'](https://www.yahoo.com/news/articles/scientists-issue-warning-over-concerning-090000902.html)
 <!-- feed end -->
 
 ---
