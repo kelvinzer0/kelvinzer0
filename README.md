@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Turkey wary of Israeli threat following airstrike on Hamas in Qatar](https://www.yahoo.com/news/articles/turkey-wary-israeli-threat-following-050154246.html)
-- Sep 14 - [Former Tesla owners sound off on concerning trend driving them away from brand: 'I'm out'](https://finance.yahoo.com/news/former-tesla-owners-sound-off-004500010.html)
-- Sep 13 - [Onlooker captures image of giant, mysterious vessel in open water: 'I have a hard time understanding this'](https://www.yahoo.com/news/articles/onlooker-captures-image-giant-mysterious-234000864.html)
-- Sep 13 - [Tesla announces surprisingly affordable offer to get drivers into its vehicles: 'This is great'](https://autos.yahoo.com/deals-and-buying-guides/articles/tesla-announces-surprisingly-affordable-offer-231500571.html)
-- Sep 13 - [Whoopi Goldberg lashes out at Democrats, says they should have 'kept their mouths shut' about Biden](https://www.yahoo.com/news/articles/whoopi-goldberg-lashes-democrats-says-210009412.html)
+- Sep 14 - [Toyota unveils next-gen model with surprisingly affordable price tag — here are the details](https://autos.yahoo.com/ev-and-future-tech/articles/toyota-unveils-next-gen-model-091500425.html)
+- Sep 14 - [Lobster record-breaker, restaurant for sale, John Shea: Cape Cod Times top stories](https://www.yahoo.com/news/articles/lobster-record-breaker-restaurant-sale-090409462.html)
+- Sep 14 - [Scientists issue warning over concerning phenomenon wreaking havoc in Mediterranean Sea: 'Their population is increasing year on year'](https://www.yahoo.com/news/articles/scientists-issue-warning-over-concerning-090000902.html)
+- Sep 14 - [Bombed, starving and orphaned: The horrific plight of children arriving in Gaza’s hospitals alone](https://www.yahoo.com/news/articles/bombed-starving-orphaned-horrific-plight-084153668.html)
+- Sep 14 - [Ukraine attacks major Russian refinery with drones sparking a fire](https://www.yahoo.com/news/articles/fire-put-russias-kirishi-oil-024617008.html)
 <!-- feed end -->
 
 ---
