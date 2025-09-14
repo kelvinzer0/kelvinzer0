@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Toyota unveils next-gen model with surprisingly affordable price tag — here are the details](https://autos.yahoo.com/ev-and-future-tech/articles/toyota-unveils-next-gen-model-091500425.html)
-- Sep 14 - [Lobster record-breaker, restaurant for sale, John Shea: Cape Cod Times top stories](https://www.yahoo.com/news/articles/lobster-record-breaker-restaurant-sale-090409462.html)
+- Sep 14 - [Nepal's new leader says youth revolt 'turned everything upside down'](https://www.yahoo.com/news/articles/nepals-leader-says-youth-revolt-101831543.html)
+- Sep 14 - [Scientists thrilled after underwater cameras capture first-of-its-kind footage of rare shark: 'Incredibly exciting'](https://www.yahoo.com/news/articles/scientists-thrilled-underwater-cameras-capture-093000221.html)
 - Sep 14 - [Scientists issue warning over concerning phenomenon wreaking havoc in Mediterranean Sea: 'Their population is increasing year on year'](https://www.yahoo.com/news/articles/scientists-issue-warning-over-concerning-090000902.html)
-- Sep 14 - [Bombed, starving and orphaned: The horrific plight of children arriving in Gaza’s hospitals alone](https://www.yahoo.com/news/articles/bombed-starving-orphaned-horrific-plight-084153668.html)
-- Sep 14 - [Ukraine attacks major Russian refinery with drones sparking a fire](https://www.yahoo.com/news/articles/fire-put-russias-kirishi-oil-024617008.html)
+- Sep 13 - [Trump Says White House’s Lavish New Ballroom Will Be ‘a Little Bigger’ Than Original Plans, With Almost 40% More Guest Capacity](https://www.yahoo.com/news/articles/trump-says-white-house-lavish-234800142.html)
+- Sep 13 - [Warren Buffett Once Said Americans Should Be 'Lining Up' To Buy Homes, Calling The 30-Year Mortgage A 'No-Brainer' And A Good Way To Go Short the Dollar](https://finance.yahoo.com/news/warren-buffett-once-said-americans-223106755.html)
 <!-- feed end -->
 
 ---
