@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Bombed, starving and orphaned: The horrific plight of children arriving in Gaza’s hospitals alone](https://www.yahoo.com/news/articles/bombed-starving-orphaned-horrific-plight-084153668.html)
-- Sep 14 - [DART spacecraft's asteroid impact informs new planetary defense strategy](https://www.yahoo.com/news/articles/dart-spacecrafts-asteroid-impact-informs-160700398.html)
-- Sep 14 - [Crowds gather outside hotel housing Afghans with 'ban foreign criminals' sign](https://www.yahoo.com/news/videos/crowds-gather-outside-hotel-housing-154401779.html)
-- Sep 14 - [Swiss bank UBS mulls move to US to avoid new rules, reports New York Post](https://finance.yahoo.com/news/swiss-bank-ubs-mulls-move-135236857.html)
-- Sep 14 - [Ukrainian drones strike one of Russia's top oil refineries, sparking fire](https://www.yahoo.com/news/articles/ukrainian-drones-strike-one-russias-102115322.html)
+- Sep 14 - [Pair arrested after death of two-year-old girl](https://www.yahoo.com/news/articles/pair-arrested-death-two-old-164332058.html)
+- Sep 14 - [North Little Rock Officer Tommy Norman arrested on Saturday](https://www.yahoo.com/news/articles/north-little-rock-officer-tommy-141436077.html)
+- Sep 14 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
+- Sep 14 - [Toyota unveils next-gen model with surprisingly affordable price tag — here are the details](https://autos.yahoo.com/ev-and-future-tech/articles/toyota-unveils-next-gen-model-091500425.html)
+- Sep 14 - [Scientists issue warning over concerning phenomenon wreaking havoc in Mediterranean Sea: 'Their population is increasing year on year'](https://www.yahoo.com/news/articles/scientists-issue-warning-over-concerning-090000902.html)
 <!-- feed end -->
 
 ---
