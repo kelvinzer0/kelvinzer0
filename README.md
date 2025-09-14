@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Two stages close as 'wild weather' hits festival](https://www.yahoo.com/news/articles/two-stages-close-wild-weather-134319864.html)
+- Sep 14 - [Four Jacksonville smoke shop clerks arrested in nitrous oxide sales investigation, police say](https://www.yahoo.com/news/articles/four-jacksonville-smoke-shop-clerks-143016905.html)
+- Sep 14 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
+- Sep 14 - [Erie County Firebirds restaurant closed, reopened after 7 violations found in inspection](https://www.yahoo.com/news/articles/erie-county-firebirds-restaurant-closed-090649267.html)
+- Sep 14 - [Dear Abby: My husband wants my money](https://www.yahoo.com/lifestyle/articles/dear-abby-husband-wants-money-070000511.html)
 - Sep 14 - [Turkey wary of Israeli threat following airstrike on Hamas in Qatar](https://www.yahoo.com/news/articles/turkey-wary-israeli-threat-following-050154246.html)
-- Sep 14 - [Wordle hints today for #1,548: Clues and answer for Sunday, September 14](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1548-clues-and-answer-for-sunday-september-14-040156106.html)
-- Sep 14 - [Experts issue scathing rebuttal to US government report: 'A total disgrace'](https://www.yahoo.com/news/articles/experts-issue-scathing-rebuttal-us-013000002.html)
-- Sep 14 - [6-year-old Portage County girl found safe after Amber Alert issued, uncle in custody](https://www.yahoo.com/news/articles/6-old-portage-county-girl-003625386.html)
 <!-- feed end -->
 
 ---
