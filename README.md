@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 13 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
+- Sep 14 - [Lawyers Are Sharing The Dumbest Things That Won Or Lost A Case, And Honestly, My Mouth Is Agape](https://www.yahoo.com/news/articles/lawyers-sharing-dumbest-things-won-011602454.html)
+- Sep 13 - [Onlooker captures image of giant, mysterious vessel in open water: 'I have a hard time understanding this'](https://www.yahoo.com/news/articles/onlooker-captures-image-giant-mysterious-234000864.html)
+- Sep 13 - [Whoopi Goldberg lashes out at Democrats, says they should have 'kept their mouths shut' about Biden](https://www.yahoo.com/news/articles/whoopi-goldberg-lashes-democrats-says-210009412.html)
 - Sep 13 - [Following another terrible week for Trump, national security veteran David Rothkopf says the 79-year-old president is spiraling.](https://www.yahoo.com/news/videos/following-another-terrible-week-trump-190426213.html)
-- Sep 13 - [Two persons of interest wanted in deadly Ocean Beach shooting — have you seen them?](https://www.yahoo.com/news/articles/two-persons-interest-wanted-deadly-183109386.html)
 - Sep 13 - ['Just Kill 'Em': Fox Host Makes Shocking Comment On Homeless People](https://www.yahoo.com/news/articles/just-kill-em-fox-host-171753345.html)
-- Sep 13 - ['We are in a gigantic price bubble': Famed economist warns extreme stock valuations point to negative returns ahead](https://finance.yahoo.com/news/gigantic-price-bubble-famed-economist-171501432.html)
 <!-- feed end -->
 
 ---
