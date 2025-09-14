@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Pair arrested after death of two-year-old girl](https://www.yahoo.com/news/articles/pair-arrested-death-two-old-164332058.html)
+- Sep 14 - [People on Capitol Hill hated Stephen Miller so much they spread rumor he likes playing with dolls, report says](https://www.yahoo.com/news/articles/people-capitol-hill-hated-stephen-185202821.html)
 - Sep 14 - [North Little Rock Officer Tommy Norman arrested on Saturday](https://www.yahoo.com/news/articles/north-little-rock-officer-tommy-141436077.html)
 - Sep 14 - [Dozens of officers injured as up to 150,000 join Tommy Robinson rally](https://www.yahoo.com/news/articles/thousands-gather-london-unite-kingdom-111712492.html)
-- Sep 14 - [Toyota unveils next-gen model with surprisingly affordable price tag — here are the details](https://autos.yahoo.com/ev-and-future-tech/articles/toyota-unveils-next-gen-model-091500425.html)
 - Sep 14 - [Scientists issue warning over concerning phenomenon wreaking havoc in Mediterranean Sea: 'Their population is increasing year on year'](https://www.yahoo.com/news/articles/scientists-issue-warning-over-concerning-090000902.html)
+- Sep 14 - [Dear Abby: My husband wants my money](https://www.yahoo.com/lifestyle/articles/dear-abby-husband-wants-money-070000511.html)
 <!-- feed end -->
 
 ---
