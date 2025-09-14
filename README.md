@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Thune steams while Democrats do the country a favor by slowing Trump’s nominees](https://www.yahoo.com/news/articles/thune-steams-while-democrats-country-120059265.html)
-- Sep 14 - [A man knocked on my door offering to mow my lawn for $100 and wouldn’t take no for an answer — is that a scam?](https://www.yahoo.com/lifestyle/articles/man-knocked-door-offering-mow-110000042.html)
-- Sep 14 - [All Social Security Retirees Should Do This on Oct. 15](https://finance.yahoo.com/news/social-security-retirees-oct-15-094800885.html)
-- Sep 14 - [Scientists thrilled after underwater cameras capture first-of-its-kind footage of rare shark: 'Incredibly exciting'](https://www.yahoo.com/news/articles/scientists-thrilled-underwater-cameras-capture-093000221.html)
-- Sep 14 - [Erie County Firebirds restaurant closed, reopened after 7 violations found in inspection](https://www.yahoo.com/news/articles/erie-county-firebirds-restaurant-closed-090649267.html)
+- Sep 14 - [Two stages close as 'wild weather' hits festival](https://www.yahoo.com/news/articles/two-stages-close-wild-weather-134319864.html)
+- Sep 14 - [Turkey wary of Israeli threat following airstrike on Hamas in Qatar](https://www.yahoo.com/news/articles/turkey-wary-israeli-threat-following-050154246.html)
+- Sep 14 - [Wordle hints today for #1,548: Clues and answer for Sunday, September 14](https://tech.yahoo.com/gaming/wordle/article/wordle-hints-today-for-1548-clues-and-answer-for-sunday-september-14-040156106.html)
+- Sep 14 - [Experts issue scathing rebuttal to US government report: 'A total disgrace'](https://www.yahoo.com/news/articles/experts-issue-scathing-rebuttal-us-013000002.html)
+- Sep 14 - [6-year-old Portage County girl found safe after Amber Alert issued, uncle in custody](https://www.yahoo.com/news/articles/6-old-portage-county-girl-003625386.html)
 <!-- feed end -->
 
 ---
