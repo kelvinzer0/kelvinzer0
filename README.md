@@ -40,10 +40,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 14 - [Fitch downgrade casts shadow over new French prime minister's budget battles](https://finance.yahoo.com/news/fitch-downgrade-casts-shadow-over-220738631.html)
-- Sep 14 - [Zelenskiy says Ukrainian forces make progress in Sumy border areas](https://www.yahoo.com/news/articles/zelenskiy-says-ukrainian-forces-progress-220510704.html)
-- Sep 14 - [Sinkhole swallows soda-delivery truck in Mexico City](https://www.yahoo.com/news/videos/sinkhole-swallows-soda-delivery-truck-213751869.html)
+- Sep 15 - [Bloody Sunday trial of British ex-soldier to open in Belfast](https://www.yahoo.com/news/articles/bloody-sunday-trial-british-ex-012248488.html)
 - Sep 14 - [2 men arrested after incendiary device found under news media vehicle in Utah, authorities say](https://www.yahoo.com/news/articles/2-men-arrested-incendiary-device-210421342.html)
+- Sep 14 - [These 10 Cars Aren't Toyotas, But They Run On Toyota Power](https://autos.yahoo.com/classic-and-collector/articles/10-cars-arent-toyotas-run-204500934.html)
+- Sep 14 - [Man vandalizes Charlie Kirk memorial outside Turning Point USA headquarters in Phoenix](https://www.yahoo.com/news/videos/man-vandalizes-charlie-kirk-memorial-203813123.html)
 - Sep 14 - [Barron Trump’s Unexpected College Decision Sparks Buzz About His Future With Dad Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-unexpected-college-decision-183252523.html)
 <!-- feed end -->
 
