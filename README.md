@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Exclusive-France threatens to block crypto licence 'passporting' in EU regulatory fight](https://tech.yahoo.com/business/articles/exclusive-france-threatens-block-crypto-090208643.html)
+- Sep 15 - [Factbox-The bitter relationship between Israel and Arab states](https://www.yahoo.com/news/articles/factbox-bitter-relationship-between-israel-081504687.html)
 - Sep 15 - [Gen Z is the loneliest generation, with a third lacking human interaction - study](https://www.yahoo.com/lifestyle/videos/gen-z-loneliest-generation-third-080632913.html)
 - Sep 15 - [Russia warns Europe: we will go after any state which takes our assets](https://www.yahoo.com/news/articles/russia-warns-europe-state-takes-075916124.html)
-- Sep 15 - [US says China spreads 'false' World War Two narratives to pressure Taiwan](https://www.yahoo.com/news/articles/us-says-china-spreads-false-045000631.html)
-- Sep 15 - [ICE calls for removal of man accused of beheading another man with machete at Dallas motel](https://www.yahoo.com/news/articles/ice-calls-removal-man-accused-003038552.html)
-- Sep 14 - [2 men arrested after incendiary device found under news media vehicle in Utah, authorities say](https://www.yahoo.com/news/articles/2-men-arrested-incendiary-device-210421342.html)
+- Sep 15 - [China set to open security forum amid regional tensions](https://www.yahoo.com/news/articles/china-set-open-security-forum-045405608.html)
 <!-- feed end -->
 
 ---
