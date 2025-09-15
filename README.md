@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Trump administration joins Republicans' campaign to police speech in reaction to Kirk's murder](https://www.yahoo.com/news/articles/trump-administration-joins-republicans-campaign-220415279.html)
-- Sep 15 - [Kansas City grocery store says longtime partner killed in double shooting](https://www.yahoo.com/news/videos/kansas-city-grocery-store-says-212908408.html)
-- Sep 15 - [Trump targets Memphis in law enforcement surge, eyes Chicago next](https://www.yahoo.com/news/articles/trump-targets-memphis-crime-crackdown-210104116.html)
+- Sep 15 - [Shutdown talk heats up as Democrats insist on stopping health care cuts](https://www.yahoo.com/news/articles/shutdown-talk-heats-democrats-insist-224227922.html)
+- Sep 15 - [White House officials vowed action during appearances on The Charlie Kirk Show.](https://www.yahoo.com/news/videos/white-house-officials-vowed-action-224223345.html)
+- Sep 15 - [Trump Fired Off A 'Derogatory' Term In A Football Rant — And It's Pretty Telling, Expert Says](https://www.yahoo.com/news/articles/trump-fired-off-derogatory-term-223026777.html)
+- Sep 15 - [Suspect shoots armored truck driver outside Kroger, takes $50K in cash](https://www.yahoo.com/news/articles/shooting-investigation-outside-kroger-southwest-154536763.html)
 - Sep 15 - [Costco's Latest Recall Is So Dangerous, They Advise Not To Return The Item To The Store](https://www.yahoo.com/news/articles/costcos-latest-recall-dangerous-advise-204756121.html)
-- Sep 15 - [Jamie Lee Curtis Breaks Down in Tears Over Charlie Kirk Killing: ‘He’s a Father and a Husband and a Man of Faith’](https://www.yahoo.com/news/articles/jamie-lee-curtis-breaks-down-201532682.html)
 <!-- feed end -->
 
 ---
