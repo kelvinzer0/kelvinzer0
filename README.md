@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Exclusive-US Democrats press Trump for a trade deal that curbs China's production](https://www.yahoo.com/news/articles/exclusive-us-democrats-press-trump-023331433.html)
+- Sep 15 - [Boy, 5, killed in freak accident on California beach](https://www.yahoo.com/news/articles/boy-5-killed-freak-accident-024921478.html)
 - Sep 14 - [2 men arrested after incendiary device found under news media vehicle in Utah, authorities say](https://www.yahoo.com/news/articles/2-men-arrested-incendiary-device-210421342.html)
 - Sep 14 - [Man vandalizes Charlie Kirk memorial outside Turning Point USA headquarters in Phoenix](https://www.yahoo.com/news/videos/man-vandalizes-charlie-kirk-memorial-203813123.html)
+- Sep 14 - [Is the 3I/ATLAS Comet Actually Alien Technology? No.](https://www.yahoo.com/lifestyle/articles/3i-atlas-comet-actually-alien-184051056.html)
 - Sep 14 - [Barron Trump’s Unexpected College Decision Sparks Buzz About His Future With Dad Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-unexpected-college-decision-183252523.html)
-- Sep 14 - [Retired FBI agent warns of 'assassination culture' after learning Kirk suspect lived with trans partner](https://www.yahoo.com/news/articles/retired-fbi-agent-warns-assassination-165418693.html)
 <!-- feed end -->
 
 ---
