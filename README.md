@@ -40,9 +40,9 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [China set to open security forum amid regional tensions](https://www.yahoo.com/news/articles/china-set-open-security-forum-045405608.html)
 - Sep 15 - [Boy, 5, killed in freak accident on California beach](https://www.yahoo.com/news/articles/boy-5-killed-freak-accident-024921478.html)
-- Sep 14 - [Traffic flows again on Interstate 81 N after multi-vehicle crash](https://www.yahoo.com/news/articles/traffic-flows-again-interstate-81-232930498.html)
+- Sep 15 - [ICE calls for removal of man accused of beheading another man with machete at Dallas motel](https://www.yahoo.com/news/articles/ice-calls-removal-man-accused-003038552.html)
+- Sep 14 - [2 men arrested after incendiary device found under news media vehicle in Utah, authorities say](https://www.yahoo.com/news/articles/2-men-arrested-incendiary-device-210421342.html)
 - Sep 14 - [Man vandalizes Charlie Kirk memorial outside Turning Point USA headquarters in Phoenix](https://www.yahoo.com/news/videos/man-vandalizes-charlie-kirk-memorial-203813123.html)
 - Sep 14 - [Barron Trump’s Unexpected College Decision Sparks Buzz About His Future With Dad Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-unexpected-college-decision-183252523.html)
 <!-- feed end -->
