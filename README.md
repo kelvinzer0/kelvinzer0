@@ -41,10 +41,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 15 - [Senior Starmer aide quits over 'sexually explicit' messages about Diane Abbott in new blow to PM](https://www.yahoo.com/news/articles/senior-starmer-aide-quits-over-140203712.html)
-- Sep 15 - [Torrential rains flood villages, disrupts transport in India](https://www.yahoo.com/news/videos/torrential-rains-flood-villages-disrupts-175701657.html)
-- Sep 15 - [Black Voices Are Vital to Democracy. The Media Must Stop Firing Them.](https://www.yahoo.com/news/articles/black-voices-vital-democracy-media-173713554.html)
-- Sep 15 - [Arkansas Tech to host Constitution Day](https://www.yahoo.com/news/articles/arkansas-tech-host-constitution-day-164122218.html)
-- Sep 15 - [Alachua County Sheriff's Office: Man, 55, dies after being shot by deputies](https://www.yahoo.com/news/articles/alachua-county-sheriffs-office-man-163728236.html)
+- Sep 15 - [McDonald's plans $200 million investment to promote regenerative practices on US cattle ranches](https://finance.yahoo.com/news/mcdonalds-plans-200-million-investment-180426173.html)
+- Sep 15 - [Oracle stock jumps as US and China agree to preliminary TikTok deal](https://finance.yahoo.com/news/oracle-stock-jumps-as-us-and-china-agree-to-preliminary-tiktok-deal-155810863.html)
+- Sep 15 - [A billionaire heir built one of America's largest homes. His bitter divorce means his $175 million mansion is for sale.](https://www.yahoo.com/entertainment/celebrity/articles/billionaire-heir-built-one-americas-095201350.html)
+- Sep 15 - [US banks borrow record $18.5 billion from Fed's repo facility in sign of funding pressure](https://finance.yahoo.com/news/us-banks-borrow-1-5-154902055.html)
 <!-- feed end -->
 
 ---
