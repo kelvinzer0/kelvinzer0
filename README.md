@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [BIS warns of mounting disconnect between debt and stock markets](https://finance.yahoo.com/news/bis-warns-mounting-disconnect-between-111823393.html)
 - Sep 15 - [Charlie Kirk shooting: What we know about suspect Tyler Robinson](https://www.yahoo.com/news/videos/charlie-kirk-shooting-know-suspect-104739477.html)
 - Sep 15 - [Explainer-Why South Korea cannot make the same US trade deal as Japan](https://finance.yahoo.com/news/explainer-why-south-korea-cannot-103852906.html)
 - Sep 15 - [Channel 4 Marking Donald Trump’s Visit To UK With “Longest Uninterrupted Reel Of Untruths Ever Broadcast On Television”](https://www.yahoo.com/news/articles/channel-4-marking-donald-trump-100004256.html)
-- Sep 15 - [US military officers pay surprise visit to Belarus to observe war games with Russia](https://www.yahoo.com/news/articles/us-military-officers-pay-surprise-091842979.html)
-- Sep 15 - [US Typhon missile system's presence in Japan sharpens Asia arms race](https://www.yahoo.com/news/articles/us-typhon-missile-systems-presence-084627942.html)
+- Sep 15 - [The Former NFL Player Who Embodies the Rage of the Trump Resistance](https://www.yahoo.com/news/articles/former-nfl-player-embodies-rage-100000882.html)
 <!-- feed end -->
 
 ---
