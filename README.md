@@ -41,10 +41,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 15 - [Boy, 5, killed in freak accident on California beach](https://www.yahoo.com/news/articles/boy-5-killed-freak-accident-024921478.html)
+- Sep 14 - [Explainer-What is "involution", China's race-to-the-bottom competition trend?](https://finance.yahoo.com/news/explainer-involution-chinas-race-bottom-230746859.html)
 - Sep 14 - [2 men arrested after incendiary device found under news media vehicle in Utah, authorities say](https://www.yahoo.com/news/articles/2-men-arrested-incendiary-device-210421342.html)
 - Sep 14 - [Man vandalizes Charlie Kirk memorial outside Turning Point USA headquarters in Phoenix](https://www.yahoo.com/news/videos/man-vandalizes-charlie-kirk-memorial-203813123.html)
-- Sep 14 - [Is the 3I/ATLAS Comet Actually Alien Technology? No.](https://www.yahoo.com/lifestyle/articles/3i-atlas-comet-actually-alien-184051056.html)
-- Sep 14 - [Barron Trump’s Unexpected College Decision Sparks Buzz About His Future With Dad Donald](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-unexpected-college-decision-183252523.html)
+- Sep 14 - [18 Of The "Biggest Historical Lies" People Somehow Still Believe Despite Evidence To The Contrary](https://www.yahoo.com/news/articles/18-more-wildest-historical-lies-203103334.html)
 <!-- feed end -->
 
 ---
