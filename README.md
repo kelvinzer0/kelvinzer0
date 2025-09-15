@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Senior Starmer aide quits over 'sexually explicit' messages about Diane Abbott in new blow to PM](https://www.yahoo.com/news/articles/senior-starmer-aide-quits-over-140203712.html)
-- Sep 15 - [McDonald's plans $200 million investment to promote regenerative practices on US cattle ranches](https://finance.yahoo.com/news/mcdonalds-plans-200-million-investment-180426173.html)
-- Sep 15 - [Oracle stock jumps as US and China agree to preliminary TikTok deal](https://finance.yahoo.com/news/oracle-stock-jumps-as-us-and-china-agree-to-preliminary-tiktok-deal-155810863.html)
-- Sep 15 - [A billionaire heir built one of America's largest homes. His bitter divorce means his $175 million mansion is for sale.](https://www.yahoo.com/entertainment/celebrity/articles/billionaire-heir-built-one-americas-095201350.html)
-- Sep 15 - [US banks borrow record $18.5 billion from Fed's repo facility in sign of funding pressure](https://finance.yahoo.com/news/us-banks-borrow-1-5-154902055.html)
+- Sep 15 - [Why Monopar Therapeutics, A Top 1% Biotech Stock, Just Surged Into A Breakout](https://www.investors.com/news/technology/monopar-therapeutics-biotech-stock-wilson-disease/?src=A00220&yptr=yahoo)
+- Sep 15 - [Judge rules Trump administration illegally fired thousands of probationary workers](https://www.yahoo.com/news/articles/judge-rules-trump-administration-illegally-195847708.html)
+- Sep 15 - [Duchess of Kent's coffin brought to cathedral ahead of funeral](https://www.yahoo.com/news/articles/duchess-kents-coffin-brought-cathedral-185214568.html)
+- Sep 15 - [Once again, an endangered orca in Washington state is seen carrying a dead calf](https://www.yahoo.com/news/articles/once-again-endangered-orca-washington-194058684.html)
+- Sep 15 - [US Air Force has begun modifying donated Qatar jet that could be new Air Force One](https://www.yahoo.com/news/articles/us-air-force-begun-modifying-192559249.html)
 <!-- feed end -->
 
 ---
