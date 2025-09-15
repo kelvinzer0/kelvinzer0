@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Why Monopar Therapeutics, A Top 1% Biotech Stock, Just Surged Into A Breakout](https://www.investors.com/news/technology/monopar-therapeutics-biotech-stock-wilson-disease/?src=A00220&yptr=yahoo)
-- Sep 15 - [Judge rules Trump administration illegally fired thousands of probationary workers](https://www.yahoo.com/news/articles/judge-rules-trump-administration-illegally-195847708.html)
-- Sep 15 - [Duchess of Kent's coffin brought to cathedral ahead of funeral](https://www.yahoo.com/news/articles/duchess-kents-coffin-brought-cathedral-185214568.html)
-- Sep 15 - [Once again, an endangered orca in Washington state is seen carrying a dead calf](https://www.yahoo.com/news/articles/once-again-endangered-orca-washington-194058684.html)
-- Sep 15 - [US Air Force has begun modifying donated Qatar jet that could be new Air Force One](https://www.yahoo.com/news/articles/us-air-force-begun-modifying-192559249.html)
+- Sep 15 - [Jamie Lee Curtis Breaks Down in Tears Over Charlie Kirk Killing: ‘He’s a Father and a Husband and a Man of Faith’](https://www.yahoo.com/news/articles/jamie-lee-curtis-breaks-down-201532682.html)
+- Sep 15 - [People Have Little Sympathy For A MAGA Voter Who Says They're "Living On Credit Cards" And "Need Help" Amid Tariffs](https://www.yahoo.com/news/articles/people-little-sympathy-maga-voter-195030065.html)
+- Sep 15 - [I visited the largest military aviation museum in the world with over 350 aircraft and missiles on display. Here are the coolest things I saw.](https://www.yahoo.com/news/articles/visited-largest-military-aviation-museum-191828844.html)
+- Sep 15 - [Security guard shoots tourist on Las Vegas Strip](https://www.yahoo.com/news/articles/security-guard-shoots-tourist-las-185309354.html)
+- Sep 15 - [The comedian and podcaster said he couldn’t “stop thinking about” the assassination of one of his former guests.](https://www.yahoo.com/news/videos/comedian-podcaster-said-couldn-t-174023212.html)
 <!-- feed end -->
 
 ---
