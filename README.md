@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Israel seeks to make Gaza City unliveable, says UN expert Francesca Albanese](https://www.yahoo.com/news/articles/israel-seeks-gaza-city-unliveable-140007662.html)
-- Sep 15 - [Kim Seong-Min, defector whose radio broadcasts relayed foreign news to North Korea, dies at 63](https://www.yahoo.com/news/articles/kim-seong-min-defector-whose-121941537.html)
+- Sep 15 - [Teen charged with 16-year-old's murder faces court](https://www.yahoo.com/news/articles/teen-charged-16-olds-murder-143416360.html)
+- Sep 15 - [The president has upped the figure he wrongly claims was killed by drugs in the U.S. from massively wrong to impossibly wrong.](https://www.yahoo.com/news/videos/president-upped-figure-wrongly-claims-135640677.html)
+- Sep 15 - [UK police say they have planned for 'every eventuality' ahead of Trump visit](https://www.yahoo.com/news/articles/uk-police-planned-every-eventuality-134906831.html)
+- Sep 15 - [Trump makes a completely bonkers claim — and everyone laughs](https://www.yahoo.com/news/articles/trump-makes-completely-bonkers-claim-130915795.html)
 - Sep 15 - [Huge piles of rusty WWII ammunition are poisoning the Baltic Sea. Germany is trying to recover them](https://www.yahoo.com/news/articles/huge-piles-rusty-wwii-ammunition-121147014.html)
-- Sep 15 - [Tesla jumps after Musk acquires EV maker's shares worth $1 billion](https://tech.yahoo.com/business/articles/tesla-jumps-musk-acquires-ev-113539265.html)
-- Sep 15 - [Charlie Kirk shooting: What we know about suspect Tyler Robinson](https://www.yahoo.com/news/videos/charlie-kirk-shooting-know-suspect-104739477.html)
 <!-- feed end -->
 
 ---
