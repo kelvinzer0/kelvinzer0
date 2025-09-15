@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Residents of Mass. town warned of increased police presence amid ongoing operation](https://www.yahoo.com/news/articles/residents-mass-town-warned-increased-114231698.html)
+- Sep 15 - [Israel seeks to make Gaza City unliveable, says UN expert Francesca Albanese](https://www.yahoo.com/news/articles/israel-seeks-gaza-city-unliveable-140007662.html)
+- Sep 15 - [Kim Seong-Min, defector whose radio broadcasts relayed foreign news to North Korea, dies at 63](https://www.yahoo.com/news/articles/kim-seong-min-defector-whose-121941537.html)
+- Sep 15 - [Huge piles of rusty WWII ammunition are poisoning the Baltic Sea. Germany is trying to recover them](https://www.yahoo.com/news/articles/huge-piles-rusty-wwii-ammunition-121147014.html)
 - Sep 15 - [Tesla jumps after Musk acquires EV maker's shares worth $1 billion](https://tech.yahoo.com/business/articles/tesla-jumps-musk-acquires-ev-113539265.html)
-- Sep 15 - [Fetterman urges Dems to stop calling Trump 'Hitler' and 'autocrat' after Kirk assassination](https://www.yahoo.com/news/articles/fetterman-urges-dems-stop-calling-110015526.html)
 - Sep 15 - [Charlie Kirk shooting: What we know about suspect Tyler Robinson](https://www.yahoo.com/news/videos/charlie-kirk-shooting-know-suspect-104739477.html)
-- Sep 15 - [Channel 4 Marking Donald Trump’s Visit To UK With “Longest Uninterrupted Reel Of Untruths Ever Broadcast On Television”](https://www.yahoo.com/news/articles/channel-4-marking-donald-trump-100004256.html)
 <!-- feed end -->
 
 ---
