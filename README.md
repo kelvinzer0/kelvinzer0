@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [New evidence emerges on Charlie Kirk's suspected killer](https://www.yahoo.com/news/videos/evidence-emerges-charlie-kirks-suspected-162207142.html)
-- Sep 15 - [A billionaire heir built one of America's largest homes. His bitter divorce means his $175 million mansion is for sale.](https://www.yahoo.com/entertainment/celebrity/articles/billionaire-heir-built-one-americas-095201350.html)
-- Sep 15 - [US banks borrow $1.5 billion from Fed's repo facility in sign of minor funding pressure](https://finance.yahoo.com/news/us-banks-borrow-1-5-154902055.html)
-- Sep 15 - [Missing Woman Who Vanished 4 Years Ago from Boyfriend's Yacht Seen in Last Sighting Before Disappearance in New Footage](https://www.yahoo.com/news/articles/missing-woman-vanished-4-years-153033098.html)
-- Sep 15 - [Longtime GOP lawmaker warns Trump of World War III: ‘Never seen anything like this’](https://www.yahoo.com/news/articles/longtime-gop-lawmaker-warns-trump-134915642.html)
+- Sep 15 - [Senior Starmer aide quits over 'sexually explicit' messages about Diane Abbott in new blow to PM](https://www.yahoo.com/news/articles/senior-starmer-aide-quits-over-140203712.html)
+- Sep 15 - [Torrential rains flood villages, disrupts transport in India](https://www.yahoo.com/news/videos/torrential-rains-flood-villages-disrupts-175701657.html)
+- Sep 15 - [Black Voices Are Vital to Democracy. The Media Must Stop Firing Them.](https://www.yahoo.com/news/articles/black-voices-vital-democracy-media-173713554.html)
+- Sep 15 - [Arkansas Tech to host Constitution Day](https://www.yahoo.com/news/articles/arkansas-tech-host-constitution-day-164122218.html)
+- Sep 15 - [Alachua County Sheriff's Office: Man, 55, dies after being shot by deputies](https://www.yahoo.com/news/articles/alachua-county-sheriffs-office-man-163728236.html)
 <!-- feed end -->
 
 ---
