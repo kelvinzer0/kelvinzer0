@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Teen charged with 16-year-old's murder faces court](https://www.yahoo.com/news/articles/teen-charged-16-olds-murder-143416360.html)
-- Sep 15 - [The president has upped the figure he wrongly claims was killed by drugs in the U.S. from massively wrong to impossibly wrong.](https://www.yahoo.com/news/videos/president-upped-figure-wrongly-claims-135640677.html)
-- Sep 15 - [UK police say they have planned for 'every eventuality' ahead of Trump visit](https://www.yahoo.com/news/articles/uk-police-planned-every-eventuality-134906831.html)
-- Sep 15 - [Trump makes a completely bonkers claim — and everyone laughs](https://www.yahoo.com/news/articles/trump-makes-completely-bonkers-claim-130915795.html)
-- Sep 15 - [Huge piles of rusty WWII ammunition are poisoning the Baltic Sea. Germany is trying to recover them](https://www.yahoo.com/news/articles/huge-piles-rusty-wwii-ammunition-121147014.html)
+- Sep 15 - [UK excludes Israelis from leading defense college over escalating war in Gaza](https://www.yahoo.com/news/articles/uk-excludes-israelis-leading-defense-155522495.html)
+- Sep 15 - [US banks borrow $1.5 billion from Fed's repo facility in sign of minor funding pressure](https://finance.yahoo.com/news/us-banks-borrow-1-5-154902055.html)
+- Sep 15 - [UN limits staff at COP30 climate summit over accommodation concerns](https://www.yahoo.com/news/articles/un-limits-staff-cop30-climate-151252300.html)
+- Sep 15 - [UK couple jailed for killing baby daughter after going on the run in winter](https://www.yahoo.com/news/articles/uk-couple-jailed-killing-baby-150251667.html)
+- Sep 15 - [Southwest Airlines announces new restrictions on wheelchair users. Here's what to know.](https://www.yahoo.com/news/articles/southwest-airlines-announces-restrictions-wheelchair-144411005.html)
 <!-- feed end -->
 
 ---
