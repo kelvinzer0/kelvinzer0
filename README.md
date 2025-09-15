@@ -41,10 +41,10 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 
 <!-- feed start -->
 - Sep 15 - [Gen Z is the loneliest generation, with a third lacking human interaction - study](https://www.yahoo.com/lifestyle/videos/gen-z-loneliest-generation-third-080632913.html)
+- Sep 15 - [Russia warns Europe: we will go after any state which takes our assets](https://www.yahoo.com/news/articles/russia-warns-europe-state-takes-075916124.html)
 - Sep 15 - [US says China spreads 'false' World War Two narratives to pressure Taiwan](https://www.yahoo.com/news/articles/us-says-china-spreads-false-045000631.html)
-- Sep 15 - [Boy, 5, killed in freak accident on California beach](https://www.yahoo.com/news/articles/boy-5-killed-freak-accident-024921478.html)
-- Sep 14 - [Prediction: This Stock Will Be Worth More Than Palantir 3 Years From Now](https://finance.yahoo.com/news/prediction-stock-worth-more-palantir-231100781.html)
-- Sep 14 - [Zelenskiy says Ukrainian forces make progress in Sumy border areas](https://www.yahoo.com/news/articles/zelenskiy-says-ukrainian-forces-progress-220510704.html)
+- Sep 15 - [ICE calls for removal of man accused of beheading another man with machete at Dallas motel](https://www.yahoo.com/news/articles/ice-calls-removal-man-accused-003038552.html)
+- Sep 14 - [2 men arrested after incendiary device found under news media vehicle in Utah, authorities say](https://www.yahoo.com/news/articles/2-men-arrested-incendiary-device-210421342.html)
 <!-- feed end -->
 
 ---
