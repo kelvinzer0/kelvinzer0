@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Exclusive-France threatens to block crypto licence 'passporting' in EU regulatory fight](https://tech.yahoo.com/business/articles/exclusive-france-threatens-block-crypto-090208643.html)
-- Sep 15 - [Factbox-The bitter relationship between Israel and Arab states](https://www.yahoo.com/news/articles/factbox-bitter-relationship-between-israel-081504687.html)
-- Sep 15 - [Gen Z is the loneliest generation, with a third lacking human interaction - study](https://www.yahoo.com/lifestyle/videos/gen-z-loneliest-generation-third-080632913.html)
-- Sep 15 - [Russia warns Europe: we will go after any state which takes our assets](https://www.yahoo.com/news/articles/russia-warns-europe-state-takes-075916124.html)
-- Sep 15 - [China set to open security forum amid regional tensions](https://www.yahoo.com/news/articles/china-set-open-security-forum-045405608.html)
+- Sep 15 - [Charlie Kirk shooting: What we know about suspect Tyler Robinson](https://www.yahoo.com/news/videos/charlie-kirk-shooting-know-suspect-104739477.html)
+- Sep 15 - [Explainer-Why South Korea cannot make the same US trade deal as Japan](https://finance.yahoo.com/news/explainer-why-south-korea-cannot-103852906.html)
+- Sep 15 - [Channel 4 Marking Donald Trump’s Visit To UK With “Longest Uninterrupted Reel Of Untruths Ever Broadcast On Television”](https://www.yahoo.com/news/articles/channel-4-marking-donald-trump-100004256.html)
+- Sep 15 - [US military officers pay surprise visit to Belarus to observe war games with Russia](https://www.yahoo.com/news/articles/us-military-officers-pay-surprise-091842979.html)
+- Sep 15 - [US Typhon missile system's presence in Japan sharpens Asia arms race](https://www.yahoo.com/news/articles/us-typhon-missile-systems-presence-084627942.html)
 <!-- feed end -->
 
 ---
