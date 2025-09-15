@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 15 - [Trump administration joins Republicans' campaign to police speech in reaction to Kirk's murder](https://www.yahoo.com/news/articles/trump-administration-joins-republicans-campaign-220415279.html)
+- Sep 15 - [Kansas City grocery store says longtime partner killed in double shooting](https://www.yahoo.com/news/videos/kansas-city-grocery-store-says-212908408.html)
+- Sep 15 - [Trump targets Memphis in law enforcement surge, eyes Chicago next](https://www.yahoo.com/news/articles/trump-targets-memphis-crime-crackdown-210104116.html)
+- Sep 15 - [Costco's Latest Recall Is So Dangerous, They Advise Not To Return The Item To The Store](https://www.yahoo.com/news/articles/costcos-latest-recall-dangerous-advise-204756121.html)
 - Sep 15 - [Jamie Lee Curtis Breaks Down in Tears Over Charlie Kirk Killing: ‘He’s a Father and a Husband and a Man of Faith’](https://www.yahoo.com/news/articles/jamie-lee-curtis-breaks-down-201532682.html)
-- Sep 15 - [People Have Little Sympathy For A MAGA Voter Who Says They're "Living On Credit Cards" And "Need Help" Amid Tariffs](https://www.yahoo.com/news/articles/people-little-sympathy-maga-voter-195030065.html)
-- Sep 15 - [I visited the largest military aviation museum in the world with over 350 aircraft and missiles on display. Here are the coolest things I saw.](https://www.yahoo.com/news/articles/visited-largest-military-aviation-museum-191828844.html)
-- Sep 15 - [Security guard shoots tourist on Las Vegas Strip](https://www.yahoo.com/news/articles/security-guard-shoots-tourist-las-185309354.html)
-- Sep 15 - [The comedian and podcaster said he couldn’t “stop thinking about” the assassination of one of his former guests.](https://www.yahoo.com/news/videos/comedian-podcaster-said-couldn-t-174023212.html)
 <!-- feed end -->
 
 ---
