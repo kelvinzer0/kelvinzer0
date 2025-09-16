@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [DC USB4MAPLE adapter](https://tilde.news/s/xcspn0/dc_usb4maple_adapter#c_9sse3q)
-- Sep 16 - [Caligra is a new computer company](https://tilde.news/s/hffb40/caligra_is_new_computer_company#c_lehnfb)
-- Sep 16 - [DC USB4MAPLE adapter](https://tilde.news/s/xcspn0/dc_usb4maple_adapter#c_hzf1lf)
-- Sep 16 - [Caligra is a new computer company](https://tilde.news/s/hffb40/caligra_is_new_computer_company#c_0bczls)
-- Sep 05 - [IRC history and love letter](https://tilde.news/s/e96flr/irc_history_love_letter#c_g74eoy)
+- Sep 16 - [Fonts hanging out (2024)](https://www.youtube.com/watch?v=BXbW42uTKYo)
+- Sep 15 - [Caligra is a new computer company](https://caligra.com)
+- Sep 15 - [DC USB4MAPLE adapter](https://gorigo.exblog.jp/30755382/)
+- Sep 12 - [SDF Plan 9 Boot Camp Registration](https://sdf.org/plan9)
+- Sep 08 - [DVD : Region Free (EN)](http://www.powerbook-fr.com/dossiers/dvd_region_free_en_article30.html)
 <!-- feed end -->
 
 ---
