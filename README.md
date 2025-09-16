@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Trump Fired Off A 'Derogatory' Term In A Football Rant — And It's Pretty Telling, Expert Says](https://www.yahoo.com/news/articles/trump-fired-off-derogatory-term-223026777.html)
+- Sep 16 - [Matcha trouble brewing: global shortage steeps prices for tea lovers](https://www.yahoo.com/news/videos/matcha-trouble-brewing-global-shortage-040202635.html)
+- Sep 16 - [Maurene Comey, prosecutor in Epstein and Combs cases and daughter of former FBI director, sues after being fired](https://www.yahoo.com/news/articles/maurene-comey-prosecutor-epstein-combs-171026842.html)
+- Sep 15 - [Suspect shoots armored truck driver outside Kroger, takes $50K in cash](https://www.yahoo.com/news/articles/shooting-investigation-outside-kroger-southwest-154536763.html)
 - Sep 15 - [Nevada state senator faces DUI charge after falling asleep at Las Vegas stoplight](https://www.yahoo.com/news/articles/nevada-state-senator-faces-dui-213451194.html)
 - Sep 15 - [Costco's Latest Recall Is So Dangerous, They Advise Not To Return The Item To The Store](https://www.yahoo.com/news/articles/costcos-latest-recall-dangerous-advise-204756121.html)
-- Sep 15 - [Scientists make unprecedented discovery after examining world's deadliest snake: 'It is a strong sign'](https://www.yahoo.com/news/articles/scientists-unprecedented-discovery-examining-worlds-193000758.html)
-- Sep 15 - [I visited the largest military aviation museum in the world with over 350 aircraft and missiles on display. Here are the coolest things I saw.](https://www.yahoo.com/news/articles/visited-largest-military-aviation-museum-191828844.html)
 <!-- feed end -->
 
 ---
