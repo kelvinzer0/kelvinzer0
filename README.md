@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Shutdown talk heats up as Democrats insist on stopping health care cuts](https://www.yahoo.com/news/articles/shutdown-talk-heats-democrats-insist-224227922.html)
-- Sep 15 - [White House officials vowed action during appearances on The Charlie Kirk Show.](https://www.yahoo.com/news/videos/white-house-officials-vowed-action-224223345.html)
-- Sep 15 - [Trump Fired Off A 'Derogatory' Term In A Football Rant — And It's Pretty Telling, Expert Says](https://www.yahoo.com/news/articles/trump-fired-off-derogatory-term-223026777.html)
 - Sep 15 - [Suspect shoots armored truck driver outside Kroger, takes $50K in cash](https://www.yahoo.com/news/articles/shooting-investigation-outside-kroger-southwest-154536763.html)
-- Sep 15 - [Costco's Latest Recall Is So Dangerous, They Advise Not To Return The Item To The Store](https://www.yahoo.com/news/articles/costcos-latest-recall-dangerous-advise-204756121.html)
+- Sep 15 - [Dementia diagnosis is ‘slow, unequal and unfit for purpose’, carers warn](https://www.yahoo.com/news/articles/dementia-diagnosis-slow-unequal-unfit-230100787.html)
+- Sep 15 - [Trump Fired Off A 'Derogatory' Term In A Football Rant — And It's Pretty Telling, Expert Says](https://www.yahoo.com/news/articles/trump-fired-off-derogatory-term-223026777.html)
+- Sep 15 - [3 Signs Your Marriage Is in Financial Trouble](https://www.yahoo.com/lifestyle/articles/3-signs-marriage-financial-trouble-205742228.html)
+- Sep 15 - [How to Turn On Apple's New 'Wrist Flick' Gesture in watchOS 26](https://tech.yahoo.com/wearables/articles/turn-apples-wrist-flick-gesture-203000290.html)
 <!-- feed end -->
 
 ---
