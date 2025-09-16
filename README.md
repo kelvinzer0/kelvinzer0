@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Dementia diagnosis is ‘slow, unequal and unfit for purpose’, carers warn](https://www.yahoo.com/news/articles/dementia-diagnosis-slow-unequal-unfit-230100787.html)
-- Sep 15 - [North Little Rock police officer Tommy Norman makes first statement since Saturday night arrest](https://www.yahoo.com/news/articles/north-little-rock-police-officer-222928105.html)
-- Sep 15 - [Coinbase Hacker Panic Sells ETH Bought 2 Days Ago, “Loses” Nearly $1M](https://finance.yahoo.com/news/coinbase-hacker-panic-sells-eth-214145376.html)
-- Sep 15 - [Ozark HS to change bathroom policy after social media trend](https://www.yahoo.com/news/articles/ozark-hs-change-bathroom-policy-195230226.html)
+- Sep 15 - [Trump Fired Off A 'Derogatory' Term In A Football Rant — And It's Pretty Telling, Expert Says](https://www.yahoo.com/news/articles/trump-fired-off-derogatory-term-223026777.html)
+- Sep 15 - [Nevada state senator faces DUI charge after falling asleep at Las Vegas stoplight](https://www.yahoo.com/news/articles/nevada-state-senator-faces-dui-213451194.html)
+- Sep 15 - [Costco's Latest Recall Is So Dangerous, They Advise Not To Return The Item To The Store](https://www.yahoo.com/news/articles/costcos-latest-recall-dangerous-advise-204756121.html)
 - Sep 15 - [Scientists make unprecedented discovery after examining world's deadliest snake: 'It is a strong sign'](https://www.yahoo.com/news/articles/scientists-unprecedented-discovery-examining-worlds-193000758.html)
+- Sep 15 - [I visited the largest military aviation museum in the world with over 350 aircraft and missiles on display. Here are the coolest things I saw.](https://www.yahoo.com/news/articles/visited-largest-military-aviation-museum-191828844.html)
 <!-- feed end -->
 
 ---
