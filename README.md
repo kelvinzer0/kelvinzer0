@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 16 - [DC USB4MAPLE adapter](https://tilde.news/s/xcspn0/dc_usb4maple_adapter#c_9sse3q)
+- Sep 16 - [Caligra is a new computer company](https://tilde.news/s/hffb40/caligra_is_new_computer_company#c_lehnfb)
 - Sep 16 - [DC USB4MAPLE adapter](https://tilde.news/s/xcspn0/dc_usb4maple_adapter#c_hzf1lf)
 - Sep 16 - [Caligra is a new computer company](https://tilde.news/s/hffb40/caligra_is_new_computer_company#c_0bczls)
 - Sep 05 - [IRC history and love letter](https://tilde.news/s/e96flr/irc_history_love_letter#c_g74eoy)
-- Sep 03 - [How I felt in love with calendar.txt](https://tilde.news/s/cgionl/how_i_felt_love_with_calendar_txt#c_w1tc0o)
-- Sep 03 - [Triumph of the Nerds (1996)](https://tilde.news/s/ooow31/triumph_nerds_1996#c_g7tmoa)
 <!-- feed end -->
 
 ---
