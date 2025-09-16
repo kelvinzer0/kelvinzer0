@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 15 - [Suspect shoots armored truck driver outside Kroger, takes $50K in cash](https://www.yahoo.com/news/articles/shooting-investigation-outside-kroger-southwest-154536763.html)
 - Sep 15 - [Dementia diagnosis is ‘slow, unequal and unfit for purpose’, carers warn](https://www.yahoo.com/news/articles/dementia-diagnosis-slow-unequal-unfit-230100787.html)
-- Sep 15 - [Trump Fired Off A 'Derogatory' Term In A Football Rant — And It's Pretty Telling, Expert Says](https://www.yahoo.com/news/articles/trump-fired-off-derogatory-term-223026777.html)
-- Sep 15 - [3 Signs Your Marriage Is in Financial Trouble](https://www.yahoo.com/lifestyle/articles/3-signs-marriage-financial-trouble-205742228.html)
-- Sep 15 - [How to Turn On Apple's New 'Wrist Flick' Gesture in watchOS 26](https://tech.yahoo.com/wearables/articles/turn-apples-wrist-flick-gesture-203000290.html)
+- Sep 15 - [North Little Rock police officer Tommy Norman makes first statement since Saturday night arrest](https://www.yahoo.com/news/articles/north-little-rock-police-officer-222928105.html)
+- Sep 15 - [Coinbase Hacker Panic Sells ETH Bought 2 Days Ago, “Loses” Nearly $1M](https://finance.yahoo.com/news/coinbase-hacker-panic-sells-eth-214145376.html)
+- Sep 15 - [Ozark HS to change bathroom policy after social media trend](https://www.yahoo.com/news/articles/ozark-hs-change-bathroom-policy-195230226.html)
+- Sep 15 - [Scientists make unprecedented discovery after examining world's deadliest snake: 'It is a strong sign'](https://www.yahoo.com/news/articles/scientists-unprecedented-discovery-examining-worlds-193000758.html)
 <!-- feed end -->
 
 ---
