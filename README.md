@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Sep 16 - [Conservative influencers are wreaking vengeance against those who celebrated the dearth of Charlie Kirk.](https://www.yahoo.com/news/videos/conservative-influencers-wreaking-vengeance-against-030951234.html)
-- Sep 16 - [The president, who has tried to pin political violence on “the left,” ran into a reality check Monday.](https://www.yahoo.com/news/videos/president-tried-pin-political-violence-004617872.html)
-- Sep 16 - [Trump administration orders Delta, Aeromexico to end joint venture by January 1](https://finance.yahoo.com/news/trump-administration-orders-delta-aeromexico-003100648.html)
-- Sep 15 - [A top economist says there's an 'uncomfortably high' chance that the US is heading into a recession in the next year](https://finance.yahoo.com/news/top-economist-says-theres-uncomfortably-231031678.html)
-- Sep 15 - [Pentagon unveils new ‘clean shaven’ grooming standards](https://www.yahoo.com/news/articles/pentagon-unveils-clean-shaven-grooming-225916176.html)
+- Sep 16 - [DC USB4MAPLE adapter](https://tilde.news/s/xcspn0/dc_usb4maple_adapter#c_hzf1lf)
+- Sep 16 - [Caligra is a new computer company](https://tilde.news/s/hffb40/caligra_is_new_computer_company#c_0bczls)
+- Sep 05 - [IRC history and love letter](https://tilde.news/s/e96flr/irc_history_love_letter#c_g74eoy)
+- Sep 03 - [How I felt in love with calendar.txt](https://tilde.news/s/cgionl/how_i_felt_love_with_calendar_txt#c_w1tc0o)
+- Sep 03 - [Triumph of the Nerds (1996)](https://tilde.news/s/ooow31/triumph_nerds_1996#c_g7tmoa)
 <!-- feed end -->
 
 ---
