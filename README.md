@@ -50,4 +50,4 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ---
 
 Thank you for visiting my profile!
-![snake gif](https://github.com/rafaelsg-01/rafaelsg-01/blob/output/github-contribution-grid-snake.svg)
+![snake gif](https://github.com/kelvinzer0/kelvinzer0/blob/output/github-contribution-grid-snake.svg)
