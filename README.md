@@ -8,7 +8,7 @@ I enjoy the diverse journey within the tech world, from designing efficient back
 
 Here are some insights into my work and skills:
 
-<p align="center">
+<p>
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=kelvinzer0&layout=compact&theme=radical" alt="Kelvin's Top Languages" />
 </p>
 
@@ -50,3 +50,4 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ---
 
 Thank you for visiting my profile!
+![snake gif](https://github.com/rafaelsg-01/rafaelsg-01/blob/output/github-contribution-grid-snake.svg)
