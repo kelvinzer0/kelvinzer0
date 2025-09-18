@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 18 - [PC6502: My 6502 project in a PC104 like formfactor](https://github.com/TechPaula/PC6502)
 - Sep 16 - [Fonts hanging out (2024)](https://www.youtube.com/watch?v=BXbW42uTKYo)
 - Sep 15 - [Caligra is a new computer company](https://caligra.com)
 - Sep 15 - [DC USB4MAPLE adapter](https://gorigo.exblog.jp/30755382/)
 - Sep 12 - [SDF Plan 9 Boot Camp Registration](https://sdf.org/plan9)
-- Sep 08 - [DVD : Region Free (EN)](http://www.powerbook-fr.com/dossiers/dvd_region_free_en_article30.html)
 <!-- feed end -->
 
 ---
