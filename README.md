@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 19 - [History of the GEM Desktop Environment](https://nemanjatrifunovic.substack.com/p/history-of-the-gem-desktop-environment)
 - Sep 19 - [ofchooser: Boot chooser for PowerPC Macs](https://github.com/vasi/ofchooser)
 - Sep 18 - [Netscape Navigator 2.0 was released 30 years ago today](https://www.jwz.org/blog/2025/09/netscape-navigator-2-0-was-released-30-years-ago-today/)
 - Sep 18 - [Dashosaur DX - A short precision platformer for the Game Boy featuring Roxy, a cute dashosaurus](https://www.homebrew-factory.com/game-boy/163-dashosaur-dx-undefined.html)
 - Sep 18 - [PC6502: My 6502 project in a PC104 like formfactor](https://github.com/TechPaula/PC6502)
-- Sep 16 - [Fonts hanging out (2024)](https://www.youtube.com/watch?v=BXbW42uTKYo)
 <!-- feed end -->
 
 ---
