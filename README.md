@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 21 - [Linkgraphs are fun](https://andregarzia.com/2025/09/linkgraphs-are-fun.html)
 - Sep 20 - [Hopper is a down-to-earth Gopher and Gemini browser for Playdate](https://tkers.itch.io/hopper)
 - Sep 19 - [History of the GEM Desktop Environment](https://nemanjatrifunovic.substack.com/p/history-of-the-gem-desktop-environment)
 - Sep 19 - [ofchooser: Boot chooser for PowerPC Macs](https://github.com/vasi/ofchooser)
 - Sep 18 - [Netscape Navigator 2.0 was released 30 years ago today](https://www.jwz.org/blog/2025/09/netscape-navigator-2-0-was-released-30-years-ago-today/)
-- Sep 18 - [Dashosaur DX - A short precision platformer for the Game Boy featuring Roxy, a cute dashosaurus](https://www.homebrew-factory.com/game-boy/163-dashosaur-dx-undefined.html)
 <!-- feed end -->
 
 ---
