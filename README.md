@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 23 - [Humble Tech Book Bundle: Electronics for the Curious by No Starch](https://www.humblebundle.com/books/electronics-for-the-curious-no-starch-books)
 - Sep 22 - [Building my childhood dream PC](https://fabiensanglard.net/2168/)
 - Sep 21 - [Linkgraphs are fun](https://andregarzia.com/2025/09/linkgraphs-are-fun.html)
 - Sep 20 - [Hopper is a down-to-earth Gopher and Gemini browser for Playdate](https://tkers.itch.io/hopper)
 - Sep 19 - [History of the GEM Desktop Environment](https://nemanjatrifunovic.substack.com/p/history-of-the-gem-desktop-environment)
-- Sep 19 - [ofchooser: Boot chooser for PowerPC Macs](https://github.com/vasi/ofchooser)
 <!-- feed end -->
 
 ---
