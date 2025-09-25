@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 25 - [Brutalita is an experimental font and editor](https://brutalita.com/)
 - Sep 25 - [Knotty is a Racket dsl for knitting patterns](https://t0mpr1c3.github.io/knotty/code.html)
 - Sep 24 - [Grebedoc — static site hosting for git forges](https://grebedoc.dev)
 - Sep 24 - [Designing Electronics That Work](https://nostarch.com/designingelectronics)
 - Sep 23 - [NFS At 40 – Sun Microsystems NFS](https://nfs40.online)
-- Sep 23 - [Humble Tech Book Bundle: Electronics for the Curious by No Starch](https://www.humblebundle.com/books/electronics-for-the-curious-no-starch-books)
 <!-- feed end -->
 
 ---
