@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Sep 28 - [Raspberry Pi 500+ with clicky keys](https://www.raspberrypi.com/products/raspberry-pi-500-plus/)
 - Sep 26 - [Dotfiles with make](https://www.matheusmoreira.com/articles/managing-dotfiles-with-make)
 - Sep 25 - [Brutalita is an experimental font and editor](https://brutalita.com/)
 - Sep 25 - [Knotty is a Racket dsl for knitting patterns](https://t0mpr1c3.github.io/knotty/code.html)
 - Sep 24 - [Grebedoc — static site hosting for git forges](https://grebedoc.dev)
-- Sep 24 - [Designing Electronics That Work](https://nostarch.com/designingelectronics)
 <!-- feed end -->
 
 ---
