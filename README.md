@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Oct 06 - [gem.coop – a new server for gems in the Ruby ecosystem](https://gem.coop/)
 - Oct 02 - [Bending Emacs - Episode 01: Applying CLI utils](https://www.youtube.com/watch?v=77NtPfgr4x0)
 - Oct 01 - [Open Printer - an open-source, repairable inkjet printer](https://www.crowdsupply.com/open-tools/open-printer)
 - Sep 29 - [Shopify, pulling strings at Ruby Central, forces Bundler and RubyGems takeover](https://joel.drapper.me/p/rubygems-takeover/)
 - Sep 28 - [J-Link Compact USB-C Issues](https://alvarop.com/2025/09/j-link-compact-usb-c-issues/)
-- Sep 28 - [Raspberry Pi 500+ with clicky keys](https://www.raspberrypi.com/products/raspberry-pi-500-plus/)
 <!-- feed end -->
 
 ---
