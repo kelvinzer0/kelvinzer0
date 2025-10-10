@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Oct 10 - [The Great Software Quality Collapse: How We Normalized Catastrophe](https://techtrenches.substack.com/p/the-great-software-quality-collapse)
 - Oct 08 - [benny - a modular software playground for making live music](https://playbenny.github.io/benny_manual/)
 - Oct 06 - [gem.coop – a new server for gems in the Ruby ecosystem](https://gem.coop/)
 - Oct 02 - [Bending Emacs - Episode 01: Applying CLI utils](https://www.youtube.com/watch?v=77NtPfgr4x0)
 - Oct 01 - [Open Printer - an open-source, repairable inkjet printer](https://www.crowdsupply.com/open-tools/open-printer)
-- Sep 29 - [Shopify, pulling strings at Ruby Central, forces Bundler and RubyGems takeover](https://joel.drapper.me/p/rubygems-takeover/)
 <!-- feed end -->
 
 ---
