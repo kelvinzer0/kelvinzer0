@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Oct 17 - [How to Observe Police Surveillance at Protests (2020)](https://www.youtube.com/watch?v=oGscYgR7bXc)
 - Oct 16 - [Why your boss isn't worried about AI](https://boydkane.com/essays/boss)
 - Oct 14 - [Massive Vodafone Outage Linked to BGP Routing Issue from AS25135](https://www.reddit.com/r/Vodafone/comments/1o5ol4c/massive_vodafone_outage_linked_to_bgp_routing/)
 - Oct 13 - [Sony PlayStation 2 fixing frenzy](https://retrohax.net/sony-playstation-2-fixing-frenzy/)
 - Oct 12 - [Servers with Personality](https://caolan.uk/links/servers/)
-- Oct 10 - [The Great Software Quality Collapse: How We Normalized Catastrophe](https://techtrenches.substack.com/p/the-great-software-quality-collapse)
 <!-- feed end -->
 
 ---
