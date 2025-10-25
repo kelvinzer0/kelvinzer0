@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Oct 25 - [TextEdit and the Relief of Simple Software](https://www.newyorker.com/culture/infinite-scroll/textedit-and-the-relief-of-simple-software)
 - Oct 24 - [MSDOS tool - the MIDI Sniffer](https://www.youtube.com/watch?v=9_MNY7hs1qg)
 - Oct 19 - [QuickDrawViewer: A Mac OS X utility to visualise QuickDraw (PICT) files. It allows exporting to PDF format](https://github.com/wiesmann/QuickDrawViewer/)
 - Oct 18 - [How I Reversed Amazon's Kindle Web Obfuscation Because Their App Sucked](https://blog.pixelmelt.dev/kindle-web-drm/)
 - Oct 17 - [Repairing a Psion 5mx handheld computer to add to my collection](https://pointinthecloud.com/2025-10-13-154800.html)
-- Oct 17 - [How to Observe Police Surveillance at Protests (2020)](https://www.youtube.com/watch?v=oGscYgR7bXc)
 <!-- feed end -->
 
 ---
