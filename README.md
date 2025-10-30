@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [writerDeck](https://www.writerdeck.org)
+- Oct 30 - [writerdeckOS](https://writerdeckos.com)
 - Oct 28 - [be_kind : A social non-network hosted on a tilde](http://twentytwo.town:1991/)
 - Oct 25 - [Hauntsfield](https://alliemackie.itch.io/hauntsfield)
 - Oct 25 - [Why open source may not survive the rise of generative AI](https://www.zdnet.com/article/why-open-source-may-not-survive-the-rise-of-generative-ai/)
-- Oct 25 - [TextEdit and the Relief of Simple Software](https://www.newyorker.com/culture/infinite-scroll/textedit-and-the-relief-of-simple-software)
-- Oct 24 - [MSDOS tool - the MIDI Sniffer](https://www.youtube.com/watch?v=9_MNY7hs1qg)
 <!-- feed end -->
 
 ---
