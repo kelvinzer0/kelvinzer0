@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Oct 30 - [Microsoft earnings suggest $11.5B OpenAI quarterly loss](https://www.theregister.com/2025/10/29/microsoft_earnings_q1_26_openai_loss/)
 - Oct 30 - [writerDeck](https://www.writerdeck.org)
 - Oct 30 - [writerdeckOS](https://writerdeckos.com)
 - Oct 28 - [be_kind : A social non-network hosted on a tilde](http://twentytwo.town:1991/)
 - Oct 25 - [Hauntsfield](https://alliemackie.itch.io/hauntsfield)
-- Oct 25 - [Why open source may not survive the rise of generative AI](https://www.zdnet.com/article/why-open-source-may-not-survive-the-rise-of-generative-ai/)
 <!-- feed end -->
 
 ---
