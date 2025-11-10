@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Nov 10 - [EuroStack - European Open Solutions for Digital Sovereignty](https://euro-stack.com/)
 - Nov 09 - [The Definitive Classic Mac Pro (2006-2012) Upgrade Guide](https://blog.greggant.com/posts/2018/05/07/definitive-mac-pro-upgrade-guide.html)
 - Nov 08 - [Stories from a Tor dev](https://www.youtube.com/watch?v=djM70O0SnsY)
 - Nov 07 - [The Past Still Boots with the Interim Computing Museum's Stephen Jones](https://www.youtube.com/watch?v=EFkxiLBSjTo)
 - Nov 01 - [Blank Akai S1000 disk images](http://notebook.zoeblade.com/Blank_S1000_disk_images.html)
-- Oct 30 - [gallant: The 12x22 raster font we love, used by Sun Microsystems SPARC stations. With a ton of Unicode glyphs](https://github.com/NanoBillion/gallant)
 <!-- feed end -->
 
 ---
