@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Nov 11 - [copyparty: Portable file server with resumable uploads, dedup, WebDAV, [...] no deps](https://github.com/9001/copyparty)
 - Nov 10 - [Why the Original Apple Silicon Failed](https://www.youtube.com/watch?v=Tld91M_bcEI)
 - Nov 10 - [EuroStack - European Open Solutions for Digital Sovereignty](https://euro-stack.com/)
 - Nov 09 - [The Definitive Classic Mac Pro (2006-2012) Upgrade Guide](https://blog.greggant.com/posts/2018/05/07/definitive-mac-pro-upgrade-guide.html)
 - Nov 08 - [Stories from a Tor dev](https://www.youtube.com/watch?v=djM70O0SnsY)
-- Nov 07 - [The Past Still Boots with the Interim Computing Museum's Stephen Jones](https://www.youtube.com/watch?v=EFkxiLBSjTo)
 <!-- feed end -->
 
 ---
