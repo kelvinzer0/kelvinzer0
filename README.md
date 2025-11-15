@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Nov 15 - [awesome-tunneling: List of ngrok/Cloudflare Tunnel alternatives and other tunneling software and services. Focus on self-hosting](https://github.com/anderspitman/awesome-tunneling)
 - Nov 14 - [Why do we need dithering?](https://typefully.com/DanHollick/why-do-we-need-dithering-Ut7oD4k)
 - Nov 12 - [Homebrew 5.0.0](https://brew.sh/2025/11/12/homebrew-5.0.0/)
 - Nov 11 - [You Won’t Believe What MAME Can Emulate! (Midi Synths)](https://www.youtube.com/watch?v=fi9mMvCsWUQ)
 - Nov 11 - [Running Windows 3.0 on a Psion](https://www.youtube.com/watch?v=0xZYEekAqQw)
-- Nov 11 - [copyparty: Portable file server with resumable uploads, dedup, WebDAV, [...] no deps](https://github.com/9001/copyparty)
 <!-- feed end -->
 
 ---
