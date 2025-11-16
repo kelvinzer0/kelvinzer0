@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Nov 16 - [Transplantation of chemically induced pluripotent stem-cell-derived islets under abdominal anterior rectus sheath in a type 1 diabetes patient](https://www.cell.com/cell/fulltext/S0092-8674(24)01022-5)
 - Nov 15 - [VapeRE: Reverse engineered disposable v a p e boards](https://github.com/schlae/vapere)
 - Nov 15 - [awesome-tunneling: List of ngrok/Cloudflare Tunnel alternatives and other tunneling software and services. Focus on self-hosting](https://github.com/anderspitman/awesome-tunneling)
 - Nov 14 - [Why do we need dithering?](https://typefully.com/DanHollick/why-do-we-need-dithering-Ut7oD4k)
 - Nov 12 - [Homebrew 5.0.0](https://brew.sh/2025/11/12/homebrew-5.0.0/)
-- Nov 11 - [You Won’t Believe What MAME Can Emulate! (Midi Synths)](https://www.youtube.com/watch?v=fi9mMvCsWUQ)
 <!-- feed end -->
 
 ---
