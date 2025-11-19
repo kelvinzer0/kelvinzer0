@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Nov 19 - [Super Nintendo Entertainment System (PAL SNSP-CPU-01) Restoration](https://makertube.net/w/4DYddo3pkmQ3mGxNZoWFKA)
 - Nov 19 - [IGF 2026 Games I Want to Talk About](https://cdrom.ca/games/2025/11/19/igf2026.html)
 - Nov 17 - [Fireside Q&A -- Charles H. Moore -- 2025-11-16](https://www.youtube.com/watch?v=MvkGBWXb2oQ)
 - Nov 16 - [Transplantation of chemically induced pluripotent stem-cell-derived islets under abdominal anterior rectus sheath in a type 1 diabetes patient](https://www.cell.com/cell/fulltext/S0092-8674(24)01022-5)
 - Nov 15 - [VapeRE: Reverse engineered disposable v a p e boards](https://github.com/schlae/vapere)
-- Nov 15 - [awesome-tunneling: List of ngrok/Cloudflare Tunnel alternatives and other tunneling software and services. Focus on self-hosting](https://github.com/anderspitman/awesome-tunneling)
 <!-- feed end -->
 
 ---
