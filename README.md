@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [GameShell: a game to learn (or teach) how to use standard commands in a Unix shell](https://github.com/phyver/GameShell)
 - Nov 28 - [System 7 natively boots on the Mac mini G4](http://macos9lives.com/smforum/index.php?topic=7711.0)
 - Nov 28 - [Fixing a Radare2 bug from the Windows Cmd](https://trufae.github.io/aiblog/WinCdbNull-en.html)
 - Nov 27 - [Is Your Android TV Streaming Box Part of a Botnet?](https://krebsonsecurity.com/2025/11/is-your-android-tv-streaming-box-part-of-a-botnet/)
 - Nov 26 - [I don't care how well your "AI" works - fiona fokus](https://fokus.cool/2025/11/25/i-dont-care-how-well-your-ai-works.html)
-- Nov 24 - [A Brief, Incomplete, and Mostly Wrong History of Programming Languages](https://james-iry.blogspot.com/2009/05/brief-incomplete-and-mostly-wrong.html)
 <!-- feed end -->
 
 ---
