@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Nov 28 - [Fixing a Radare2 bug from the Windows Cmd](https://trufae.github.io/aiblog/WinCdbNull-en.html)
 - Nov 27 - [Is Your Android TV Streaming Box Part of a Botnet?](https://krebsonsecurity.com/2025/11/is-your-android-tv-streaming-box-part-of-a-botnet/)
 - Nov 26 - [I don't care how well your "AI" works - fiona fokus](https://fokus.cool/2025/11/25/i-dont-care-how-well-your-ai-works.html)
 - Nov 24 - [A Brief, Incomplete, and Mostly Wrong History of Programming Languages](https://james-iry.blogspot.com/2009/05/brief-incomplete-and-mostly-wrong.html)
 - Nov 24 - [Back and Forth Pages in Inkscape](https://www.youtube.com/watch?v=YFQO6RueywY)
-- Nov 19 - [Super Nintendo Entertainment System (PAL SNSP-CPU-01) Restoration](https://makertube.net/w/4DYddo3pkmQ3mGxNZoWFKA)
 <!-- feed end -->
 
 ---
