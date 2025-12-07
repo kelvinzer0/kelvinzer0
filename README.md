@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Dec 07 - [The Press Has Entered The Chat](https://bobbyhiltz.com/posts/2025/11/press/index.html)
 - Dec 06 - [Patching Pulse Oximeter Firmware](https://stefan-gloor.ch/pulseoximeter-hack)
 - Dec 03 - [SmartTube YouTube app for Android TV breached to push malicious update](https://www.bleepingcomputer.com/news/security/smarttube-youtube-app-for-android-tv-breached-to-push-malicious-update/)
 - Nov 28 - [GameShell: a game to learn (or teach) how to use standard commands in a Unix shell](https://github.com/phyver/GameShell)
 - Nov 28 - [System 7 natively boots on the Mac mini G4](http://macos9lives.com/smforum/index.php?topic=7711.0)
-- Nov 28 - [Fixing a Radare2 bug from the Windows Cmd](https://trufae.github.io/aiblog/WinCdbNull-en.html)
 <!-- feed end -->
 
 ---
