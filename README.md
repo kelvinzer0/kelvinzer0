@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Dec 16 - [The Garage team - An S3 object store so reliable you can run it outside datacenters](https://garagehq.deuxfleurs.fr/)
 - Dec 13 - [L5: a New Creative Coding Library in Lua, in the family of Processing/p5 Languages](https://leetusman.com/nosebook/early-alpha-feedback-L5)
 - Dec 11 - [Typeframe](https://www.typeframe.net)
 - Dec 11 - [Notepad++ v8.8.9 release: Vulnerability-fix](https://notepad-plus-plus.org/news/v889-released/)
 - Dec 07 - [The Press Has Entered The Chat](https://bobbyhiltz.com/posts/2025/11/press/index.html)
-- Dec 06 - [Patching Pulse Oximeter Firmware](https://stefan-gloor.ch/pulseoximeter-hack)
 <!-- feed end -->
 
 ---
