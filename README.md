@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Dec 18 - [A proposed legislative amendment to attempt to ban under 16s in the UK from online services](https://decoded.legal/blog/2025/12/a-proposed-legislative-amendment-to-attempt-to-ban-under-16s-in-the-uk-from-common-messaging-services-sharing-family-photos-using-wikipedia-and-doing-much-else-online-by-imposing-age-assurance-on-everyone/)
 - Dec 18 - [how to repurpose your old phone into a web server](https://far.computer/how-to/)
 - Dec 16 - [The Garage team - An S3 object store so reliable you can run it outside datacenters](https://garagehq.deuxfleurs.fr/)
 - Dec 13 - [L5: a New Creative Coding Library in Lua, in the family of Processing/p5 Languages](https://leetusman.com/nosebook/early-alpha-feedback-L5)
 - Dec 11 - [Typeframe](https://www.typeframe.net)
-- Dec 11 - [Notepad++ v8.8.9 release: Vulnerability-fix](https://notepad-plus-plus.org/news/v889-released/)
 <!-- feed end -->
 
 ---
