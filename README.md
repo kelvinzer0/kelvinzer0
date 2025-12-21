@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Dec 21 - [The Mysterious Forces Steering Views on Hacker News](https://xn--gckvb8fzb.com/the-mysterious-forces-steering-views-on-hacker-news/)
 - Dec 19 - [Book Talk: Programmed Inequality (2017)](https://www.youtube.com/watch?v=4vCDHJ4-D80)
 - Dec 18 - [A proposed legislative amendment to attempt to ban under 16s in the UK from online services](https://decoded.legal/blog/2025/12/a-proposed-legislative-amendment-to-attempt-to-ban-under-16s-in-the-uk-from-common-messaging-services-sharing-family-photos-using-wikipedia-and-doing-much-else-online-by-imposing-age-assurance-on-everyone/)
 - Dec 18 - [how to repurpose your old phone into a web server](https://far.computer/how-to/)
 - Dec 16 - [The Garage team - An S3 object store so reliable you can run it outside datacenters](https://garagehq.deuxfleurs.fr/)
-- Dec 13 - [L5: a New Creative Coding Library in Lua, in the family of Processing/p5 Languages](https://leetusman.com/nosebook/early-alpha-feedback-L5)
 <!-- feed end -->
 
 ---
