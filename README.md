@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Dec 23 - [Inside Cecot (Cam Rip By Jason Paris)](https://archive.org/details/3mam75w3oec2n)
 - Dec 21 - [Archiving Spotify](https://annas-archive.org/blog/backing-up-spotify.html)
 - Dec 21 - [The Mysterious Forces Steering Views on Hacker News](https://xn--gckvb8fzb.com/the-mysterious-forces-steering-views-on-hacker-news/)
 - Dec 19 - [Book Talk: Programmed Inequality (2017)](https://www.youtube.com/watch?v=4vCDHJ4-D80)
 - Dec 18 - [A proposed legislative amendment to attempt to ban under 16s in the UK from online services](https://decoded.legal/blog/2025/12/a-proposed-legislative-amendment-to-attempt-to-ban-under-16s-in-the-uk-from-common-messaging-services-sharing-family-photos-using-wikipedia-and-doing-much-else-online-by-imposing-age-assurance-on-everyone/)
-- Dec 18 - [how to repurpose your old phone into a web server](https://far.computer/how-to/)
 <!-- feed end -->
 
 ---
