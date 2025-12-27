@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Dec 27 - [uxn32: Uxn emulator for Windows and Wine](https://github.com/randrew/uxn32)
 - Dec 25 - [Unbricking a Cisco Cache Engine 505 - Part 1](https://www.youtube.com/watch?v=dLhkryv3lSc)
 - Dec 23 - [Mac OS X for UNIX Users (2005)](https://web.archive.org/web/20051027012820/http://images.apple.com/macosx/pdf/MacOSX_UNIX_TB.pdf)
 - Dec 23 - [Inside Cecot (Cam Rip By Jason Paris)](https://archive.org/details/3mam75w3oec2n)
 - Dec 21 - [Archiving Spotify](https://annas-archive.org/blog/backing-up-spotify.html)
-- Dec 21 - [The Mysterious Forces Steering Views on Hacker News](https://xn--gckvb8fzb.com/the-mysterious-forces-steering-views-on-hacker-news/)
 <!-- feed end -->
 
 ---
