@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 04 - [How AP photographers capture infrared technology used in surveillance](http://youtube.com/watch?v=D1tyEUq2u-E)
 - Jan 02 - [A Website To End All Websites](https://henry.codes/writing/a-website-to-destroy-all-websites/)
 - Dec 30 - [Insights into TLS performance: Evaluating OpenSSL 1.1.1 through 3.4 in Firewall Deployments](https://www.youtube.com/watch?v=b01y5FDx-ao)
 - Dec 27 - [uxn32: Uxn emulator for Windows and Wine](https://github.com/randrew/uxn32)
 - Dec 25 - [Unbricking a Cisco Cache Engine 505 - Part 1](https://www.youtube.com/watch?v=dLhkryv3lSc)
-- Dec 23 - [Mac OS X for UNIX Users (2005)](https://web.archive.org/web/20051027012820/http://images.apple.com/macosx/pdf/MacOSX_UNIX_TB.pdf)
 <!-- feed end -->
 
 ---
