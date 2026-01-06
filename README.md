@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 06 - [DiskImageTool: A powerful floppy disk image manager](https://github.com/Digitoxin1/DiskImageTool)
 - Jan 05 - [Remembering Cliff Sekel (InsaneDarwin)](https://www.puredarwin.org/wiki/#/news/Remembering-Cliff-Sekel)
 - Jan 05 - [PicoPCMCIA](https://www.yyzkevin.com/picopcmcia/)
 - Jan 05 - [Linux on a Mac (it's not going back)](https://tinkerbetter.tube/w/cRpY1NgJHqMgyPgZA7dJEL)
 - Jan 05 - [GENUARY 2026](https://genuary.art)
-- Jan 04 - [How AP photographers capture infrared technology used in surveillance](http://youtube.com/watch?v=D1tyEUq2u-E)
 <!-- feed end -->
 
 ---
