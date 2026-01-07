@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 07 - [corroded: Illegal rust](https://github.com/buyukakyuz/corroded)
 - Jan 07 - [LimeSDR Micro - An open M.2 and mPCIe software-defined radio with integrated baseband processing](https://www.crowdsupply.com/lime-micro/limesdr-micro)
 - Jan 06 - [DiskImageTool: A powerful floppy disk image manager](https://github.com/Digitoxin1/DiskImageTool)
 - Jan 05 - [Remembering Cliff Sekel (InsaneDarwin)](https://www.puredarwin.org/wiki/#/news/Remembering-Cliff-Sekel)
 - Jan 05 - [PicoPCMCIA](https://www.yyzkevin.com/picopcmcia/)
-- Jan 05 - [Linux on a Mac (it's not going back)](https://tinkerbetter.tube/w/cRpY1NgJHqMgyPgZA7dJEL)
 <!-- feed end -->
 
 ---
