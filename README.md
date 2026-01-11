@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 11 - [SUPER ACTION 52](https://superaction52.world/)
 - Jan 11 - [The Museum of Care: Open-Source Survival Kit Collection](https://media.ccc.de/v/39c3-the-museum-of-care-open-source-survival-kit-collection)
 - Jan 08 - [LeafKVM is a Rockchip-based self-contained KVM with touchscreen and browser access](https://linuxgizmos.com/leafkvm-is-a-rockchip-based-self-contained-kvm-with-touchscreen-and-browser-access/)
 - Jan 07 - [corroded: Illegal rust](https://github.com/buyukakyuz/corroded)
 - Jan 07 - [LimeSDR Micro - An open M.2 and mPCIe software-defined radio with integrated baseband processing](https://www.crowdsupply.com/lime-micro/limesdr-micro)
-- Jan 06 - [DiskImageTool: A powerful floppy disk image manager](https://github.com/Digitoxin1/DiskImageTool)
 <!-- feed end -->
 
 ---
