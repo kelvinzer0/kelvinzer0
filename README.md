@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 12 - [I Will Pay Any Amount to Not Pay My Taxes](https://www.mcsweeneys.net/articles/i-will-pay-any-amount-to-not-pay-my-taxes)
 - Jan 11 - [How Inaccurate are Nintendo's Official Emulators? (2025)](https://www.youtube.com/watch?v=oYjYmSniQyM)
 - Jan 11 - [Petition Restore Fully Free and Open Access to the ACM Digital Library](https://www.ipetitions.com/petition/restore-fully-free-and-open-access)
 - Jan 11 - [SUPER ACTION 52](https://superaction52.world/)
 - Jan 11 - [The Museum of Care: Open-Source Survival Kit Collection](https://media.ccc.de/v/39c3-the-museum-of-care-open-source-survival-kit-collection)
-- Jan 08 - [LeafKVM is a Rockchip-based self-contained KVM with touchscreen and browser access](https://linuxgizmos.com/leafkvm-is-a-rockchip-based-self-contained-kvm-with-touchscreen-and-browser-access/)
 <!-- feed end -->
 
 ---
