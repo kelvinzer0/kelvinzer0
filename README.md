@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 17 - [Surviving Space: Radiation, Bit Flips, and Naked Silicon](https://www.youtube.com/watch?v=FJE5eBg7iQ4)
 - Jan 15 - [Reverse engineering my cloud-connected e-scooter and finding the master key to unlock all scooters](https://blog.nns.ee/2026/01/06/aike-ble/)
 - Jan 14 - [Town Con 2025 - Keynote by vilmibm](https://www.youtube.com/watch?v=o20qMSZThPE&list=PLj4wZTN7SYTvBq5LyDN87aVvKpRwM0j6p&index=4)
 - Jan 12 - [I Will Pay Any Amount to Not Pay My Taxes](https://www.mcsweeneys.net/articles/i-will-pay-any-amount-to-not-pay-my-taxes)
 - Jan 11 - [How Inaccurate are Nintendo's Official Emulators? (2025)](https://www.youtube.com/watch?v=oYjYmSniQyM)
-- Jan 11 - [Petition Restore Fully Free and Open Access to the ACM Digital Library](https://www.ipetitions.com/petition/restore-fully-free-and-open-access)
 <!-- feed end -->
 
 ---
