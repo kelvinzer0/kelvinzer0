@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 20 - [Gladys West](https://en.wikipedia.org/wiki/Gladys_West)
 - Jan 19 - [NVIDIA Contacted Anna’s Archive to Secure Access to Millions of Pirated Books * TorrentFreak](https://torrentfreak.com/nvidia-contacted-annas-archive-to-secure-access-to-millions-of-pirated-books/)
 - Jan 17 - [Surviving Space: Radiation, Bit Flips, and Naked Silicon](https://www.youtube.com/watch?v=FJE5eBg7iQ4)
 - Jan 15 - [Reverse engineering my cloud-connected e-scooter and finding the master key to unlock all scooters](https://blog.nns.ee/2026/01/06/aike-ble/)
 - Jan 14 - [Town Con 2025 - Keynote by vilmibm](https://www.youtube.com/watch?v=o20qMSZThPE&list=PLj4wZTN7SYTvBq5LyDN87aVvKpRwM0j6p&index=4)
-- Jan 12 - [I Will Pay Any Amount to Not Pay My Taxes](https://www.mcsweeneys.net/articles/i-will-pay-any-amount-to-not-pay-my-taxes)
 <!-- feed end -->
 
 ---
