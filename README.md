@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 22 - [Radicle: the sovereign forge](https://radicle.xyz/)
 - Jan 21 - [Creative Audio Coding I – Fall 2025 MUS 403](https://www.youtube.com/playlist?list=PLPYzvS8A_rTY2H2RANVM18-wRoJ5dzzW4)
 - Jan 20 - [Maintenance: Of Everything, Part One](https://press.stripe.com/maintenance-part-one)
 - Jan 20 - [Gladys West](https://en.wikipedia.org/wiki/Gladys_West)
 - Jan 19 - [NVIDIA Contacted Anna’s Archive to Secure Access to Millions of Pirated Books * TorrentFreak](https://torrentfreak.com/nvidia-contacted-annas-archive-to-secure-access-to-millions-of-pirated-books/)
-- Jan 17 - [Surviving Space: Radiation, Bit Flips, and Naked Silicon](https://www.youtube.com/watch?v=FJE5eBg7iQ4)
 <!-- feed end -->
 
 ---
