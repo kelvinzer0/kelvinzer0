@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 27 - [Places to Telnet](https://telnet.org/htm/places.htm)
 - Jan 26 - [Why there’s no European Google?](https://ploum.net/2026-01-22-why-no-european-google.html)
 - Jan 22 - [Acorn Archimedes A3000 Replica PCB](https://lectronz.com/products/acorn-a3000)
 - Jan 22 - [Radicle: the sovereign forge](https://radicle.xyz/)
 - Jan 21 - [Creative Audio Coding I – Fall 2025 MUS 403](https://www.youtube.com/playlist?list=PLPYzvS8A_rTY2H2RANVM18-wRoJ5dzzW4)
-- Jan 20 - [Maintenance: Of Everything, Part One](https://press.stripe.com/maintenance-part-one)
 <!-- feed end -->
 
 ---
