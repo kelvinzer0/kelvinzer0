@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 28 - [Smart Quotes for Smart People (2013)](https://smartquotesforsmartpeople.com)
 - Jan 28 - [You Can Just Say No to the Data](https://blog.jim-nielsen.com/2026/say-no-to-data/)
 - Jan 27 - [Places to Telnet](https://telnet.org/htm/places.htm)
 - Jan 26 - [Why there’s no European Google?](https://ploum.net/2026-01-22-why-no-european-google.html)
 - Jan 22 - [Acorn Archimedes A3000 Replica PCB](https://lectronz.com/products/acorn-a3000)
-- Jan 22 - [Radicle: the sovereign forge](https://radicle.xyz/)
 <!-- feed end -->
 
 ---
