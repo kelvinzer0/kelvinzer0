@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Jan 29 - [Palestinian journalist Bisan Owda with 1.4m followers reports TikTok ban](https://www.aljazeera.com/news/2026/1/29/palestinian-journalist-bisan-owda-with-1-4m-followers-reports-tiktok-ban)
 - Jan 29 - [Administrative FortiCloud SSO authentication bypass](https://fortiguard.fortinet.com/psirt/FG-IR-26-060)
 - Jan 29 - [Arche Scriptures: Ceramics as a Speculative Medium for Digital Memory - Alberto Harres](https://www.youtube.com/watch?v=qmfeFk7oDNQ)
 - Jan 28 - [Smart Quotes for Smart People (2013)](https://smartquotesforsmartpeople.com)
 - Jan 28 - [You Can Just Say No to the Data](https://blog.jim-nielsen.com/2026/say-no-to-data/)
-- Jan 27 - [Places to Telnet](https://telnet.org/htm/places.htm)
 <!-- feed end -->
 
 ---
