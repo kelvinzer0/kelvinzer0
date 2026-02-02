@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 02 - [Self-driving cars, drones hijacked by custom road signs](https://www.theregister.com/2026/01/30/road_sign_hijack_ai/)
 - Feb 02 - [Use & Modify](https://usemodify.com/)
 - Feb 01 - [Z80-μLM: A Retrocomputing Micro Language Model](https://github.com/HarryR/z80ai)
 - Jan 30 - [Blair and the Billionaire (2025)](https://www.lighthousereports.com/investigation/blair-and-the-billionaire/)
 - Jan 29 - [Palestinian journalist Bisan Owda with 1.4m followers reports TikTok ban](https://www.aljazeera.com/news/2026/1/29/palestinian-journalist-bisan-owda-with-1-4m-followers-reports-tiktok-ban)
-- Jan 29 - [Administrative FortiCloud SSO authentication bypass](https://fortiguard.fortinet.com/psirt/FG-IR-26-060)
 <!-- feed end -->
 
 ---
