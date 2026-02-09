@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 09 - [Offpunk 3.0](https://ploum.net/2026-02-09-offpunk3.html)
 - Feb 09 - [Discord will require a face scan or ID for full access next month](https://www.theverge.com/tech/875309/discord-age-verification-global-roll-out)
 - Feb 04 - [How to Upgrade ThinkPad Firmware on Linux (fwupd) (2025)](https://linuxblog.io/upgrade-thinkpad-firmware-linux-fwupd/)
 - Feb 02 - [Self-driving cars, drones hijacked by custom road signs](https://www.theregister.com/2026/01/30/road_sign_hijack_ai/)
 - Feb 02 - [Use & Modify](https://usemodify.com/)
-- Feb 01 - [Z80-μLM: A Retrocomputing Micro Language Model](https://github.com/HarryR/z80ai)
 <!-- feed end -->
 
 ---
