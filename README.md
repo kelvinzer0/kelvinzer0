@@ -40,7 +40,7 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
-- Feb 10 - [Download Caligra Workbench](https://caligra.com/download-workbench/)
+- Feb 10 - [Download Caligra Workbench - A hyper-efficient environment made for focus and productivity](https://caligra.com/download-workbench/)
 - Feb 09 - [Offpunk 3.0](https://ploum.net/2026-02-09-offpunk3.html)
 - Feb 09 - [Discord will require a face scan or ID for full access next month](https://www.theverge.com/tech/875309/discord-age-verification-global-roll-out)
 - Feb 04 - [How to Upgrade ThinkPad Firmware on Linux (fwupd) (2025)](https://linuxblog.io/upgrade-thinkpad-firmware-linux-fwupd/)
