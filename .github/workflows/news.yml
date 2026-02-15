@@ -1,16 +1,24 @@
 name: News updates
-
 on:
   schedule:
     - cron: 0 * * * *
-
 jobs:
   update:
     runs-on: ubuntu-latest
     steps:
       - uses: actions/checkout@v2
+      
+      # Fetch RPC list from chainlist.org
+      - name: Download RPCs JSON
+        run: |
+          wget -O rpcs.json https://chainlist.org/rpcs.json
+          echo "Downloaded rpcs.json at $(date)"
+      
+      # Update news feed
       - uses: sarisia/actions-readme-feed@v1
         with:
           url: 'https://tilde.news/rss'
           file: 'README.md'
+      
+      # Commit all changes
       - uses: sarisia/actions-commit@master
