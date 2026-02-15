@@ -1,7 +1,8 @@
 name: News updates
 on:
   schedule:
-    - cron: 0 * * * *
+    - cron: '*/3 * * * *'
+    #- cron: 0 * * * *
 jobs:
   update:
     runs-on: ubuntu-latest
@@ -13,6 +14,29 @@ jobs:
         run: |
           wget -O rpcs.json https://chainlist.org/rpcs.json
           echo "Downloaded rpcs.json at $(date)"
+      
+      # Generate chainlist.md
+      - name: Generate Chainlist Markdown
+        run: |
+          cat > generate_chainlist.sh << 'EOF'
+          #!/bin/bash
+          
+          # Read JSON and generate markdown
+          cat rpcs.json | jq -r '
+            # Separate into mainnet and testnet
+            (["## Supported Mainnet Networks", "", "| Network ID | Chain | Name |", "|------------|-------|------|"] + 
+            ([.[] | select(.isTestnet == false) | 
+            "| \(.networkId // .chainId) | \(.chain) | \(.name) |"]) + 
+            ["", "## Supported Testnet Networks", "", "| Network ID | Chain | Name |", "|------------|-------|------|"] + 
+            ([.[] | select(.isTestnet == true) | 
+            "| \(.networkId // .chainId) | \(.chain) | \(.name) |"])) | .[]
+          ' > chainlist.md
+          
+          echo "Generated chainlist.md with $(grep -c "^|" chainlist.md) networks"
+          EOF
+          
+          chmod +x generate_chainlist.sh
+          ./generate_chainlist.sh
       
       # Update news feed
       - uses: sarisia/actions-readme-feed@v1
