@@ -1,8 +1,9 @@
 name: News updates
 on:
+  workflow_dispatch:
   schedule:
-    - cron: '*/3 * * * *'
-    #- cron: 0 * * * *
+    #- cron: '*/3 * * * *'
+    - cron: 0 * * * *
 jobs:
   update:
     runs-on: ubuntu-latest
