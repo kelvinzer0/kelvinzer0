@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 16 - [Thunderbolt on PC is a compatibility nightmare (2024)](https://asusproart.medium.com/thunderbolt-on-pc-is-a-nightmare-of-intels-own-making-edd3141cc03f)
 - Feb 14 - [sql-tap: Watch SQL traffic in real-time with a TUI](https://github.com/mickamy/sql-tap)
 - Feb 12 - [Hacking the last Z80 computer ever made](https://fosdem.org/2026/schedule/event/FEHLHY-hacking_the_last_z80_computer_ever_made/)
 - Feb 10 - [Download Caligra Workbench - A hyper-efficient environment made for focus and productivity](https://caligra.com/download-workbench/)
 - Feb 09 - [Offpunk 3.0](https://ploum.net/2026-02-09-offpunk3.html)
-- Feb 09 - [Discord will require a face scan or ID for full access next month](https://www.theverge.com/tech/875309/discord-age-verification-global-roll-out)
 <!-- feed end -->
 
 ---
