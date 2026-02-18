@@ -1465,6 +1465,7 @@
 | 4048 | GAN | GANchain L1 |
 | 4153 | ETH | RISE |
 | 420420420420 | GALAXY | Galaxy Chain |
+| 421018 | INFINITE | Infinite Improbability Drive |
 | 4217 | Tempo | Tempo Mainnet |
 | 4326 | MEGA | MegaETH |
 | 44444444 | Tensora | Tensora |
@@ -1525,6 +1526,7 @@
 | 870 | autonomys-mainnet | Autonomys Mainnet |
 | 8721 | EBC | EB-Chain |
 | 8765 | WARD | Warden |
+| 892 | ABC | Advance Blockchain Mainnet |
 | 9 | QUAI | Quai Mainnet |
 | 90025 | aipaw | AIPaw Mainnet |
 | 9030 | QUBETICS | Qubetics Mainnet |
@@ -2544,6 +2546,7 @@
 | 20994 | FLUENT | Fluent Testnet |
 | 2107 | IBVM Testnet | IBVM Testnet |
 | 2129 | Memento | Memento Testnet |
+| 21519080 | TJR | Tajirchain Devnet |
 | 2201 | stable | Stable Testnet |
 | 22225 | CLES | Celes Testnet |
 | 222888 | Moca Chain | Moca Chain Testnet |
@@ -2560,6 +2563,7 @@
 | 3399 | tBEXC | ByteChain Testnet |
 | 3735928814 | Eden testnet | Eden testnet |
 | 42079 | rootVX | rootVX testnet |
+| 421018001 | INFINITE | Infinite Improbability Drive Testnet |
 | 4227 | Hashfire Testnet | Hashfire Testnet |
 | 42429 | Tempo Testnet | Tempo Testnet |
 | 4442 | DEN | Denergy Testnet |
