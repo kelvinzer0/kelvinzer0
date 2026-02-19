@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 19 - [The Dillo Appreciation Post](https://bobbyhiltz.com/posts/2026/02/dillo-appreciation/)
+- Feb 19 - [AI makes you boring](https://www.marginalia.nu/log/a_132_ai_bores/)
+- Feb 19 - [the EA buyout is actually Nightmare Fuel](http://youtube.com/watch?v=TwvrHBGp6Ns)
 - Feb 19 - [OmniDrive - a firmware modification for MediaTek MT1959-based optical disc drives](https://github.com/RibShark/OmniDrive)
 - Feb 16 - [Drag soldering SMD parts with a flux pen (2014)](https://www.youtube.com/watch?v=PUFCDh9BxQU)
-- Feb 16 - [Thunderbolt on PC is a compatibility nightmare (2024)](https://asusproart.medium.com/thunderbolt-on-pc-is-a-nightmare-of-intels-own-making-edd3141cc03f)
-- Feb 14 - [sql-tap: Watch SQL traffic in real-time with a TUI](https://github.com/mickamy/sql-tap)
-- Feb 12 - [Hacking the last Z80 computer ever made](https://fosdem.org/2026/schedule/event/FEHLHY-hacking_the_last_z80_computer_ever_made/)
 <!-- feed end -->
 
 ---
