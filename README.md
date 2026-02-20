@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 20 - [ip32prom-decompiler: Decompile the PROM firmware for the Silicon Graphics O2 (IP32) and reassemble into a bit-identical image](https://github.com/mattst88/ip32prom-decompiler)
 - Feb 19 - [The Dillo Appreciation Post](https://bobbyhiltz.com/posts/2026/02/dillo-appreciation/)
 - Feb 19 - [AI makes you boring](https://www.marginalia.nu/log/a_132_ai_bores/)
 - Feb 19 - [the EA buyout is actually Nightmare Fuel](http://youtube.com/watch?v=TwvrHBGp6Ns)
 - Feb 19 - [OmniDrive - a firmware modification for MediaTek MT1959-based optical disc drives](https://github.com/RibShark/OmniDrive)
-- Feb 16 - [Drag soldering SMD parts with a flux pen (2014)](https://www.youtube.com/watch?v=PUFCDh9BxQU)
 <!-- feed end -->
 
 ---
