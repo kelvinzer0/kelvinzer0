@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 21 - [IBM Laptop harddisk password bypass (2005)](https://marc.info/?l=full-disclosure&m=111234041830357)
 - Feb 20 - [kuskokwim - A tiling window manager for the River Wayland compositor (>= 0.4)](https://codeberg.org/ricci/kuskokwim)
 - Feb 20 - [midipipe - MIDI from stdin and to stdout](https://codeberg.org/squidcasa/midipipe)
 - Feb 20 - [[Motherboard] Schematics reviewed and published](https://www.powerpc-notebook.org/2026/01/schematics-reviewed-and-published/)
 - Feb 20 - [ip32prom-decompiler: Decompile the PROM firmware for the Silicon Graphics O2 (IP32) and reassemble into a bit-identical image](https://github.com/mattst88/ip32prom-decompiler)
-- Feb 19 - [The Dillo Appreciation Post](https://bobbyhiltz.com/posts/2026/02/dillo-appreciation/)
 <!-- feed end -->
 
 ---
