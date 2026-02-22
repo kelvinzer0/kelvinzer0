@@ -2,48 +2,144 @@ name: News updates
 on:
   workflow_dispatch:
   schedule:
-    #- cron: '*/3 * * * *'
     - cron: 0 * * * *
+
 jobs:
   update:
     runs-on: ubuntu-latest
     steps:
       - uses: actions/checkout@v2
-      
-      # Fetch RPC list from chainlist.org
+
+      # ─── 1. Download RPC list ───────────────────────────────────────────────
       - name: Download RPCs JSON
         run: |
           wget -O rpcs.json https://chainlist.org/rpcs.json
           echo "Downloaded rpcs.json at $(date)"
-      
-      # Generate chainlist.md
+          echo "Total chains: $(jq length rpcs.json)"
+
+      # ─── 2. Generate chainlist.md ───────────────────────────────────────────
       - name: Generate Chainlist Markdown
         run: |
-          cat > generate_chainlist.sh << 'EOF'
-          #!/bin/bash
-          
-          # Read JSON and generate markdown
           cat rpcs.json | jq -r '
-            # Separate into mainnet and testnet
-            (["## Supported Mainnet Networks", "", "| Network ID | Chain | Name |", "|------------|-------|------|"] + 
-            ([.[] | select(.isTestnet == false) | 
-            "| \(.networkId // .chainId) | \(.chain) | \(.name) |"]) + 
-            ["", "## Supported Testnet Networks", "", "| Network ID | Chain | Name |", "|------------|-------|------|"] + 
-            ([.[] | select(.isTestnet == true) | 
+            (["## Supported Mainnet Networks", "", "| Network ID | Chain | Name |", "|------------|-------|------|"] +
+            ([.[] | select(.isTestnet == false) |
+            "| \(.networkId // .chainId) | \(.chain) | \(.name) |"]) +
+            ["", "## Supported Testnet Networks", "", "| Network ID | Chain | Name |", "|------------|-------|------|"] +
+            ([.[] | select(.isTestnet == true) |
             "| \(.networkId // .chainId) | \(.chain) | \(.name) |"])) | .[]
           ' > chainlist.md
-          
           echo "Generated chainlist.md with $(grep -c "^|" chainlist.md) networks"
-          EOF
-          
-          chmod +x generate_chainlist.sh
-          ./generate_chainlist.sh
-      
-      # Update news feed
+
+      # ─── 3. Install dependencies ────────────────────────────────────────────
+      - name: Install Python deps
+        run: pip install aiohttp asyncio --quiet
+
+      # ─── 4. Test & filter RPC endpoints ────────────────────────────────────
+      - name: Test RPC Endpoints & Generate rpcs-faster.json
+        run: |
+          cat > test_rpc.py << 'PYEOF'
+          import json, asyncio, time, sys
+          import aiohttp
+
+          TIMEOUT      = 5      # seconds per request
+          CONCURRENCY  = 100    # parallel requests at once
+          ETH_PAYLOAD  = json.dumps({
+              "jsonrpc": "2.0",
+              "method":  "eth_blockNumber",
+              "params":  [],
+              "id":      1
+          })
+
+          async def ping_rpc(session, url, sem):
+              """Return (url, latency_ms) or (url, None) if dead."""
+              if not url.startswith("http"):
+                  return url, None          # skip wss / non-http
+              async with sem:
+                  try:
+                      t0 = time.monotonic()
+                      async with session.post(
+                          url,
+                          data=ETH_PAYLOAD,
+                          headers={"Content-Type": "application/json"},
+                          timeout=aiohttp.ClientTimeout(total=TIMEOUT)
+                      ) as resp:
+                          body = await resp.json(content_type=None)
+                          if "result" in body or "error" in body:
+                              ms = (time.monotonic() - t0) * 1000
+                              return url, round(ms, 1)
+                          return url, None
+                  except Exception:
+                      return url, None
+
+          async def test_chain(session, chain, sem):
+              """Test every rpc in a chain; return chain with only live rpcs sorted by speed."""
+              rpcs = chain.get("rpc", [])
+              tasks = []
+              for entry in rpcs:
+                  # rpc entries can be plain strings OR objects {"url": ..., ...}
+                  url = entry if isinstance(entry, str) else entry.get("url", "")
+                  tasks.append(ping_rpc(session, url, sem))
+
+              results = await asyncio.gather(*tasks)
+              latency_map = {url: ms for url, ms in results if ms is not None}
+
+              # Rebuild rpc list: keep only live, sorted fastest first
+              live_rpcs = []
+              for entry in rpcs:
+                  url = entry if isinstance(entry, str) else entry.get("url", "")
+                  if url in latency_map:
+                      # attach latency metadata if entry is an object
+                      if isinstance(entry, dict):
+                          entry = {**entry, "_latencyMs": latency_map[url]}
+                      live_rpcs.append((latency_map[url], entry))
+
+              live_rpcs.sort(key=lambda x: x[0])
+              chain["rpc"] = [e for _, e in live_rpcs]
+              return chain, len(live_rpcs)
+
+          async def main():
+              with open("rpcs.json") as f:
+                  chains = json.load(f)
+
+              sem = asyncio.Semaphore(CONCURRENCY)
+              connector = aiohttp.TCPConnector(limit=CONCURRENCY, ssl=False)
+
+              print(f"Testing {len(chains)} chains …", flush=True)
+              async with aiohttp.ClientSession(connector=connector) as session:
+                  tasks = [test_chain(session, chain, sem) for chain in chains]
+                  results = await asyncio.gather(*tasks)
+
+              # Keep chains that still have at least one live RPC
+              faster = [chain for chain, live in results if live > 0]
+              dead   = [chain for chain, live in results if live == 0]
+
+              print(f"Chains with live RPCs : {len(faster)}")
+              print(f"Chains with no live RPCs (dropped): {len(dead)}")
+
+              with open("rpcs-faster.json", "w") as f:
+                  json.dump(faster, f, separators=(",", ":"))
+
+              print("Saved rpcs-faster.json ✓")
+
+          asyncio.run(main())
+          PYEOF
+
+          python test_rpc.py
+
+      # ─── 5. Show summary ────────────────────────────────────────────────────
+      - name: Summary
+        run: |
+          echo "=== rpcs.json       : $(jq length rpcs.json) chains"
+          echo "=== rpcs-faster.json: $(jq length rpcs-faster.json) chains"
+          echo ""
+          echo "Top 5 fastest RPC entries (first chain sample):"
+          jq '.[0] | {name, rpc: .rpc[:5]}' rpcs-faster.json
+
+      # ─── 6. Update news feed ────────────────────────────────────────────────
       - uses: sarisia/actions-readme-feed@v1
         with:
           url: 'https://tilde.news/rss'
           file: 'README.md'
-      
-      # Commit all changes
+
+      # ─── 7. Commit everything ───────────────────────────────────────────────
       - uses: sarisia/actions-commit@master
