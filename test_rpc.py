@@ -1,19 +1,25 @@
-import json, asyncio, time, sys
+import json, asyncio, time
 import aiohttp
 
-TIMEOUT      = 5      # seconds per request
-CONCURRENCY  = 100    # parallel requests at once
-ETH_PAYLOAD  = json.dumps({
+# ── Config ──────────────────────────────────────────────────────────
+TIMEOUT     = 5      # seconds to wait per endpoint
+CONCURRENCY = 150    # max parallel requests
+
+ETH_PAYLOAD = json.dumps({
     "jsonrpc": "2.0",
     "method":  "eth_blockNumber",
     "params":  [],
     "id":      1
-})
+}).encode()
 
-async def ping_rpc(session, url, sem):
-    """Return (url, latency_ms) or (url, None) if dead."""
-    if not url.startswith("http"):
-        return url, None          # skip wss / non-http
+# ── Ping a single URL ────────────────────────────────────────────────
+async def ping(session, url: str, sem: asyncio.Semaphore):
+    """
+    Returns latency in ms if alive, or None if dead / non-HTTP.
+    Skips wss:// and any non-http scheme.
+    """
+    if not url.startswith("http://") and not url.startswith("https://"):
+        return None
     async with sem:
         try:
             t0 = time.monotonic()
@@ -24,61 +30,84 @@ async def ping_rpc(session, url, sem):
                 timeout=aiohttp.ClientTimeout(total=TIMEOUT)
             ) as resp:
                 body = await resp.json(content_type=None)
+                # Valid JSON-RPC response must have "result" or "error"
                 if "result" in body or "error" in body:
-                    ms = (time.monotonic() - t0) * 1000
-                    return url, round(ms, 1)
-                return url, None
+                    return round((time.monotonic() - t0) * 1000, 1)
+                return None
         except Exception:
-            return url, None
+            return None
 
-async def test_chain(session, chain, sem):
-    """Test every rpc in a chain; return chain with only live rpcs sorted by speed."""
-    rpcs = chain.get("rpc", [])
-    tasks = []
-    for entry in rpcs:
-        # rpc entries can be plain strings OR objects {"url": ..., ...}
-        url = entry if isinstance(entry, str) else entry.get("url", "")
-        tasks.append(ping_rpc(session, url, sem))
+# ── Test one chain ───────────────────────────────────────────────────
+async def test_chain(session, chain: dict, sem: asyncio.Semaphore):
+    """
+    Pings every rpc entry.
+    Input  entry shape : { "url": "https://...", ...otherFields }
+    Output entry shape : { "url": "https://...", ...otherFields }  ← identical, no extra keys
+    Dead endpoints are dropped; live ones sorted fastest → slowest.
+    """
+    rpc_entries = chain.get("rpc", [])
 
-    results = await asyncio.gather(*tasks)
-    latency_map = {url: ms for url, ms in results if ms is not None}
+    # Normalise every entry to (url_string, original_entry_as_dict)
+    normalised = []
+    for entry in rpc_entries:
+        if isinstance(entry, dict):
+            normalised.append((entry.get("url", ""), entry))
+        elif isinstance(entry, str):
+            # Wrap bare string → object to match target structure
+            normalised.append((entry, {"url": entry}))
+        else:
+            normalised.append(("", {}))
 
-    # Rebuild rpc list: keep only live, sorted fastest first
-    live_rpcs = []
-    for entry in rpcs:
-        url = entry if isinstance(entry, str) else entry.get("url", "")
-        if url in latency_map:
-            # attach latency metadata if entry is an object
-            if isinstance(entry, dict):
-                entry = {**entry, "_latencyMs": latency_map[url]}
-            live_rpcs.append((latency_map[url], entry))
+    # Ping all URLs concurrently
+    latencies = await asyncio.gather(
+        *[ping(session, url, sem) for url, _ in normalised]
+    )
 
-    live_rpcs.sort(key=lambda x: x[0])
-    chain["rpc"] = [e for _, e in live_rpcs]
-    return chain, len(live_rpcs)
+    # Keep only live entries, sorted by latency
+    live = sorted(
+        [
+            (ms, dict(entry_obj))          # copy so we don't mutate original
+            for (_, entry_obj), ms in zip(normalised, latencies)
+            if ms is not None
+        ],
+        key=lambda x: x[0]                 # sort fastest first
+    )
 
+    chain_out = dict(chain)                 # shallow copy — preserves all top-level fields
+    chain_out["rpc"] = [obj for _, obj in live]   # clean entries, no latency key injected
+
+    return chain_out, len(live)
+
+# ── Main ─────────────────────────────────────────────────────────────
 async def main():
-    with open("rpcs.json") as f:
+    with open("rpcs.json", encoding="utf-8") as f:
         chains = json.load(f)
 
-    sem = asyncio.Semaphore(CONCURRENCY)
+    print(f"Loaded {len(chains)} chains from rpcs.json", flush=True)
+
+    sem       = asyncio.Semaphore(CONCURRENCY)
     connector = aiohttp.TCPConnector(limit=CONCURRENCY, ssl=False)
 
-    print(f"Testing {len(chains)} chains …", flush=True)
     async with aiohttp.ClientSession(connector=connector) as session:
-        tasks = [test_chain(session, chain, sem) for chain in chains]
-        results = await asyncio.gather(*tasks)
+        results = await asyncio.gather(
+            *[test_chain(session, chain, sem) for chain in chains]
+        )
 
-    # Keep chains that still have at least one live RPC
-    faster = [chain for chain, live in results if live > 0]
-    dead   = [chain for chain, live in results if live == 0]
+    alive, dead = [], []
+    for chain, live_count in results:
+        (alive if live_count > 0 else dead).append(chain)
 
-    print(f"Chains with live RPCs : {len(faster)}")
-    print(f"Chains with no live RPCs (dropped): {len(dead)}")
+    print(f"\n✅  Chains with live RPCs       : {len(alive)}")
+    print(f"❌  Chains fully dead (dropped) : {len(dead)}")
+    if dead:
+        names = [c.get("name", "?") for c in dead]
+        print("    Dropped:", ", ".join(names[:10]),
+              ("…" if len(names) > 10 else ""))
 
-    with open("rpcs-faster.json", "w") as f:
-        json.dump(faster, f, separators=(",", ":"))
+    # Output structure identical to rpcs.json
+    with open("rpcs-faster.json", "w", encoding="utf-8") as f:
+        json.dump(alive, f, ensure_ascii=False, separators=(",", ":"))
 
-    print("Saved rpcs-faster.json ✓")
+    print("\n💾  Saved rpcs-faster.json ✓")
 
 asyncio.run(main())
