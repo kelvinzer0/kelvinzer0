@@ -58,6 +58,12 @@ async def test_chain(session, chain: dict, sem: asyncio.Semaphore):
         else:
             normalised.append(("", {}))
 
+    # Filter out Cloudflare endpoints
+    normalised = [
+        (url, entry) for url, entry in normalised
+        if "cloudflare" not in url.lower()
+    ]
+
     # Ping all URLs concurrently
     latencies = await asyncio.gather(
         *[ping(session, url, sem) for url, _ in normalised]
