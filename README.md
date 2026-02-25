@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 25 - [Interview with Øyvind Kolås, GIMP developer](https://www.gimp.org/news/2026/02/22/%C3%B8yvind-kol%C3%A5s-interview-ww2017/)
 - Feb 25 - [[PicoIDE] Testing, Testing, Testing](https://www.crowdsupply.com/polpotronics/picoide/updates/testing-testing-testing)
 - Feb 24 - [The Gentrification of Video Game History](https://scribe.rip/@felipepepe/the-gentrification-of-video-game-history-dfe11f1e08ae)
 - Feb 23 - [Open Source Hardware Camp 2026 CFP — Sat 29/08 & Sun 30/08, Hebden Bridge, UK](https://lists.oshug.org/hyperkitty/list/oshug-announce@oshug.org/thread/JWKEEH6FMTNQFYC3ZFJE5CLFKU4CTEVQ/)
 - Feb 23 - [memoji.it - Memory Game](https://memoj.it)
-- Feb 21 - [IBM Laptop harddisk password bypass (2005)](https://marc.info/?l=full-disclosure&m=111234041830357)
 <!-- feed end -->
 
 ---
