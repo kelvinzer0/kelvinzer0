@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Feb 27 - [Welcome to MARCHintosh](https://marchintosh.com)
 - Feb 27 - [How the War Department Learned to Stop Worrying and Love AI](https://www.buzzsprout.com/2126417/episodes/18749317-how-the-war-department-learned-to-stop-worrying-and-love-ai-with-naomi-klein-2026-02-09)
 - Feb 26 - [The MOST Broken Computer? The 1986 Sinclair Spectrum+2 (2024)](https://www.youtube.com/watch?v=ocpDG2O3H6o)
 - Feb 25 - [Interview with Øyvind Kolås, GIMP developer](https://www.gimp.org/news/2026/02/22/%C3%B8yvind-kol%C3%A5s-interview-ww2017/)
 - Feb 25 - [[PicoIDE] Testing, Testing, Testing](https://www.crowdsupply.com/polpotronics/picoide/updates/testing-testing-testing)
-- Feb 24 - [The Gentrification of Video Game History](https://scribe.rip/@felipepepe/the-gentrification-of-video-game-history-dfe11f1e08ae)
 <!-- feed end -->
 
 ---
