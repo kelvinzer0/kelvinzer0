@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 01 - [Teleprinter](http://notebook.zoeblade.com/Teleprinter.html)
 - Feb 28 - [A Day in the Life of an Ensh*ttificator](http://youtube.com/watch?v=T4Upf_B9RLQ)
 - Feb 28 - [Ordered Dithering with Arbitrary or Irregular Colour Palettes](https://matejlou.blog/2023/12/06/ordered-dithering-for-arbitrary-or-irregular-palettes/)
 - Feb 27 - [Welcome to MARCHintosh](https://marchintosh.com)
 - Feb 27 - [How the War Department Learned to Stop Worrying and Love AI](https://www.buzzsprout.com/2126417/episodes/18749317-how-the-war-department-learned-to-stop-worrying-and-love-ai-with-naomi-klein-2026-02-09)
-- Feb 26 - [The MOST Broken Computer? The 1986 Sinclair Spectrum+2 (2024)](https://www.youtube.com/watch?v=ocpDG2O3H6o)
 <!-- feed end -->
 
 ---
