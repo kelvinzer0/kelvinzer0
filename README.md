@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 02 - [MALUS - An LLM clean room implementation of any open source dependency](https://malus.sh/blog.html)
 - Mar 01 - [openzfsonwindows/openzfs - Release zfs-windows-2.4.1rc3](https://github.com/openzfsonwindows/openzfs/releases/tag/zfswin-2.4.1rc3)
 - Mar 01 - [Teleprinter](http://notebook.zoeblade.com/Teleprinter.html)
 - Feb 28 - [A Day in the Life of an Ensh*ttificator](http://youtube.com/watch?v=T4Upf_B9RLQ)
 - Feb 28 - [Ordered Dithering with Arbitrary or Irregular Colour Palettes](https://matejlou.blog/2023/12/06/ordered-dithering-for-arbitrary-or-irregular-palettes/)
-- Feb 27 - [Welcome to MARCHintosh](https://marchintosh.com)
 <!-- feed end -->
 
 ---
