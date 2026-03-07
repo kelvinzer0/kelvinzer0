@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 07 - [OverTheWire: Wargames](https://overthewire.org/wargames/)
 - Mar 07 - [Restoring a Sun SPARCstation IPX Part 1: PSU and NVRAM (2020)](https://www.rs-online.com/designspark/restoring-a-sun-sparcstation-ipx-part-1-psu-and-nvram)
 - Mar 04 - [Composting Mobile Phones - Hosting server on obsolete mobile phones](https://wiki.comphost.club/)
 - Mar 02 - [MALUS - An LLM clean room implementation of any open source dependency](https://malus.sh/blog.html)
 - Mar 01 - [openzfsonwindows/openzfs - Release zfs-windows-2.4.1rc3](https://github.com/openzfsonwindows/openzfs/releases/tag/zfswin-2.4.1rc3)
-- Mar 01 - [Teleprinter](http://notebook.zoeblade.com/Teleprinter.html)
 <!-- feed end -->
 
 ---
