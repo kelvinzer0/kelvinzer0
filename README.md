@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 11 - [SAVING a 30-year old Sun workstation! (2023)](https://www.youtube.com/watch?v=SMz2y-wdbzs)
 - Mar 09 - [sparccord: Discord client for Solaris 7 SPARC - native Motif/CDE application](https://github.com/firefly128/sparccord)
 - Mar 08 - [System76 on Age Verification Laws](https://blog.system76.com/post/system76-on-age-verification)
 - Mar 07 - [OverTheWire: Wargames](https://overthewire.org/wargames/)
 - Mar 07 - [Restoring a Sun SPARCstation IPX Part 1: PSU and NVRAM (2020)](https://www.rs-online.com/designspark/restoring-a-sun-sparcstation-ipx-part-1-psu-and-nvram)
-- Mar 04 - [Composting Mobile Phones - Hosting server on obsolete mobile phones](https://wiki.comphost.club/)
 <!-- feed end -->
 
 ---
