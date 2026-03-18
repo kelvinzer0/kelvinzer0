@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 18 - [Data Centers in Space!? (with Dr. Adam Becker), 2026.03.02](https://www.buzzsprout.com/2126417/episodes/18844094)
 - Mar 16 - [Game of Trees Hub](https://gothub.org/)
 - Mar 15 - [Recapping an Xserve G5 PSU](https://www.youtube.com/watch?v=kFnvZ4NWr00)
 - Mar 13 - [No More Paperweight: This Vintage Brick Phone Is Back Online](https://hackaday.com/2026/03/13/no-more-paperweight-this-vintage-brick-phone-is-back-online/)
 - Mar 13 - [Meta Platforms: Lobbying, Dark Money, and the App Store Accountability Act](https://github.com/upper-up/meta-lobbying-and-other-findings)
-- Mar 11 - [SAVING a 30-year old Sun workstation! (2023)](https://www.youtube.com/watch?v=SMz2y-wdbzs)
 <!-- feed end -->
 
 ---
