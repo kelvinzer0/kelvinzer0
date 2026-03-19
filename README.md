@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 19 - [The two worlds of programming: why developers who make the same observations about LLMs come to opposite conclusions](https://www.baldurbjarnason.com/2026/the-two-worlds-of-programming/)
 - Mar 18 - [NeXTWorld Interviews Bud Tribble, One of the NeXT Founders (1994)](https://computeradsfromthepast.substack.com/p/nextworld-interviews-bud-tribble)
 - Mar 18 - [Lagrange v1.20: SOCKS5, Handheld Port, Gamepads, UI/Audio Improvements](https://gmi.skyjake.fi/gemlog/2026-03_lagrange-1.20.gmi)
 - Mar 18 - [Data Centers in Space!? (with Dr. Adam Becker), 2026.03.02](https://www.buzzsprout.com/2126417/episodes/18844094)
 - Mar 16 - [Game of Trees Hub](https://gothub.org/)
-- Mar 15 - [Recapping an Xserve G5 PSU](https://www.youtube.com/watch?v=kFnvZ4NWr00)
 <!-- feed end -->
 
 ---
