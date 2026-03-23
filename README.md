@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 23 - [Announcing Guile Knots](https://www.cbaines.net/posts/announcing_guile_knots/)
 - Mar 23 - [BasicBox: A 486-class PC emulator written entirely in Visual Basic 6](https://github.com/mikechambers84/BasicBox)
 - Mar 20 - [The Social Smolnet](https://ploum.net/2026-03-20-social-smolnet.html)
 - Mar 19 - [The two worlds of programming: why developers who make the same observations about LLMs come to opposite conclusions](https://www.baldurbjarnason.com/2026/the-two-worlds-of-programming/)
 - Mar 18 - [NeXTWorld Interviews Bud Tribble, One of the NeXT Founders (1994)](https://computeradsfromthepast.substack.com/p/nextworld-interviews-bud-tribble)
-- Mar 18 - [Lagrange v1.20: SOCKS5, Handheld Port, Gamepads, UI/Audio Improvements](https://gmi.skyjake.fi/gemlog/2026-03_lagrange-1.20.gmi)
 <!-- feed end -->
 
 ---
