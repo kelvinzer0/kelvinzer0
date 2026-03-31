@@ -14,8 +14,8 @@
 | 57073 | ETH | Ink |
 | 143 | MON | Monad |
 | 534352 | ETH | Scroll |
-| 25 | CRO | Cronos Mainnet |
 | 14 | FLR | Flare Mainnet |
+| 25 | CRO | Cronos Mainnet |
 | 10 | ETH | OP Mainnet |
 | 80094 | Berachain | Berachain |
 | 100 | GNO | Gnosis |
@@ -26,11 +26,11 @@
 | 200901 | Bitlayer | Bitlayer Mainnet |
 | 2222 | KAVA | Kava |
 | 222222 | HDX | Hydration |
-| 130 | ETH | Unichain |
 | 2649 | AILayer | AILayer Mainnet |
+| 130 | ETH | Unichain |
+| 146 | sonic | Sonic Mainnet |
 | 43111 | ETH | Hemi |
 | 1329 | Sei | Sei Network |
-| 146 | sonic | Sonic Mainnet |
 | 5064014 | Ethereal | Ethereal Mainnet |
 | 369 | PLS | PulseChain |
 | 252 | FRAX | Fraxtal |
@@ -39,13 +39,13 @@
 | 81457 | ETH | Blast |
 | 42220 | CELO | Celo Mainnet |
 | 42793 | Etherlink | Etherlink Mainnet |
-| 8217 | KAIA | Kaia Mainnet |
 | 996 | Bifrost | Bifrost Polkadot Mainnet |
 | 196 | X Layer | X Layer Mainnet |
-| 1116 | Core | Core Blockchain Mainnet |
-| 747 | Flow | Flow EVM Mainnet |
+| 8217 | KAIA | Kaia Mainnet |
+| 1666600000 | Harmony | Harmony Mainnet Shard 0 |
 | 324 | ETH | zkSync Mainnet |
 | 31612 | Mezo | Mezo |
+| 747 | Flow | Flow EVM Mainnet |
 | 1729 | Reya | Reya Network |
 | 2741 | Abstract | Abstract |
 | 2020 | RON | Ronin |
@@ -54,27 +54,28 @@
 | 570 | SYS | Rollux Mainnet |
 | 13371 | Immutable zkEVM | Immutable zkEVM |
 | 388 | CronosZkEVMMainnet | Cronos zkEVM Mainnet |
+| 1868 | ETH | Soneium |
 | 50 | XDC | XDC Network |
 | 169 | Manta Pacific | Manta Pacific Mainnet |
-| 1868 | ETH | Soneium |
-| 239 | TAC | TAC Mainnet |
 | 250 | FTM | Fantom Opera |
+| 239 | TAC | TAC Mainnet |
 | 2818 | ETH | Morph |
 | 1088 | ETH | Metis Andromeda Mainnet |
 | 167000 | ETH | Taiko Alethia |
 | 3637 | BOTANIX | Botanix Mainnet |
+| 1116 | Core | Core Blockchain Mainnet |
 | 6900 | Nibiru | Nibiru cataclysm-1 |
+| 88888 | CHZ | Chiliz Chain |
 | 592 | ASTR | Astar |
 | 1313161554 | NEAR | Aurora Mainnet |
-| 88888 | CHZ | Chiliz Chain |
 | 4689 | iotex.io | IoTeX Network Mainnet |
 | 7700 | Canto | Canto |
 | 34443 | ETH | Mode |
 | 888 | WAN | Wanchain |
 | 50104 | Sophon | Sophon |
-| 105105 | Xertra | Xertra Mainnet |
-| 10088 | GT | Gate Layer |
 | 1625 | Gravity | Gravity Alpha Mainnet |
+| 10088 | GT | Gate Layer |
+| 105105 | Xertra | Xertra Mainnet |
 | 33139 | apechain | ApeChain |
 | 288 | ETH | Boba Network |
 | 40 | TLOS | Telos EVM Mainnet |
@@ -82,108 +83,107 @@
 | 1284 | MOON | Moonbeam |
 | 1285 | MOON | Moonriver |
 | 204 | opBNB | opBNB Mainnet |
-| 9999999 | Fluence | Fluence |
 | 1923 | ETH | Swellchain |
 | 4114 | Citrea | Citrea Mainnet |
-| 2345 | GOAT | GOAT Network |
-| 1101 | Polygon | Polygon zkEVM |
+| 432204 | DEXALOT | Dexalot Subnet |
 | 8822 | IOTA EVM | IOTA EVM |
+| 2345 | GOAT | GOAT Network |
 | 66 | okxchain | OKXChain Mainnet |
 | 5031 | SOMNIA | Somnia Mainnet |
-| 432204 | DEXALOT | Dexalot Subnet |
 | 41923 | EDU Chain | EDU Chain |
 | 88 | Viction | Viction |
-| 7000 | ZetaChain | ZetaChain Mainnet |
 | 4337 | BEAM | Beam |
+| 7000 | ZetaChain | ZetaChain Mainnet |
 | 1135 | ETH | Lisk |
 | 2000 | DC | Dogechain Mainnet |
-| 23294 | Sapphire | Oasis Sapphire |
 | 321 | KCC | KCC Mainnet |
+| 23294 | Sapphire | Oasis Sapphire |
 | 122 | FUSE | Fuse Mainnet |
 | 53935 | DFK | DFK Chain |
 | 18888 | Titan (TKX) | Titan (TKX) |
 | 777777 | WINR | Winr Protocol Mainnet |
 | 8668 | Hela | Hela Official Runtime Mainnet |
+| 1101 | Polygon | Polygon zkEVM |
 | 6001 | BounceBit | BounceBit Mainnet |
-| 3338 | peaq | peaq |
 | 8008 | Polynomial | Polynomial |
 | 32769 | ZIL | Zilliqa 2 |
+| 3338 | peaq | peaq |
 | 9790 | Carbon | Carbon EVM |
 | 97477 | ETH | Doma |
 | 42 | LUKSO | LUKSO Mainnet |
-| 52 | CSC | CoinEx Smart Chain Mainnet |
-| 16661 | 0G | 0G Mainnet |
-| 42170 | ETH | Arbitrum Nova |
-| 361 | Theta | Theta Mainnet |
-| 1890 | Lightlink Phoenix Mainnet | Lightlink Phoenix Mainnet |
-| 199 | BTTC | BitTorrent Chain Mainnet |
-| 1666600000 | Harmony | Harmony Mainnet Shard 0 |
 | 82 | METER | Meter Mainnet |
+| 52 | CSC | CoinEx Smart Chain Mainnet |
+| 42170 | ETH | Arbitrum Nova |
+| 16661 | 0G | 0G Mainnet |
+| 1890 | Lightlink Phoenix Mainnet | Lightlink Phoenix Mainnet |
+| 361 | Theta | Theta Mainnet |
+| 199 | BTTC | BitTorrent Chain Mainnet |
 | 248 | Oasys | Oasys Mainnet |
-| 1975 | onus | ONUS Chain Mainnet |
 | 108 | TT | ThunderCore Mainnet |
+| 1975 | onus | ONUS Chain Mainnet |
 | 20 | ETH | Elastos Smart Chain |
 | 153153 | DIONE | Odyssey Chain Mainnet |
 | 9001 | Evmos | Evmos |
-| 106 | Velas | Velas EVM Mainnet |
+| 9999999 | Fluence | Fluence |
 | 42262 | Emerald | Oasis Emerald |
+| 106 | Velas | Velas EVM Mainnet |
 | 1231 | Ultron | Ultron Mainnet |
 | 19 | SGB | Songbird Canary-Network |
 | 1100 | Dymension | Dymension |
-| 1990 | QIEV3 | QIEMainnet |
 | 39797 | NRG | Energi Mainnet |
 | 232 | Lens | Lens |
 | 128 | Heco | Huobi ECO Chain Mainnet |
 | 245022934 | Solana | Neon EVM Mainnet |
+| 246 | Energy Web Chain | Energy Web Chain |
 | 7225878 | Saakuru | Saakuru Mainnet |
-| 21000000 | BTCN | Corn |
 | 5330 | ETH | Superseed |
 | 42766 | ZKFair | ZKFair Mainnet |
-| 246 | Energy Web Chain | Energy Web Chain |
+| 21000000 | BTCN | Corn |
 | 1 | ETC | Ethereum Classic |
 | 360 | ETH | Shape |
 | 71402 | GWT | Godwoken Mainnet |
 | 5551 | Nahmii | Nahmii 2 Mainnet |
 | 10000 | smartBCH | Smart Bitcoin Cash |
+| 4488 | HYDRA | Hydra Chain |
 | 2152 | Findora | Findora Mainnet |
 | 4158 | crossfi | CrossFi Mainnet |
 | 7777777 | ETH | Zora |
-| 185 | ETH | Mint Mainnet |
 | 888888888 | Ancient8 | Ancient8 |
 | 690 | ETH | Redstone |
 | 97741 | PEPU | PEPE Unchained |
-| 1234 | STEP | Step Network |
 | 15551 | LoopNetwork | LoopNetwork Mainnet |
-| 648 | ACE | Endurance Smart Chain Mainnet |
 | 336 | SDN | Shiden |
-| 4488 | HYDRA | Hydra Chain |
+| 648 | ACE | Endurance Smart Chain Mainnet |
+| 1234 | STEP | Step Network |
 | 3776 | ETH | Astar zkEVM |
 | 2716446429837000 | dchainmainnet | DCHAIN |
 | 698 | Matchain | Matchain |
+| 1990 | QIEV3 | QIEMainnet |
 | 6969 | Tomb Chain | Tomb Chain Mainnet |
 | 225 | LA | LACHAIN Mainnet |
-| 311 | OMAX Chain | Omax Mainnet |
 | 322202 | Parex | Parex Mainnet |
+| 311 | OMAX Chain | Omax Mainnet |
 | 207 | VinuChain | VinuChain Network |
-| 3721 | XOC | Xone Mainnet |
 | 1380012617 | RARI | RARI Chain |
-| 18686 | MXC zkEVM | MXC zkEVM Moonchain |
+| 3721 | XOC | Xone Mainnet |
 | 8811 | haven1 | Haven1 |
 | 8899 | JBC | JIBCHAIN L1 |
 | 2355 | Silicon | Silicon zkEVM |
 | 478 | form | Form Network |
 | 7070 | Planq | Planq Mainnet |
 | 60 | GO | GoChain |
+| 185 | ETH | Mint Mainnet |
 | 46 | darwinia | Darwinia Network |
 | 1 | CLO | Callisto Mainnet |
 | 420420419 | DOT | Polkadot |
 | 5112 | Ham | Ham |
+| 58 | Ontology | Ontology Mainnet |
 | 254 | SWAN | Swan Chain Mainnet |
 | 44 | crab | Crab Network |
-| 58 | Ontology | Ontology Mainnet |
 | 55555 | REI | REI Chain Mainnet |
 | 47805 | REI | REI Network |
 | 1907 | BITCI | Bitcichain Mainnet |
+| 18686 | MXC zkEVM | MXC zkEVM Moonchain |
 | 11297108109 | Palm | Palm |
 | 17777 | EOS | EOS EVM Network |
 | 81 | JOC | Japan Open Chain Mainnet |
@@ -373,6 +373,7 @@
 | 614 | GLQ Blockchain | Graphlinq Blockchain Mainnet |
 | 619 | Skynet | Skynet |
 | 624 | The Binary Holdings | Binary Mainnet |
+| 626 | ETH | BattleChain Mainnet |
 | 632 | NFB Chain | NFB Chain |
 | 634 | Avocado | Avocado |
 | 662 | AmaxSmartchain | AmaxSmartchain |
@@ -1075,6 +1076,7 @@
 | 72992 | Grok | Grok Chain Mainnet |
 | 73115 | ICB | ICB Network |
 | 73285 | NEBULA | Nebula |
+| 73790 | NVC | NV-CHAIN |
 | 73927 | MVM | Mixin Virtual Machine |
 | 75000 | RESIN | ResinCoin Mainnet |
 | 75512 | GEEK | GEEK Verse Mainnet |
@@ -1241,6 +1243,7 @@
 | 710420 | TILTYARD | Tiltyard Mainnet Subnet |
 | 715131 | Zether | Zether Mainnet |
 | 721529 | ERAM | ERAM Mainnet |
+| 723487 | RADIUS | Radius Network |
 | 7502025 | Ternoa | Ternoa |
 | 756689 | PAYSCAN CHAIN | PAYSCAN CHAIN |
 | 761412 | MiexsSmartchain | Miexs Smartchain |
@@ -1387,6 +1390,7 @@
 | 1125 | Taker | Taker Chain Mainnet |
 | 1143 | ION | ION Network |
 | 1155 | INTUITION | Intuition Mainnet |
+| 1191 | JOA | JOA Chain |
 | 1199 | BMC | BMC Chain |
 | 12000 | KUD | Kudora Mainnet |
 | 1213549903 | MIRASMANDA | Mirasmanda |
@@ -1503,6 +1507,7 @@
 | 484 | CAMP | Camp Network Mainnet |
 | 4936 | PROD | Prodao Mainnet |
 | 50024 | BitBadges | BitBadges |
+| 505 | DOTO | DotOne Smart Chain |
 | 509 | BTB | BTB Chain Mainnet |
 | 510 | Syndicate | Syndicate Mainnet |
 | 510003 | Commons | Syndicate Commons |
@@ -1538,6 +1543,7 @@
 | 7131 | VRCN | VRCN Chain Mainnet |
 | 737373 | CX | CX Chain Mainnet |
 | 757 | CAPX | CAPX |
+| 7575757 | NVM | NovaMoney |
 | 7667 | CARR | CarrChain Mainnet |
 | 770 | QELT | QELT Mainnet |
 | 777178 | MakaChain | MakaChain Mainnet |
@@ -1588,8 +1594,8 @@
 | 763373 | ETH | Ink Sepolia |
 | 10143 | MON | Monad Testnet |
 | 534351 | ETH | Scroll Sepolia Testnet |
-| 338 | CRO | Cronos Testnet |
 | 114 | FLR | Flare Testnet Coston2 |
+| 338 | CRO | Cronos Testnet |
 | 11155420 | ETH | OP Sepolia Testnet |
 | 59140 | ETH | Linea Goerli |
 | 59141 | ETH | Linea Sepolia |
@@ -1598,10 +1604,10 @@
 | 31 | Rootstock | Rootstock Testnet |
 | 200810 | Bitlayer | Bitlayer Testnet |
 | 2221 | KAVA | Kava Testnet |
-| 1301 | ETH | Unichain Sepolia Testnet |
 | 2648 | AILayer | AILayer Testnet |
-| 743111 | ETH | Hemi Sepolia |
+| 1301 | ETH | Unichain Sepolia Testnet |
 | 14601 | sonic-testnet | Sonic Testnet |
+| 743111 | ETH | Hemi Sepolia |
 | 13374202 | Ethereal | Ethereal Testnet |
 | 943 | t4PLS | PulseChain Testnet v4 |
 | 2523 | FRAX | Fraxtal Hoodi Testnet |
@@ -1611,20 +1617,20 @@
 | 11142220 | CELO | Celo Sepolia Testnet |
 | 195 | X Layer | X Layer Testnet |
 | 1952 | X Layer | X Layer Testnet |
-| 1115 | Core | Core Blockchain Testnet |
-| 545 | Flow | Flow EVM Testnet |
 | 300 | ETH | zkSync Sepolia Testnet |
 | 31611 | Mezo Testnet | Mezo Testnet |
+| 545 | Flow | Flow EVM Testnet |
 | 11124 | Abstract Sepolia Testnet | Abstract Sepolia Testnet |
 | 57000 | SYS | Rollux Testnet |
 | 13473 | Immutable zkEVM | Immutable zkEVM Testnet |
 | 240 | CronosZkEVMTestnet | Cronos zkEVM Testnet |
+| 1946 | ETH | Soneium Testnet Minato |
 | 3441005 | Manta Pacific | Manta Pacific Testnet |
 | 3441006 | Manta Pacific | Manta Pacific Sepolia Testnet |
-| 1946 | ETH | Soneium Testnet Minato |
 | 2710 | ETH | Morph Testnet |
 | 2910 | ETH | Morph Hoodi |
 | 3636 | BOTANIX | Botanix Testnet |
+| 1115 | Core | Core Blockchain Testnet |
 | 1313161555 | NEAR | Aurora Testnet |
 | 4690 | iotex.io | IoTeX Network Testnet |
 | 919 | ETH | Mode Testnet |
@@ -1633,65 +1639,65 @@
 | 41 | TLOS | Telos EVM Testnet |
 | 25925 | KUB | KUB Testnet |
 | 5611 | opBNB | opBNB Testnet |
-| 52164803 | Fluence Testnet | Fluence Testnet |
 | 1924 | ETH | Swellchain Testnet |
 | 5115 | Citrea | Citrea Testnet |
-| 1442 | Polygon | Polygon zkEVM Testnet |
+| 432201 | DEXALOT | Dexalot Subnet Testnet |
 | 1075 | IOTA EVM | IOTA EVM Testnet |
 | 50312 | Somnia | Somnia Testnet |
-| 432201 | DEXALOT | Dexalot Subnet Testnet |
 | 656476 | EDU Chain Testnet | EDU Chain Testnet |
 | 89 | Viction | Viction Testnet |
-| 7001 | ZetaChain | ZetaChain Testnet |
 | 13337 | BEAM | Beam Testnet |
+| 7001 | ZetaChain | ZetaChain Testnet |
 | 4202 | ETH | Lisk Sepolia Testnet |
 | 568 | DC | Dogechain Testnet |
-| 23295 | Sapphire | Oasis Sapphire Testnet |
 | 322 | KCC | KCC Testnet |
+| 23295 | Sapphire | Oasis Sapphire Testnet |
 | 12001 | Fuse | Fuse Testnet |
 | 18889 | Titan (TKX) | Titan (TKX) Testnet |
 | 66666666 | WINR | Winr Protocol Testnet |
 | 666888 | Hela | Hela Official Runtime Testnet |
+| 1442 | Polygon | Polygon zkEVM Testnet |
 | 6000 | BounceBit | BounceBit Testnet |
 | 80008 | polynomialSepolia | Polynomial Sepolia |
 | 33101 | ZIL | Zilliqa 2 Testnet |
 | 9792 | Carbon | Carbon EVM Testnet |
 | 97476 | ETH | Doma Testnet |
 | 4201 | LUKSO Testnet | LUKSO Testnet |
+| 83 | METER Testnet | Meter Testnet |
 | 53 | CSC | CoinEx Smart Chain Testnet |
 | 365 | Theta | Theta Testnet |
-| 83 | METER Testnet | Meter Testnet |
 | 9372 | Oasys | Oasys Testnet |
-| 1945 | onus | ONUS Chain Testnet |
 | 18 | TST | ThunderCore Testnet |
+| 1945 | onus | ONUS Chain Testnet |
 | 21 | ETH | Elastos Smart Chain Testnet |
 | 9000 | Evmos | Evmos Testnet |
+| 52164803 | Fluence Testnet | Fluence Testnet |
 | 42261 | Emerald | Oasis Emerald Testnet |
 | 1230 | Ultron | Ultron Testnet |
 | 49797 | NRG | Energi Testnet |
 | 37111 | Lens | Lens Testnet |
 | 256 | Heco | Huobi ECO Chain Testnet |
 | 247253 | Saakuru | Saakuru Testnet |
-| 21000001 | BTCN | Corn Testnet |
 | 53302 | ETH | Superseed Sepolia Testnet |
 | 43851 | ETH | ZKFair Testnet |
+| 21000001 | BTCN | Corn Testnet |
 | 11011 | ETH | Shape Sepolia Testnet |
 | 71401 | GWT | Godwoken Testnet v1 |
+| 8844 | HYDRA | Hydra Chain Testnet |
 | 2153 | Testnet-anvil | Findora Testnet |
 | 4157 | XFI | CrossFi Testnet |
 | 999999999 | ETH | Zora Sepolia Testnet |
-| 1687 | ETH | Mint Sepolia Testnet |
 | 28122024 | Ancient8 | Ancient8 Testnet |
-| 8844 | HYDRA | Hydra Chain Testnet |
 | 2713017997578000 | dchaint | DCHAIN Testnet |
 | 699 | Matchain | Matchain Testnet |
 | 226 | TLA | LACHAIN Testnet |
 | 332 | Omax Chain | Omax Testnet |
-| 33772211 | XOC | Xone Testnet |
 | 1918988905 | RARI | RARI Chain Testnet |
+| 33772211 | XOC | Xone Testnet |
 | 810 | haven1 | Haven1 Testnet |
 | 1722641160 | Silicon | Silicon zkEVM Sepolia Testnet |
 | 31337 | GO | GoChain Testnet |
+| 1687 | ETH | Mint Sepolia Testnet |
 | 79 | CLO | Callisto Testnet |
 | 420420417 | PAS | Polkadot Testnet |
 | 5851 | Ontology | Ontology Testnet |
@@ -2023,7 +2029,7 @@
 | 6118 | UPTN | UPTN Testnet |
 | 6320 | NFB Chain Testnet | NFB Chain Testnet |
 | 6321 | Aura | Aura Euphoria Testnet |
-| 6342 | ETH | MegaETH Testnet |
+| 6343 | ETH | MegaETH Testnet |
 | 6398 | Connext Sepolia | Connext Sepolia |
 | 6550 | Flamma | Flamma Testnet |
 | 6552 | SCOLWEI-testnet | Scolcoin WeiChain Testnet |
@@ -2256,6 +2262,7 @@
 | 69420 | ETH | Condrieu |
 | 1 | CKB | Polyjuice Testnet |
 | 72080 | Nexera | Nexera Testnet |
+| 72344 | RADIUS | Radius Test Network |
 | 72778 | Ankara | CAGA crypto Ankara testnet |
 | 73114 | ICBT | ICB Testnet |
 | 73799 | Volta | Energy Web Volta Testnet |
@@ -2273,6 +2280,7 @@
 | 81351 | MEER | Flana Testnet |
 | 81361 | MEER | Mizana Testnet |
 | 82459 | SLN | Smart Layer Network Testnet |
+| 82716 | PYLUN | Pylun Testnet |
 | 83144 | Xprotocol Testnet | Xprotocol Testnet |
 | 83868 | Xprotocol Sepolia | Xprotocol Sepolia |
 | 85321 | GDPR | GDPR Testnet |
@@ -2612,6 +2620,7 @@
 | 40204 | CITRATE | Citrate Testnet |
 | 42079 | rootVX | rootVX testnet |
 | 421018001 | INFINITE | Infinite Improbability Drive Testnet |
+| 4221 | GenLayer | GenLayer Testnets |
 | 4227 | Hashfire Testnet | Hashfire Testnet |
 | 42429 | Tempo Testnet | Tempo Testnet |
 | 4442 | DEN | Denergy Testnet |
@@ -2631,6 +2640,7 @@
 | 5900 | TBURN | TBURN Testnet |
 | 612044 | TCROSS | CROSS Testnet |
 | 6163 | BLOCKMAZE | Blockmaze Testnet |
+| 627 | BattleChain | BattleChain Testnet |
 | 6281971 | DogeOS | DogeOS Chikyū Testnet |
 | 65010004 | AUT | Autonity Bakerloo (Nile) Testnet |
 | 66238 | OMAChain | OMAChain Testnet |
