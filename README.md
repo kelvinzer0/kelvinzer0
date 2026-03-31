@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Mar 31 - [Humble Tech Book Bundle: Linux, the Good Stuff by No Starch](https://www.humblebundle.com/books/linux-good-stuff-no-starch-books)
 - Mar 30 - [Atari ST Tribute](https://atari-st-tribute.blogspot.com)
 - Mar 27 - [E.W.Dijkstra Archive: The Humble Programmer (EWD 340)](https://www.cs.utexas.edu/~EWD/transcriptions/EWD03xx/EWD340.html)
 - Mar 27 - [RFC 406i - The Rejection of Artificially Generated Slop (RAGS)](https://406.fail/)
 - Mar 26 - [A eulogy for Vim](https://drewdevault.com/2026/03/25/2026-03-25-Forking-vim.html)
-- Mar 25 - [Larry Ellison's Superyacht](https://www.youtube.com/watch?v=zCJ5sxpcsNU)
 <!-- feed end -->
 
 ---
