@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Apr 01 - [Script Editing Tool Aids Magic School Lunar Fan Translation](https://www.segasaturnshiro.com/2026/04/01/script-editing-tool-aids-magic-school-lunar-fan-translation/)
 - Apr 01 - [OSHintosh: OSHintosh - an open source 68000 Macintosh](https://github.com/DosFox1/OSHintosh)
 - Apr 01 - [The Gray Device](https://www.youtube.com/watch?v=Z9X3dH5LjrM)
 - Mar 31 - [Humble Tech Book Bundle: Linux, the Good Stuff by No Starch](https://www.humblebundle.com/books/linux-good-stuff-no-starch-books)
 - Mar 30 - [Atari ST Tribute](https://atari-st-tribute.blogspot.com)
-- Mar 27 - [E.W.Dijkstra Archive: The Humble Programmer (EWD 340)](https://www.cs.utexas.edu/~EWD/transcriptions/EWD03xx/EWD340.html)
 <!-- feed end -->
 
 ---
