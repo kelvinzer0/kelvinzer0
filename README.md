@@ -40,11 +40,11 @@ I'm always open to discussions, sharing ideas, or forging new connections. Feel 
 ### Today's News:
 
 <!-- feed start -->
+- Apr 05 - [How an IRC bot spawned the world’s most prolific software](https://www.youtube.com/watch?v=ohzzGy5K9Dk)
 - Apr 05 - [Linux on a Mac (but it's 1999)](https://tinkerbetter.tube/w/68D5MRVprAdfz4Dhmfqs3j)
 - Apr 04 - [Lia's blog - Code is a wedge and programmers are tools](https://lia-sae.net/articles/2026/02/code-is-a-wedge.html)
 - Apr 01 - [Script Editing Tool Aids Magic School Lunar Fan Translation](https://www.segasaturnshiro.com/2026/04/01/script-editing-tool-aids-magic-school-lunar-fan-translation/)
 - Apr 01 - [OSHintosh: OSHintosh - an open source 68000 Macintosh](https://github.com/DosFox1/OSHintosh)
-- Apr 01 - [The Gray Device](https://www.youtube.com/watch?v=Z9X3dH5LjrM)
 <!-- feed end -->
 
 ---
