@@ -28,11 +28,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 
 ## 📊 GitHub Stats
 
-![Commits](https://img.shields.io/github/commit-activity/y/kelvinzer0?label=commits%2Fyear&style=for-the-badge&color=blue)
 ![Followers](https://img.shields.io/github/followers/kelvinzer0?label=followers&style=for-the-badge&color=blue)
 ![Stars](https://img.shields.io/github/stars/kelvinzer0?label=total%20stars&style=for-the-badge&color=blue)
 ![Repos](https://img.shields.io/badge/dynamic/json?url=https://api.github.com/users/kelvinzer0&query=%24.public_repos&label=public%20repos&style=for-the-badge&color=blue)
-![Contributions](https://img.shields.io/github/commit-activity/y/kelvinzer0?label=contributions&style=for-the-badge&color=green)
 
 [![GitHub Streak](https://streak-stats.demolab.com/?user=kelvinzer0&theme=tokyonight&hide_border=true)](https://github.com/kelvinzer0)
 
@@ -51,8 +49,6 @@ I build things that work — from backend systems and APIs to infrastructure and
 
 ![Followers](https://img.shields.io/github/followers/kelvinzer0?style=social)
 ![Stars](https://img.shields.io/github/stars/kelvinzer0?style=social)
-![Forks](https://img.shields.io/github/forks/kelvinzer0?style=social)
-![Watchers](https://img.shields.io/github/watchers/kelvinzer0?style=social)
 ![Views](https://komarev.com/ghpvc/?username=kelvinzer0&color=blue&style=flat-square&label=profile+views)
 
 ---
