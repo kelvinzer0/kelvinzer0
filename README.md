@@ -1,53 +1,50 @@
-# Hello, I'm Kelvin Yuli Andrian! 👋
+# Hey, I'm Kelvin 👋
 
-Welcome to my digital space! I'm a passionate **Software Engineer** who thrives on building and collaborating to create meaningful technological solutions. For me, software development is about solving problems and adding value, and I believe that collaboration is key to achieving great things.
+Full-Stack Developer · DevOps · Cybersecurity Enthusiast
 
-I enjoy the diverse journey within the tech world, from designing efficient backend systems and managing infrastructure with a DevOps approach, to crafting intuitive user experiences on the frontend. I also have a keen interest in cybersecurity and exploring low-level systems.
+I build things that work — from backend systems and APIs to infrastructure and security tooling. I care about code that solves real problems, not code that just looks good on a README.
 
-## My Journey in Numbers & Skills
+---
 
-Here are some insights into my work and skills:
+## 🔧 What I Work With
+
+**Languages:** PHP · Go · JavaScript/TypeScript · Python · C/C++  
+**Infrastructure:** Docker · GitHub Actions · Linux · Cloudflare Workers · Nginx  
+**Focus Areas:** API Development · Network Security · Smart Contract Auditing · DevOps Automation
+
+---
+
+## 📌 Highlight Projects
+
+| Project | What It Does |
+|---|---|
+| [curl-impersonate-php](https://github.com/kelvinzer0/curl-impersonate-php) | PHP wrapper for curl-impersonate with TLS fingerprint spoofing |
+| [DevDocsMCP](https://github.com/kelvinzer0/DevDocsMCP) | MCP server for developer documentation access |
+| [network-bandwidth-monitor](https://github.com/kelvinzer0/network-bandwidth-monitor) | Real-time network bandwidth monitoring |
+| [smart-contract-auditor](https://github.com/kelvinzer0/smart-contract-auditor) | Automated smart contract security auditor |
+| [udp-relay](https://github.com/kelvinzer0/udp-relay) | Lightweight Dockerized UDP relay server |
+
+---
+
+## 📊 Stats
 
 <p>
-  <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=kelvinzer0&layout=compact&theme=radical" alt="Kelvin's Top Languages" />
+  <img src="https://github-readme-stats.vercel.app/api?username=kelvinzer0&show_icons=true&theme=tokyonight&hide_border=true&count_private=true" height="160" />
+  <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=kelvinzer0&layout=compact&theme=tokyonight&hide_border=true&count_private=true" height="160" />
 </p>
 
 ---
 
-## 🚀 My Product Ideology
+## 🏆 Achievements
 
-- **MVP (Minimum Viable Product):**  
-  Don’t start by building the full product. *"Sell it first"* through ads or a simple landing page, collect contacts, validate demand, then build the product.
-
-- **GPD (Gather – Plan – Decide):**  
-  Stress and worry don’t help. Gather information → plan → make a decision. Execution > overthinking.
-
-- **Core Principle:**  
-  Building products is easy, but **validating the market is what creates real value**.
-
-## Professional Credentials
-
-My expertise is backed by various industry certifications. You can view my verified professional credentials on [Credly](https://www.credly.com/users/kelvin-yuli-andrian/badges), which demonstrates my commitment to professional excellence and continuous learning.
-
-## Let's Connect!
-
-I'm always open to discussions, sharing ideas, or forging new connections. Feel free to reach out!
-
-<p align="left">
-    <a href="https://linkedin.com/in/kelvinzero" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="kelvinzero" height="30" width="40" /></a>
+<p>
+  <img src="https://github-profile-trophy.vercel.app/?username=kelvinzer0&theme=tokyonight&no-frame=true&column=7" />
 </p>
-
-### Today's News:
-
-<!-- feed start -->
-- Apr 08 - [PCI Express over Fiber ! Project intro and a bonus side quest](https://www.youtube.com/watch?v=XaDa9bBucEI)
-- Apr 05 - [How an IRC bot spawned the world’s most prolific software](https://www.youtube.com/watch?v=ohzzGy5K9Dk)
-- Apr 05 - [Linux on a Mac (but it's 1999)](https://tinkerbetter.tube/w/68D5MRVprAdfz4Dhmfqs3j)
-- Apr 04 - [Lia's blog - Code is a wedge and programmers are tools](https://lia-sae.net/articles/2026/02/code-is-a-wedge.html)
-- Apr 01 - [Script Editing Tool Aids Magic School Lunar Fan Translation](https://www.segasaturnshiro.com/2026/04/01/script-editing-tool-aids-magic-school-lunar-fan-translation/)
-<!-- feed end -->
 
 ---
 
-Thank you for visiting my profile!
-![snake gif](https://github.com/kelvinzer0/kelvinzer0/blob/output/github-contribution-grid-snake.svg)
+## 📫 Connect
+
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-kelvinzero-blue?logo=linkedin&logoColor=white)](https://linkedin.com/in/kelvinzero)
+[![Blog](https://img.shields.io/badge/Blog-kelvinzer0.cloud-orange?logo=hugo&logoColor=white)](https://blog.kelvinzer0.cloud/)
+[![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
