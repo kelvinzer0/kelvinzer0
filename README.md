@@ -28,19 +28,32 @@ I build things that work — from backend systems and APIs to infrastructure and
 
 ## 📊 GitHub Stats
 
-[![Kelvin's GitHub Stats](https://github-readme-stats.vercel.app/api?username=kelvinzer0&show_icons=true&theme=tokyonight&hide_border=true&count_private=true&include_all_commits=true)](https://github.com/kelvinzer0)
+![Commits](https://img.shields.io/github/commit-activity/y/kelvinzer0?label=commits%2Fyear&style=for-the-badge&color=blue)
+![Followers](https://img.shields.io/github/followers/kelvinzer0?label=followers&style=for-the-badge&color=blue)
+![Stars](https://img.shields.io/github/stars/kelvinzer0?label=total%20stars&style=for-the-badge&color=blue)
+![Repos](https://img.shields.io/badge/dynamic/json?url=https://api.github.com/users/kelvinzer0&query=%24.public_repos&label=public%20repos&style=for-the-badge&color=blue)
+![Contributions](https://img.shields.io/github/commit-activity/y/kelvinzer0?label=contributions&style=for-the-badge&color=green)
 
 [![GitHub Streak](https://streak-stats.demolab.com/?user=kelvinzer0&theme=tokyonight&hide_border=true)](https://github.com/kelvinzer0)
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=kelvinzer0&layout=compact&theme=tokyonight&hide_border=true&count_private=true)](https://github.com/kelvinzer0)
+### Top Languages
 
-[![trophy](https://github-profile-trophy.vercel.app/?username=kelvinzer0&theme=tokyonight&no-frame=true&column=7)](https://github.com/kelvinzer0)
+![PHP](https://img.shields.io/badge/PHP-777BB4?style=flat-square&logo=php&logoColor=white)
+![Go](https://img.shields.io/badge/Go-00ADD8?style=flat-square&logo=go&logoColor=white)
+![JavaScript](https://img.shields.io/badge/JavaScript-F7DF1E?style=flat-square&logo=javascript&logoColor=black)
+![TypeScript](https://img.shields.io/badge/TypeScript-3178C6?style=flat-square&logo=typescript&logoColor=white)
+![Python](https://img.shields.io/badge/Python-3776AB?style=flat-square&logo=python&logoColor=white)
+![C++](https://img.shields.io/badge/C++-00599C?style=flat-square&logo=cplusplus&logoColor=white)
+![Rust](https://img.shields.io/badge/Rust-000000?style=flat-square&logo=rust&logoColor=white)
+![HTML](https://img.shields.io/badge/HTML-E34F26?style=flat-square&logo=html5&logoColor=white)
 
-<!-- fallback: if vercel services are down, badges below still work -->
-[![commits](https://img.shields.io/github/commit-activity/y/kelvinzer0?label=commits%2Fyear&style=flat-square&color=blue)](https://github.com/kelvinzer0)
-[![followers](https://img.shields.io/github/followers/kelvinzer0?label=followers&style=flat-square&color=blue)](https://github.com/kelvinzer0)
-[![stars](https://img.shields.io/github/stars/kelvinzer0?label=total%20stars&style=flat-square&color=blue)](https://github.com/kelvinzer0)
-[![repos](https://img.shields.io/badge/dynamic/json?url=https://api.github.com/users/kelvinzer0&query=$.public_repos&label=repos&style=flat-square&color=blue)](https://github.com/kelvinzer0)
+### Trophies
+
+![Followers](https://img.shields.io/github/followers/kelvinzer0?style=social)
+![Stars](https://img.shields.io/github/stars/kelvinzer0?style=social)
+![Forks](https://img.shields.io/github/forks/kelvinzer0?style=social)
+![Watchers](https://img.shields.io/github/watchers/kelvinzer0?style=social)
+![Views](https://komarev.com/ghpvc/?username=kelvinzer0&color=blue&style=flat-square&label=profile+views)
 
 ---
 
