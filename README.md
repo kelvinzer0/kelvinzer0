@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Apr 10 - [Repairing Apple PowerBooks (2023)](https://mac84.net/web/repairing-apple-powerbooks/)
 - Apr 08 - [PCI Express over Fiber ! Project intro and a bonus side quest](https://www.youtube.com/watch?v=XaDa9bBucEI)
 - Apr 05 - [How an IRC bot spawned the world’s most prolific software](https://www.youtube.com/watch?v=ohzzGy5K9Dk)
 - Apr 05 - [Linux on a Mac (but it's 1999)](https://tinkerbetter.tube/w/68D5MRVprAdfz4Dhmfqs3j)
 - Apr 04 - [Lia's blog - Code is a wedge and programmers are tools](https://lia-sae.net/articles/2026/02/code-is-a-wedge.html)
-- Apr 01 - [Script Editing Tool Aids Magic School Lunar Fan Translation](https://www.segasaturnshiro.com/2026/04/01/script-editing-tool-aids-magic-school-lunar-fan-translation/)
 <!-- feed end -->
