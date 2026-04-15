@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Apr 15 - [Offpunk Manifesto](https://blog.ayom.media/ideiasdechirico/offpunk-manifesto)
 - Apr 14 - [message.casa - a smol free e-mail hosting](https://message.casa/en/)
 - Apr 14 - [Indie web](http://notebook.zoeblade.com/Indie_web.html)
 - Apr 14 - [Sometimes powerful people just do dumb shit](https://www.joanwestenberg.com/sometimes-powerful-people-just-do-dumb-shit)
 - Apr 10 - [Repairing Apple PowerBooks (2023)](https://mac84.net/web/repairing-apple-powerbooks/)
-- Apr 08 - [PCI Express over Fiber ! Project intro and a bonus side quest](https://www.youtube.com/watch?v=XaDa9bBucEI)
 <!-- feed end -->
