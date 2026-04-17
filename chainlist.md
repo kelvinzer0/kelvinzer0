@@ -1589,6 +1589,7 @@
 | 8721 | EBC | EB-Chain |
 | 8765 | WARD | Warden |
 | 88788 | PTEK | PropTech Mainnet |
+| 88868 | QTS | QTSCHAIN Mainnet |
 | 890 | MARS | Marschain |
 | 892 | ABC | Advance Blockchain Mainnet |
 | 9 | QUAI | Quai Mainnet |
