@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Apr 21 - [Why Some S3 Videocards Have A Brightness Issue](https://hackaday.com/2026/04/21/why-some-s3-videocards-have-a-brightness-issue/)
 - Apr 19 - [This site ought to use its own "favicon", and not that of Lobsters](https://tilde.news/s/ohprx2/this_site_ought_use_its_own_favicon_not)
 - Apr 18 - [Radical Anti Smartphone Front – A movement against the excessive use of smartphones](https://rasf.eu)
 - Apr 18 - [Everything we like is a psyop](https://techcrunch.com/2026/04/16/everything-we-like-is-a-psyop/)
 - Apr 17 - [Red Hat Unions Against Lay Offs](https://solidairesinformatique.org/2026/04/16/red-hat-unions-against-lay-offs/)
-- Apr 15 - [Offpunk Manifesto](https://blog.ayom.media/ideiasdechirico/offpunk-manifesto)
 <!-- feed end -->
