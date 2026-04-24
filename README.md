@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Apr 24 - [Building a small Z80 computer #1 (2018)](https://www.youtube.com/watch?v=nFIviiwPrLI)
 - Apr 22 - [AI as a Fascist Artifact](https://tante.cc/2026/04/21/ai-as-a-fascist-artifact/)
 - Apr 22 - [Retro Repro Wiki](https://retrorepro.wiki/Main_Page)
 - Apr 22 - [wsl9x - Windows 9x subsystem for Linux](https://codeberg.org/hails/wsl9x)
 - Apr 21 - [Why Some S3 Videocards Have A Brightness Issue](https://hackaday.com/2026/04/21/why-some-s3-videocards-have-a-brightness-issue/)
-- Apr 19 - [This site ought to use its own "favicon", and not that of Lobsters](https://tilde.news/s/ohprx2/this_site_ought_use_its_own_favicon_not)
 <!-- feed end -->
