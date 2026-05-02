@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 02 - [MSAI: We can't find Chris Kenna’s ‘sovereign AI’ data centres](https://www.thebureauinvestigates.com/stories/2026-04-11/he-says-hes-built-sovereign-ai-data-centres-across-the-uk-we-cant-find-them)
 - Apr 25 - [Do I belong in tech anymore?](https://ky.fyi/posts/ai-burnout)
 - Apr 24 - [Building a small Z80 computer #1 (2018)](https://www.youtube.com/watch?v=nFIviiwPrLI)
 - Apr 22 - [AI as a Fascist Artifact](https://tante.cc/2026/04/21/ai-as-a-fascist-artifact/)
 - Apr 22 - [Retro Repro Wiki](https://retrorepro.wiki/Main_Page)
-- Apr 22 - [wsl9x - Windows 9x subsystem for Linux](https://codeberg.org/hails/wsl9x)
 <!-- feed end -->
