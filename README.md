@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 04 - [Fediverse Skillshare Classifieds](https://inherentlee.codeberg.page/fedi-skillshares/)
+- May 04 - [The People's Permacomputer Project](https://permacomputer.solarpunk.au/)
 - May 02 - [NetHack 5.0.0: Release Notes](https://nethack.org/v500/release.html)
 - May 02 - [MSAI: We can't find Chris Kenna’s ‘sovereign AI’ data centres](https://www.thebureauinvestigates.com/stories/2026-04-11/he-says-hes-built-sovereign-ai-data-centres-across-the-uk-we-cant-find-them)
 - Apr 25 - [Do I belong in tech anymore?](https://ky.fyi/posts/ai-burnout)
-- Apr 24 - [Building a small Z80 computer #1 (2018)](https://www.youtube.com/watch?v=nFIviiwPrLI)
-- Apr 22 - [AI as a Fascist Artifact](https://tante.cc/2026/04/21/ai-as-a-fascist-artifact/)
 <!-- feed end -->
