@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 04 - [Building a cyberdeck is the most punk thing you can do right now](https://www.dazeddigital.com/life-culture/article/70129/1/building-a-cyberdeck-diy-tech-rebellious-billionaire-broligarchs-computers)
 - May 04 - [Fediverse Skillshare Classifieds](https://inherentlee.codeberg.page/fedi-skillshares/)
 - May 04 - [The People's Permacomputer Project](https://permacomputer.solarpunk.au/)
 - May 02 - [NetHack 5.0.0: Release Notes](https://nethack.org/v500/release.html)
 - May 02 - [MSAI: We can't find Chris Kenna’s ‘sovereign AI’ data centres](https://www.thebureauinvestigates.com/stories/2026-04-11/he-says-hes-built-sovereign-ai-data-centres-across-the-uk-we-cant-find-them)
-- Apr 25 - [Do I belong in tech anymore?](https://ky.fyi/posts/ai-burnout)
 <!-- feed end -->
