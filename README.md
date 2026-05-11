@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 11 - [Peter norvig’s 21 line spelling corrector using probability theory](https://impythonist.wordpress.com/2014/03/18/peter-norvigs-21-line-spelling-corrector-using-probability-theory/)
 - May 07 - [Building my own Vi text editor in BASIC](https://leetusman.com/nosebook/yvi)
 - May 06 - [QuadTrack - Dynamic Performance Sequencer](https://pinkparrot.studio/quadtrack)
 - May 05 - [The Curious Case Of The Little Chinese Cameras](https://ko-fi.com/post/The-Curious-Case-Of-The-Little-Chinese-Cameras-F1F01YVR6E)
 - May 04 - [Building a cyberdeck is the most punk thing you can do right now](https://www.dazeddigital.com/life-culture/article/70129/1/building-a-cyberdeck-diy-tech-rebellious-billionaire-broligarchs-computers)
-- May 04 - [Fediverse Skillshare Classifieds](https://inherentlee.codeberg.page/fedi-skillshares/)
 <!-- feed end -->
