@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 17 - [Amiga 68000 (SEKA) -> portable C transpiler](https://bitbucket.org/rhinoid/convert68000toc)
 - May 14 - [Mercurial, 20 years and counting: how are we still alive and kicking?](https://fosdem.org/2026/schedule/event/AGWUVH-mercurial-aint-you-dead-yet/)
 - May 13 - [NetHack 5.0 Atari ST/TT/Falcon (WIP)](https://github.com/ingpaschke/NetHack/releases/tag/v5.0-atari-wip)
 - May 13 - [Plan 9 and Inferno OS](https://www.livinginthefuture.rocks/e/episode-17-plan-9-and-inferno-os/)
 - May 11 - [Peter norvig’s 21 line spelling corrector using probability theory](https://impythonist.wordpress.com/2014/03/18/peter-norvigs-21-line-spelling-corrector-using-probability-theory/)
-- May 07 - [Building my own Vi text editor in BASIC](https://leetusman.com/nosebook/yvi)
 <!-- feed end -->
