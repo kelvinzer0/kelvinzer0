@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 23 - [It's time to talk about my writerdeck](https://veronicaexplains.net/my-first-writerdeck/)
 - May 22 - [LED Matrix Earrings - mitxela.com](https://mitxela.com/projects/ledstud)
 - May 21 - [Online [OS] Manuals](http://www.typewritten.org/Manual/)
 - May 21 - [Why I Don’t Vibe Code](https://jacobharr.is/personal/i-dont-vibe-code)
 - May 21 - [Simulated Evolution on the PICO-8](https://bumbershootsoft.wordpress.com/2026/05/16/simulated-evolution-on-the-pico-8/)
-- May 20 - [The Virtual OS Museum](https://virtualosmuseum.org)
 <!-- feed end -->
