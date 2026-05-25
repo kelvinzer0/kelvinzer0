@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 25 - [Steve Jobs in Exile: NeXT and the Making of a Comeback](https://www.youtube.com/live/WnZeiw8q4Wk)
 - May 25 - [Fermi Questions - A Wordle-style game](https://www.fermiquestions.org/#/2025-11-18)
 - May 25 - [Ubuntu Pastebin Decommissioning](https://discourse.ubuntu.com/t/ubuntu-pastebin-decommissioning/82824)
 - May 24 - [wake up! 16-byte intro](https://hellmood.111mb.de/wake_up_16b_writeup.html)
 - May 23 - [It's time to talk about my writerdeck](https://veronicaexplains.net/my-first-writerdeck/)
-- May 22 - [LED Matrix Earrings - mitxela.com](https://mitxela.com/projects/ledstud)
 <!-- feed end -->
