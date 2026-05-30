@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- May 30 - [A Trip to 90s Kansai: Exploring the XD FirstClass Network BBS](https://cdrom.ca/games/2026/05/30/xd.html)
 - May 29 - [I Am Retiring from Tech to Live Offline](https://openpath.quest/2026/i-am-retiring-from-tech-to-live-offline/)
 - May 28 - [Emacs bra size calculator](https://pulusound.fi/blog/emacs-bra-size-calculator)
 - May 27 - [The Untold Story About W Social: Unconventional Beginnings, Strategic Pitches and Conflicting Signals](https://blog.elenarossini.com/the-untold-story-about-w-social-unconventional-beginnings-strategic-pitches-conflicting-signals/)
 - May 27 - [Watching a Z80 from an RP2350](https://emalliab.wordpress.com/2026/05/26/watching-a-z80-from-an-rp2350/)
-- May 26 - [Brockovich Data Center Reporting – U.S. AI Data Center Awareness & Issue Map](https://www.brockovichdatacenter.com/)
 <!-- feed end -->
