@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jun 05 - [Detecting and removing dangerous secrets on dev workstations before Shai-Hulud does](https://recyclebin.zip/posts/2026-05-25-secret-scanning-fleet-bagel/)
 - Jun 03 - [Unveiling: The Invisible Lives of TikTok Data Workers in London](https://data-workers.org/fasica-utaw/)
 - Jun 02 - [SIGBOVIK XX](https://sigbovik.org/2026/)
 - May 30 - [A Trip to 90s Kansai: Exploring the XD FirstClass Network BBS](https://cdrom.ca/games/2026/05/30/xd.html)
 - May 29 - [I Am Retiring from Tech to Live Offline](https://openpath.quest/2026/i-am-retiring-from-tech-to-live-offline/)
-- May 28 - [Emacs bra size calculator](https://pulusound.fi/blog/emacs-bra-size-calculator)
 <!-- feed end -->
