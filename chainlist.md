@@ -47,11 +47,11 @@
 | 747 | Flow | Flow EVM Mainnet |
 | 324 | ETH | zkSync Mainnet |
 | 1729 | Reya | Reya Network |
-| 2741 | Abstract | Abstract |
 | 534352 | ETH | Scroll |
+| 2741 | Abstract | Abstract |
 | 570 | SYS | Rollux Mainnet |
-| 2020 | RON | Ronin |
 | 50 | XDC | XDC Network |
+| 2020 | RON | Ronin |
 | 1030 | Conflux | Conflux eSpace |
 | 2818 | ETH | Morph |
 | 388 | CronosZkEVMMainnet | Cronos zkEVM Mainnet |
@@ -68,8 +68,8 @@
 | 592 | ASTR | Astar |
 | 6900 | Nibiru | Nibiru cataclysm-1 |
 | 1088 | ETH | Metis Andromeda Mainnet |
-| 7700 | Canto | Canto |
 | 88888 | CHZ | Chiliz Chain |
+| 7700 | Canto | Canto |
 | 34443 | ETH | Mode |
 | 4689 | iotex.io | IoTeX Network Mainnet |
 | 13371 | Immutable zkEVM | Immutable zkEVM |
@@ -87,19 +87,19 @@
 | 204 | opBNB | opBNB Mainnet |
 | 8822 | IOTA EVM | IOTA EVM |
 | 5031 | SOMNIA | Somnia Mainnet |
-| 4337 | BEAM | Beam |
 | 88 | Viction | Viction |
+| 4337 | BEAM | Beam |
 | 2345 | GOAT | GOAT Network |
 | 1135 | ETH | Lisk |
 | 1923 | ETH | Swellchain |
+| 3338 | peaq | peaq |
 | 777777 | WINR | Winr Protocol Mainnet |
 | 321 | KCC | KCC Mainnet |
-| 3338 | peaq | peaq |
 | 8668 | Hela | Hela Official Runtime Mainnet |
 | 3637 | BOTANIX | Botanix Mainnet |
 | 2000 | DC | Dogechain Mainnet |
-| 97477 | ETH | Doma |
 | 122 | FUSE | Fuse Mainnet |
+| 97477 | ETH | Doma |
 | 53935 | DFK | DFK Chain |
 | 1625 | Gravity | Gravity Alpha Mainnet |
 | 42 | LUKSO | LUKSO Mainnet |
@@ -123,8 +123,8 @@
 | 20 | ETH | Elastos Smart Chain |
 | 42262 | Emerald | Oasis Emerald |
 | 19 | SGB | Songbird Canary-Network |
-| 106 | Velas | Velas EVM Mainnet |
 | 41923 | EDU Chain | EDU Chain |
+| 106 | Velas | Velas EVM Mainnet |
 | 153153 | DIONE | Odyssey Chain Mainnet |
 | 232 | Lens | Lens |
 | 39797 | NRG | Energi Mainnet |
@@ -1433,6 +1433,7 @@
 | 1110 | GRX | GRX Mainnet |
 | 11111111 | CC | ClawCoin |
 | 11111111111 | FCO | Fanatico |
+| 11169 | GLEEC | Gleec Mainnet |
 | 1125 | Taker | Taker Chain Mainnet |
 | 1143 | ION | ION Network |
 | 1155 | INTUITION | Intuition Mainnet |
@@ -1550,8 +1551,10 @@
 | 329 | VBC | VirBiCoin |
 | 3303 | QBC | Qubitcoin |
 | 3355 | AETRON | AETRON Mainnet |
+| 3377 | TJR | Tajirchain |
 | 343 | BOURSE | Capital Exchange |
 | 347 | KSS | Kross Network Mainnet |
+| 3567 | Trustgreen | Trustgreen Chain |
 | 3600 | AiFi | AiFinance Smart Chain |
 | 36000 | TC | Voidchain Mainnet |
 | 36888 | AB | AB Core Mainnet |
@@ -1565,6 +1568,7 @@
 | 3946 | NEX | Nexus Mainnet |
 | 39500 | CIN | Cincoin Mainnet |
 | 4048 | GAN | GANchain L1 |
+| 41443 | NES | Nesa |
 | 4153 | ETH | RISE |
 | 420420420420 | GALAXY | Galaxy Chain |
 | 421018 | INFINITE | Infinite Improbability Drive |
@@ -1636,6 +1640,7 @@
 | 7776 | PandaSea | PandaSea Mainnet |
 | 7777 | BNX | BNX Smart Chain |
 | 77888 | BSOS | BSOS Chain |
+| 778889 | Unitsky | Unitsky String Technologies |
 | 7820 | PTB | Portal-To-Bitcoin Mainnet |
 | 7890 | PC | Panchain Mainnet |
 | 8006 | BMN | BMN Smart Chain |
@@ -1711,8 +1716,8 @@
 | 11142220 | CELO | Celo Sepolia Testnet |
 | 545 | Flow | Flow EVM Testnet |
 | 300 | ETH | zkSync Sepolia Testnet |
-| 11124 | Abstract Sepolia Testnet | Abstract Sepolia Testnet |
 | 534351 | ETH | Scroll Sepolia Testnet |
+| 11124 | Abstract Sepolia Testnet | Abstract Sepolia Testnet |
 | 57000 | SYS | Rollux Testnet |
 | 2710 | ETH | Morph Testnet |
 | 2910 | ETH | Morph Hoodi |
@@ -1734,8 +1739,8 @@
 | 5611 | opBNB | opBNB Testnet |
 | 1075 | IOTA EVM | IOTA EVM Testnet |
 | 50312 | Somnia | Somnia Testnet |
-| 13337 | BEAM | Beam Testnet |
 | 89 | Viction | Viction Testnet |
+| 13337 | BEAM | Beam Testnet |
 | 4202 | ETH | Lisk Sepolia Testnet |
 | 1924 | ETH | Swellchain Testnet |
 | 66666666 | WINR | Winr Protocol Testnet |
@@ -1743,8 +1748,8 @@
 | 666888 | Hela | Hela Official Runtime Testnet |
 | 3636 | BOTANIX | Botanix Testnet |
 | 568 | DC | Dogechain Testnet |
-| 97476 | ETH | Doma Testnet |
 | 12001 | Fuse | Fuse Testnet |
+| 97476 | ETH | Doma Testnet |
 | 13505 | Gravity | Gravity Alpha Testnet Sepolia |
 | 4201 | LUKSO Testnet | LUKSO Testnet |
 | 80008 | polynomialSepolia | Polynomial Sepolia |
@@ -2688,6 +2693,7 @@
 | 167012 | KASPLEX | Kasplex zkEVM Testnet |
 | 1810 | RUBY | Ruby Chain Testnet |
 | 181228 | HPP | HPP Sepolia |
+| 1874 | WCH | Whitechain Sepolia |
 | 1879 | XGR | XGR Testnet |
 | 2233441 | tRECR | RecorderCoin Testnet |
 | 19251925 | Tipschain TESTNET | Tipschain TESTNET |
