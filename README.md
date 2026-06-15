@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jun 15 - [Cyberdeck Meetup Notes – June 15, 2026](https://iffybooks.net/cyberdeck-meetup-notes/)
 - Jun 11 - [An interactive introduction to the terrific experience of rendering Arabic typography and its technical debt | La Vita Nouva](https://lr0.org/blog/p/arabic/)
 - Jun 11 - [Internet Archive Scholar](https://scholar.archive.org/)
 - Jun 10 - [Landmark German ruling declares Google's AI Overviews are Google's own words and makes it liable for false answers](https://the-decoder.com/landmark-german-ruling-declares-googles-ai-overviews-are-googles-own-words-and-makes-it-liable-for-false-answers/)
 - Jun 07 - [The Smart TV in Your LivingRoom Is a Node in the AIScraping Economy](https://blog.includesecurity.com/2026/06/the-smart-tv-in-your-livingroom-is-a-node-in-the-aiscraping-economy/)
-- Jun 06 - [She won an exemption from using AI at her tech job. The Pope's remarks could fuel similar appeals](https://www.businessinsider.com/worker-got-religious-exemption-using-ai-at-work-2026-6)
 <!-- feed end -->
