@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jun 17 - [Delete Genocide Tech](https://palestinecampaign.org/campaigns/delete-genocide-tech/)
 - Jun 17 - [Redacted Brands](https://onefoottsunami.com/2026/06/17/redacted-brands/)
 - Jun 16 - [savearoundtrip: publish an HTTPS DNS record, skip a round trip](https://savearoundtrip.com)
 - Jun 15 - [The Game Engine White Papers: Commander Keen](https://forgottenbytes.net/commander_keen.html)
 - Jun 15 - [Victory! 702 has Expired](https://www.eff.org/deeplinks/2026/06/victory-702-has-expired)
-- Jun 15 - [our workplace LLM mass delusion](https://blog.avas.space/llm-circus/)
 <!-- feed end -->
