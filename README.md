@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jun 25 - [A Look At A Gaggle Of Transputer Boards](https://hackaday.com/2026/06/25/a-look-at-a-gaggle-of-transputer-boards/)
 - Jun 19 - [Open Source Hardware Camp 2026 - Sat 29th & Sun 30th August, Hebden Bridge, UK](https://oshug.org/event/oshcamp2026)
 - Jun 18 - [Circuit Breakers -- A Conference for Workers Organizing in Tech](https://techworkerscoalition.org/circuit-breakers)
 - Jun 17 - [Delete Genocide Tech](https://palestinecampaign.org/campaigns/delete-genocide-tech/)
 - Jun 17 - [Redacted Brands](https://onefoottsunami.com/2026/06/17/redacted-brands/)
-- Jun 16 - [savearoundtrip: publish an HTTPS DNS record, skip a round trip](https://savearoundtrip.com)
 <!-- feed end -->
