@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jul 01 - [Rediscovering the Handcart](https://solar.lowtechmagazine.com/2026/04/rediscovering-the-handcart/)
 - Jun 30 - [Victory! Supreme Court Says Constitution Protects People’s Location Data](https://www.eff.org/deeplinks/2026/06/victory-supreme-court-says-constitution-protects-peoples-location-data)
 - Jun 30 - [UTAW: Trust is not Governance](https://utaw.tech/news/trust-is-not-governance)
 - Jun 29 - [Arch Linux Pulls the Plug on New AUR Registrations](https://itsfoss.com/news/arch-linux-aur-malware-flood/)
 - Jun 25 - [Peak Web Has Passed](https://datagubbe.se/peakweb/)
-- Jun 25 - [A Look At A Gaggle Of Transputer Boards](https://hackaday.com/2026/06/25/a-look-at-a-gaggle-of-transputer-boards/)
 <!-- feed end -->
