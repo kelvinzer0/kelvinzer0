@@ -366,7 +366,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 79240081150.74559,
+    "tvl": 79344701650.9904,
     "chainSlug": "ethereum",
     "isTestnet": false
   },
@@ -557,7 +557,7 @@
       }
     ],
     "status": "active",
-    "tvl": 6605491723.744946,
+    "tvl": 6625857711.780705,
     "chainSlug": "base",
     "isTestnet": false
   },
@@ -806,7 +806,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 6571919694.899182,
+    "tvl": 6577602896.857446,
     "chainSlug": "binance",
     "isTestnet": false
   },
@@ -990,7 +990,7 @@
         }
       ]
     },
-    "tvl": 1857478112.5571012,
+    "tvl": 1853252673.398651,
     "chainSlug": "arbitrum",
     "isTestnet": false
   },
@@ -1040,7 +1040,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1245531843.5292711,
+    "tvl": 1234447096.9484422,
     "chainSlug": "plasma",
     "isTestnet": false
   },
@@ -1105,7 +1105,7 @@
       }
     ],
     "status": "active",
-    "tvl": 1198122922.0297947,
+    "tvl": 1207017628.8467288,
     "chainSlug": "ink",
     "isTestnet": false
   },
@@ -1249,7 +1249,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1046763849.2876412,
+    "tvl": 1044622248.3280712,
     "chainSlug": "avalanche",
     "isTestnet": false
   },
@@ -1426,7 +1426,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 955969583.2367717,
+    "tvl": 926278390.153218,
     "chainSlug": "polygon",
     "isTestnet": false
   },
@@ -1529,7 +1529,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 686332278.2520248,
+    "tvl": 689586815.6701654,
     "chainSlug": "monad",
     "isTestnet": false
   },
@@ -1705,7 +1705,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 520602022.92877656,
+    "tvl": 510202542.81834096,
     "chainSlug": "optimism",
     "isTestnet": false
   },
@@ -1774,7 +1774,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 335288321.22395295,
+    "tvl": 331699012.1127104,
     "chainSlug": "flare",
     "isTestnet": false
   },
@@ -1864,7 +1864,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 290932411.0124444,
+    "tvl": 292302423.5258324,
     "chainSlug": "cronos",
     "isTestnet": false
   },
@@ -1968,7 +1968,7 @@
         }
       ]
     },
-    "tvl": 258293866.60113627,
+    "tvl": 257515276.25229385,
     "chainSlug": "mantle",
     "isTestnet": false
   },
@@ -2100,7 +2100,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 176040369.1791084,
+    "tvl": 165665373.21842468,
     "chainSlug": "xdai",
     "isTestnet": false
   },
@@ -2182,7 +2182,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 164218270.31262475,
+    "tvl": 164427235.64430472,
     "chainSlug": "berachain",
     "isTestnet": false
   },
@@ -2260,7 +2260,7 @@
         }
       ]
     },
-    "tvl": 160823351.02005714,
+    "tvl": 156313859.1382109,
     "chainSlug": "katana",
     "isTestnet": false
   },
@@ -2302,61 +2302,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 119569331.23128909,
+    "tvl": 119712608.02849092,
     "chainSlug": "stable",
-    "isTestnet": false
-  },
-  {
-    "name": "MegaETH",
-    "chain": "MEGA",
-    "rpc": [
-      {
-        "url": "https://rpc-megaeth-mainnet.globalstake.io",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://megaeth.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "wss://megaeth.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "https://mainnet.megaeth.com/rpc"
-      }
-    ],
-    "features": [
-      {
-        "name": "EIP155"
-      },
-      {
-        "name": "EIP1559"
-      }
-    ],
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://www.megaeth.com",
-    "shortName": "megaeth",
-    "chainId": 4326,
-    "networkId": 4326,
-    "explorers": [
-      {
-        "name": "Etherscan",
-        "url": "https://mega.etherscan.io",
-        "standard": "EIP3091"
-      },
-      {
-        "name": "Blockscout",
-        "url": "https://megaeth.blockscout.com",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 102169787.12988964,
-    "chainSlug": "megaeth",
     "isTestnet": false
   },
   {
@@ -2411,8 +2358,61 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 101262721.49439284,
+    "tvl": 109698191.4138536,
     "chainSlug": "rsk",
+    "isTestnet": false
+  },
+  {
+    "name": "MegaETH",
+    "chain": "MEGA",
+    "rpc": [
+      {
+        "url": "https://rpc-megaeth-mainnet.globalstake.io",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://megaeth.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "wss://megaeth.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "https://mainnet.megaeth.com/rpc"
+      }
+    ],
+    "features": [
+      {
+        "name": "EIP155"
+      },
+      {
+        "name": "EIP1559"
+      }
+    ],
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://www.megaeth.com",
+    "shortName": "megaeth",
+    "chainId": 4326,
+    "networkId": 4326,
+    "explorers": [
+      {
+        "name": "Etherscan",
+        "url": "https://mega.etherscan.io",
+        "standard": "EIP3091"
+      },
+      {
+        "name": "Blockscout",
+        "url": "https://megaeth.blockscout.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 101107702.57260913,
+    "chainSlug": "megaeth",
     "isTestnet": false
   },
   {
@@ -2473,7 +2473,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 91321355.59482257,
+    "tvl": 89885469.53229065,
     "chainSlug": "sei",
     "isTestnet": false
   },
@@ -2532,7 +2532,7 @@
       }
     ],
     "status": "active",
-    "tvl": 86118406.81963347,
+    "tvl": 87072467.2080786,
     "chainSlug": "x layer",
     "isTestnet": false
   },
@@ -2591,7 +2591,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 80520686.80001429,
+    "tvl": 81626339.15538403,
     "chainSlug": "hedera",
     "isTestnet": false
   },
@@ -2659,7 +2659,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 67045626.007536076,
+    "tvl": 67200426.63209777,
     "chainSlug": "mezo",
     "isTestnet": false
   },
@@ -2693,7 +2693,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 59974493.08887193,
+    "tvl": 61520658.69815063,
     "chainSlug": "ailayer",
     "isTestnet": false
   },
@@ -2786,7 +2786,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 51938386.527733415,
+    "tvl": 51891712.44696781,
     "chainSlug": "hydradx",
     "isTestnet": false
   },
@@ -2830,7 +2830,7 @@
       "chain": "eip155-1"
     },
     "status": "active",
-    "tvl": 49005892.586426556,
+    "tvl": 47099684.20818605,
     "chainSlug": "hemi",
     "isTestnet": false
   },
@@ -2930,7 +2930,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 43522674.281253636,
+    "tvl": 43916522.4380995,
     "chainSlug": "pulse",
     "isTestnet": false
   },
@@ -3034,7 +3034,7 @@
       }
     ],
     "status": "active",
-    "tvl": 38563213.21637505,
+    "tvl": 38676745.39021604,
     "chainSlug": "linea",
     "isTestnet": false
   },
@@ -3126,7 +3126,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 34959069.20587905,
+    "tvl": 35947948.72554292,
     "chainSlug": "filecoin",
     "isTestnet": false
   },
@@ -3192,7 +3192,7 @@
         }
       ]
     },
-    "tvl": 33497811.48150502,
+    "tvl": 33621363.85912901,
     "chainSlug": "bob",
     "isTestnet": false
   },
@@ -3291,7 +3291,7 @@
         "icon": "kava"
       }
     ],
-    "tvl": 31425383.004046056,
+    "tvl": 31221421.40179363,
     "chainSlug": "kava",
     "isTestnet": false
   },
@@ -3352,8 +3352,87 @@
       }
     ],
     "status": "active",
-    "tvl": 30886206.766702548,
+    "tvl": 30992568.482592132,
     "chainSlug": "fraxtal",
+    "isTestnet": false
+  },
+  {
+    "name": "Unichain",
+    "chain": "ETH",
+    "rpc": [
+      {
+        "url": "https://mainnet.unichain.org"
+      },
+      {
+        "url": "https://unichain.api.onfinality.io/public",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://unichain-rpc.publicnode.com",
+        "tracking": "none"
+      },
+      {
+        "url": "wss://unichain-rpc.publicnode.com",
+        "tracking": "none"
+      },
+      {
+        "url": "https://unichain.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "wss://unichain.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "https://unichain.therpc.io",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://unichain-mainnet.gateway.tatum.io",
+        "tracking": "yes"
+      },
+      {
+        "url": "https://rpc.poolz.finance/unichain",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://api-unichain-mainnet.n.dwellir.com/2ccf18bf-2916-4198-8856-42172854353c",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://unichain-mainnet.rpc.sentio.xyz",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://rpc.swiftnodes.io/rpc/unichain",
+        "tracking": "limited"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://unichain.org",
+    "shortName": "unichain",
+    "chainId": 130,
+    "networkId": 130,
+    "icon": "unichain",
+    "explorers": [
+      {
+        "name": "Unichain Mainnet Explorer",
+        "url": "https://uniscan.xyz",
+        "standard": "EIP3091"
+      },
+      {
+        "name": "Unichain Mainnet Explorer",
+        "url": "https://unichain.blockscout.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 30507879.640038,
+    "chainSlug": "unichain",
     "isTestnet": false
   },
   {
@@ -3474,87 +3553,8 @@
       "type": "L2",
       "chain": "eip155-1"
     },
-    "tvl": 30244480.71556659,
+    "tvl": 30112835.69019339,
     "chainSlug": "blast",
-    "isTestnet": false
-  },
-  {
-    "name": "Unichain",
-    "chain": "ETH",
-    "rpc": [
-      {
-        "url": "https://mainnet.unichain.org"
-      },
-      {
-        "url": "https://unichain.api.onfinality.io/public",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://unichain-rpc.publicnode.com",
-        "tracking": "none"
-      },
-      {
-        "url": "wss://unichain-rpc.publicnode.com",
-        "tracking": "none"
-      },
-      {
-        "url": "https://unichain.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "wss://unichain.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "https://unichain.therpc.io",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://unichain-mainnet.gateway.tatum.io",
-        "tracking": "yes"
-      },
-      {
-        "url": "https://rpc.poolz.finance/unichain",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://api-unichain-mainnet.n.dwellir.com/2ccf18bf-2916-4198-8856-42172854353c",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://unichain-mainnet.rpc.sentio.xyz",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://rpc.swiftnodes.io/rpc/unichain",
-        "tracking": "limited"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://unichain.org",
-    "shortName": "unichain",
-    "chainId": 130,
-    "networkId": 130,
-    "icon": "unichain",
-    "explorers": [
-      {
-        "name": "Unichain Mainnet Explorer",
-        "url": "https://uniscan.xyz",
-        "standard": "EIP3091"
-      },
-      {
-        "name": "Unichain Mainnet Explorer",
-        "url": "https://unichain.blockscout.com",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 29812285.709184486,
-    "chainSlug": "unichain",
     "isTestnet": false
   },
   {
@@ -3636,7 +3636,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 27722455.108926866,
+    "tvl": 27803939.47096313,
     "chainSlug": "klaytn",
     "isTestnet": false
   },
@@ -3717,7 +3717,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 26658969.238330107,
+    "tvl": 25967907.031072043,
     "chainSlug": "celo",
     "isTestnet": false
   },
@@ -3813,7 +3813,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 26077290.68005031,
+    "tvl": 25490740.19944575,
     "chainSlug": "sonic",
     "isTestnet": false
   },
@@ -3844,7 +3844,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 22974489.67031518,
+    "tvl": 22919846.12097607,
     "chainSlug": "ethereal",
     "isTestnet": false
   },
@@ -3886,7 +3886,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 21215153.40790072,
+    "tvl": 21266405.97435974,
     "chainSlug": "etherlink",
     "isTestnet": false
   },
@@ -3920,7 +3920,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 17820932.772893902,
+    "tvl": 17953367.204088893,
     "chainSlug": "flow",
     "isTestnet": false
   },
@@ -3943,7 +3943,7 @@
     "chainId": 996,
     "networkId": 996,
     "icon": "bifrost-polkadot",
-    "tvl": 15094937.159747442,
+    "tvl": 15173363.604469225,
     "chainSlug": "bifrost",
     "isTestnet": false
   },
@@ -4037,40 +4037,8 @@
         }
       ]
     },
-    "tvl": 14078980.84426267,
+    "tvl": 14080398.22447925,
     "chainSlug": "zksync era",
-    "isTestnet": false
-  },
-  {
-    "name": "Reya Network",
-    "chain": "Reya",
-    "rpc": [
-      {
-        "url": "https://rpc.reya.network"
-      },
-      {
-        "url": "wss://ws.reya.network"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://reya.network",
-    "shortName": "reya",
-    "chainId": 1729,
-    "networkId": 1729,
-    "explorers": [
-      {
-        "name": "Reya Network Explorer",
-        "url": "https://explorer.reya.network",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 11393535.758519372,
-    "chainSlug": "reya network",
     "isTestnet": false
   },
   {
@@ -4176,8 +4144,40 @@
         }
       ]
     },
-    "tvl": 11218901.94192166,
+    "tvl": 11299612.19119688,
     "chainSlug": "scroll",
+    "isTestnet": false
+  },
+  {
+    "name": "Reya Network",
+    "chain": "Reya",
+    "rpc": [
+      {
+        "url": "https://rpc.reya.network"
+      },
+      {
+        "url": "wss://ws.reya.network"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://reya.network",
+    "shortName": "reya",
+    "chainId": 1729,
+    "networkId": 1729,
+    "explorers": [
+      {
+        "name": "Reya Network Explorer",
+        "url": "https://explorer.reya.network",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 11077294.543592656,
+    "chainSlug": "reya network",
     "isTestnet": false
   },
   {
@@ -4227,7 +4227,7 @@
         "icon": "immutable"
       }
     ],
-    "tvl": 10980977.507943997,
+    "tvl": 10980349.90639633,
     "chainSlug": "immutable zkevm",
     "isTestnet": false
   },
@@ -4271,7 +4271,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 9920797.419446696,
+    "tvl": 9942396.054741325,
     "chainSlug": "rollux",
     "isTestnet": false
   },
@@ -4331,7 +4331,7 @@
         }
       ]
     },
-    "tvl": 9871298.829600036,
+    "tvl": 9900418.646681042,
     "chainSlug": "abstract",
     "isTestnet": false
   },
@@ -4368,7 +4368,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 9643595.248878937,
+    "tvl": 9674075.059736032,
     "chainSlug": "conflux",
     "isTestnet": false
   },
@@ -4426,7 +4426,7 @@
         "url": "https://explorer.roninchain.com/"
       }
     ],
-    "tvl": 9503324.292579586,
+    "tvl": 9511048.192265842,
     "chainSlug": "ronin",
     "isTestnet": false
   },
@@ -4475,8 +4475,75 @@
         }
       ]
     },
-    "tvl": 8013383.40974718,
+    "tvl": 8040775.403141556,
     "chainSlug": "morph",
+    "isTestnet": false
+  },
+  {
+    "name": "Soneium",
+    "shortName": "soneium",
+    "title": "Soneium mainnet",
+    "chain": "ETH",
+    "rpc": [
+      {
+        "url": "https://rpc.soneium.org"
+      },
+      {
+        "url": "https://soneium.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "wss://soneium.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "https://soneium-mainnet.rpc.sentio.xyz",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://rpc.swiftnodes.io/rpc/soneium",
+        "tracking": "limited"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://soneium.org",
+    "chainId": 1868,
+    "networkId": 1868,
+    "status": "active",
+    "explorers": [
+      {
+        "name": "blockscout",
+        "url": "https://soneium.blockscout.com",
+        "icon": "blockscout",
+        "standard": "EIP3091"
+      },
+      {
+        "name": "OKLink",
+        "url": "https://www.okx.com/web3/explorer/soneium",
+        "standard": "EIP3091"
+      },
+      {
+        "name": "SlamVision",
+        "url": "https://soneium.slam.vision",
+        "standard": "none"
+      }
+    ],
+    "parent": {
+      "type": "L2",
+      "chain": "eip155-1",
+      "bridges": [
+        {
+          "url": "https://superbridge.app/soneium"
+        }
+      ]
+    },
+    "tvl": 7768644.596683469,
+    "chainSlug": "soneium",
     "isTestnet": false
   },
   {
@@ -4557,75 +4624,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 7743939.153814942,
+    "tvl": 7766729.749288464,
     "chainSlug": "xdc",
-    "isTestnet": false
-  },
-  {
-    "name": "Soneium",
-    "shortName": "soneium",
-    "title": "Soneium mainnet",
-    "chain": "ETH",
-    "rpc": [
-      {
-        "url": "https://rpc.soneium.org"
-      },
-      {
-        "url": "https://soneium.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "wss://soneium.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "https://soneium-mainnet.rpc.sentio.xyz",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://rpc.swiftnodes.io/rpc/soneium",
-        "tracking": "limited"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://soneium.org",
-    "chainId": 1868,
-    "networkId": 1868,
-    "status": "active",
-    "explorers": [
-      {
-        "name": "blockscout",
-        "url": "https://soneium.blockscout.com",
-        "icon": "blockscout",
-        "standard": "EIP3091"
-      },
-      {
-        "name": "OKLink",
-        "url": "https://www.okx.com/web3/explorer/soneium",
-        "standard": "EIP3091"
-      },
-      {
-        "name": "SlamVision",
-        "url": "https://soneium.slam.vision",
-        "standard": "none"
-      }
-    ],
-    "parent": {
-      "type": "L2",
-      "chain": "eip155-1",
-      "bridges": [
-        {
-          "url": "https://superbridge.app/soneium"
-        }
-      ]
-    },
-    "tvl": 7741326.165063335,
-    "chainSlug": "soneium",
     "isTestnet": false
   },
   {
@@ -4744,7 +4744,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 7306773.944832518,
+    "tvl": 7319306.639003107,
     "chainSlug": "fantom",
     "isTestnet": false
   },
@@ -4809,7 +4809,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 6612731.828431806,
+    "tvl": 6650598.699133275,
     "chainSlug": "core",
     "isTestnet": false
   },
@@ -4857,7 +4857,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 5964457.231918361,
+    "tvl": 6002561.126191965,
     "chainSlug": "zircuit",
     "isTestnet": false
   },
@@ -4929,7 +4929,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 5916959.046560291,
+    "tvl": 5743757.192706613,
     "chainSlug": "manta",
     "isTestnet": false
   },
@@ -4977,7 +4977,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 5761330.961265521,
+    "tvl": 5546964.616402207,
     "chainSlug": "tac",
     "isTestnet": false
   },
@@ -5016,7 +5016,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 4998169.6891000485,
+    "tvl": 5009200.720026085,
     "chainSlug": "citrea",
     "isTestnet": false
   },
@@ -5062,7 +5062,7 @@
         }
       ]
     },
-    "tvl": 4980742.904649555,
+    "tvl": 4989412.867648536,
     "chainSlug": "sophon",
     "isTestnet": false
   },
@@ -5150,7 +5150,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 4786094.756353127,
+    "tvl": 4807572.637288568,
     "chainSlug": "taiko",
     "isTestnet": false
   },
@@ -5191,7 +5191,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 4708105.351097843,
+    "tvl": 4749838.860035198,
     "chainSlug": "cronos zkevm",
     "isTestnet": false
   },
@@ -5243,7 +5243,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 4697239.862075587,
+    "tvl": 4743886.555081193,
     "chainSlug": "aurora",
     "isTestnet": false
   },
@@ -5325,7 +5325,7 @@
         }
       ]
     },
-    "tvl": 3637308.8580237683,
+    "tvl": 3648183.846413772,
     "chainSlug": "metis",
     "isTestnet": false
   },
@@ -5392,35 +5392,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 3445025.0853575463,
+    "tvl": 3445003.274426466,
     "chainSlug": "canto",
-    "isTestnet": false
-  },
-  {
-    "name": "Nibiru cataclysm-1",
-    "chain": "Nibiru",
-    "rpc": [
-      {
-        "url": "https://evm-rpc.nibiru.fi"
-      },
-      {
-        "url": "wss://evm-rpc-ws.nibiru.fi"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "NIBI",
-      "symbol": "NIBI",
-      "decimals": 18
-    },
-    "infoURL": "https://nibiru.fi",
-    "shortName": "cataclysm-1",
-    "chainId": 6900,
-    "networkId": 6900,
-    "icon": "nibiru",
-    "explorers": [],
-    "tvl": 3372598.243095775,
-    "chainSlug": "nibiru",
     "isTestnet": false
   },
   {
@@ -5499,8 +5472,35 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 3356514.1226187595,
+    "tvl": 3385635.791175253,
     "chainSlug": "astar",
+    "isTestnet": false
+  },
+  {
+    "name": "Nibiru cataclysm-1",
+    "chain": "Nibiru",
+    "rpc": [
+      {
+        "url": "https://evm-rpc.nibiru.fi"
+      },
+      {
+        "url": "wss://evm-rpc-ws.nibiru.fi"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "NIBI",
+      "symbol": "NIBI",
+      "decimals": 18
+    },
+    "infoURL": "https://nibiru.fi",
+    "shortName": "cataclysm-1",
+    "chainId": 6900,
+    "networkId": 6900,
+    "icon": "nibiru",
+    "explorers": [],
+    "tvl": 3371623.983499474,
+    "chainSlug": "nibiru",
     "isTestnet": false
   },
   {
@@ -5560,7 +5560,7 @@
         "url": "https://scan.chiliz.com"
       }
     ],
-    "tvl": 3053071.7611150187,
+    "tvl": 3057735.1451463113,
     "chainSlug": "chiliz",
     "isTestnet": false
   },
@@ -5615,7 +5615,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 2917526.6494054305,
+    "tvl": 2926383.686747589,
     "chainSlug": "mode",
     "isTestnet": false
   },
@@ -5655,7 +5655,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 2794208.6534562996,
+    "tvl": 2822032.258275114,
     "chainSlug": "apechain",
     "isTestnet": false
   },
@@ -5690,7 +5690,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 2466856.5947132893,
+    "tvl": 2475147.9912342774,
     "chainSlug": "wanchain",
     "isTestnet": false
   },
@@ -5743,7 +5743,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 2438157.4686922645,
+    "tvl": 2433592.2401636676,
     "chainSlug": "iotex",
     "isTestnet": false
   },
@@ -5790,7 +5790,7 @@
         }
       ]
     },
-    "tvl": 2420834.752439892,
+    "tvl": 2426507.4931129506,
     "chainSlug": "gatelayer",
     "isTestnet": false
   },
@@ -5835,7 +5835,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 2094599.0717608947,
+    "tvl": 2120967.919640271,
     "chainSlug": "somnia",
     "isTestnet": false
   },
@@ -5865,7 +5865,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 2047639.6232891646,
+    "tvl": 2035728.47604205,
     "chainSlug": "stratis",
     "isTestnet": false
   },
@@ -5914,7 +5914,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 2039458.6411349815,
+    "tvl": 2002521.0774547218,
     "chainSlug": "telos",
     "isTestnet": false
   },
@@ -5989,7 +5989,7 @@
         }
       ]
     },
-    "tvl": 1914767.877267254,
+    "tvl": 1927688.7161154463,
     "chainSlug": "boba",
     "isTestnet": false
   },
@@ -6082,7 +6082,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 1665245.9948606845,
+    "tvl": 1623102.5302091704,
     "chainSlug": "moonriver",
     "isTestnet": false
   },
@@ -6130,7 +6130,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1482965.4343791287,
+    "tvl": 1481144.7180658472,
     "chainSlug": "okexchain",
     "isTestnet": false
   },
@@ -6251,7 +6251,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 1424293.2894038777,
+    "tvl": 1447247.7743888153,
     "chainSlug": "moonbeam",
     "isTestnet": false
   },
@@ -6281,7 +6281,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1391905.987037281,
+    "tvl": 1406169.4439741487,
     "chainSlug": "dexalot",
     "isTestnet": false
   },
@@ -6318,7 +6318,7 @@
     "redFlags": [
       "reusedChainId"
     ],
-    "tvl": 1356462.028746107,
+    "tvl": 1377226.6694833757,
     "chainSlug": "bitkub",
     "isTestnet": false
   },
@@ -6366,8 +6366,55 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1144727.7632338307,
+    "tvl": 1187113.3369025046,
     "chainSlug": "eni",
+    "isTestnet": false
+  },
+  {
+    "name": "IOTA EVM",
+    "title": "IOTA EVM",
+    "chain": "IOTA EVM",
+    "rpc": [
+      {
+        "url": "https://json-rpc.evm.iotaledger.net"
+      },
+      {
+        "url": "https://iota-mainnet-evm.public.blastapi.io",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://rpc.ankr.com/iota_evm",
+        "tracking": "none"
+      },
+      {
+        "url": "https://iota-mainnet.gateway.tatum.io",
+        "tracking": "yes"
+      },
+      {
+        "url": "wss://ws.json-rpc.evm.iotaledger.net"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "IOTA",
+      "symbol": "IOTA",
+      "decimals": 18
+    },
+    "infoURL": "https://www.iota.org",
+    "shortName": "iotaevm",
+    "chainId": 8822,
+    "networkId": 8822,
+    "icon": "iotaevm",
+    "explorers": [
+      {
+        "name": "explorer",
+        "url": "https://explorer.evm.iota.org",
+        "icon": "iotaevm",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 1058332.6141791344,
+    "chainSlug": "iota evm",
     "isTestnet": false
   },
   {
@@ -6453,55 +6500,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1050525.5185556528,
+    "tvl": 1055816.4901491357,
     "chainSlug": "op_bnb",
-    "isTestnet": false
-  },
-  {
-    "name": "IOTA EVM",
-    "title": "IOTA EVM",
-    "chain": "IOTA EVM",
-    "rpc": [
-      {
-        "url": "https://json-rpc.evm.iotaledger.net"
-      },
-      {
-        "url": "https://iota-mainnet-evm.public.blastapi.io",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://rpc.ankr.com/iota_evm",
-        "tracking": "none"
-      },
-      {
-        "url": "https://iota-mainnet.gateway.tatum.io",
-        "tracking": "yes"
-      },
-      {
-        "url": "wss://ws.json-rpc.evm.iotaledger.net"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "IOTA",
-      "symbol": "IOTA",
-      "decimals": 18
-    },
-    "infoURL": "https://www.iota.org",
-    "shortName": "iotaevm",
-    "chainId": 8822,
-    "networkId": 8822,
-    "icon": "iotaevm",
-    "explorers": [
-      {
-        "name": "explorer",
-        "url": "https://explorer.evm.iota.org",
-        "icon": "iotaevm",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 1039719.6415418941,
-    "chainSlug": "iota evm",
     "isTestnet": false
   },
   {
@@ -6556,7 +6556,7 @@
     "redFlags": [
       "reusedChainId"
     ],
-    "tvl": 942668.3067804951,
+    "tvl": 931780.7296587622,
     "chainSlug": "lukso",
     "isTestnet": false
   },
@@ -6602,51 +6602,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 917988.867503455,
+    "tvl": 913259.7050152642,
     "chainSlug": "beam",
-    "isTestnet": false
-  },
-  {
-    "name": "GOAT Network",
-    "title": "GOAT Network",
-    "chain": "GOAT",
-    "rpc": [
-      {
-        "url": "https://rpc.goat.network"
-      },
-      {
-        "url": "https://goat-mainnet-alpha.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "wss://goat-mainnet-alpha.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "https://rpc.ankr.com/goat_mainnet",
-        "tracking": "none"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Bitcoin",
-      "symbol": "BTC",
-      "decimals": 18
-    },
-    "infoURL": "https://www.goat.network",
-    "shortName": "goat",
-    "chainId": 2345,
-    "networkId": 2345,
-    "icon": "goat",
-    "explorers": [
-      {
-        "name": "blockscout",
-        "url": "https://explorer.goat.network",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 776561.5981828689,
-    "chainSlug": "goat",
     "isTestnet": false
   },
   {
@@ -6692,8 +6649,51 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 772644.5834664677,
+    "tvl": 790685.0735194109,
     "chainSlug": "kucoin",
+    "isTestnet": false
+  },
+  {
+    "name": "GOAT Network",
+    "title": "GOAT Network",
+    "chain": "GOAT",
+    "rpc": [
+      {
+        "url": "https://rpc.goat.network"
+      },
+      {
+        "url": "https://goat-mainnet-alpha.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "wss://goat-mainnet-alpha.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "https://rpc.ankr.com/goat_mainnet",
+        "tracking": "none"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Bitcoin",
+      "symbol": "BTC",
+      "decimals": 18
+    },
+    "infoURL": "https://www.goat.network",
+    "shortName": "goat",
+    "chainId": 2345,
+    "networkId": 2345,
+    "icon": "goat",
+    "explorers": [
+      {
+        "name": "blockscout",
+        "url": "https://explorer.goat.network",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 782463.8967263061,
+    "chainSlug": "goat",
     "isTestnet": false
   },
   {
@@ -6728,7 +6728,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 728599.5534079472,
+    "tvl": 730745.4924168107,
     "chainSlug": "peaq",
     "isTestnet": false
   },
@@ -6758,7 +6758,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 725950.2978916112,
+    "tvl": 725800.629969135,
     "chainSlug": "hela",
     "isTestnet": false
   },
@@ -6803,7 +6803,7 @@
       "type": "L2",
       "chain": "eip155-11155111"
     },
-    "tvl": 716642.1882584244,
+    "tvl": 718101.416504119,
     "chainSlug": "doma",
     "isTestnet": false
   },
@@ -6855,7 +6855,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 700242.6319698071,
+    "tvl": 709245.7177830148,
     "chainSlug": "lisk",
     "isTestnet": false
   },
@@ -6894,7 +6894,7 @@
     "chainId": 88,
     "networkId": 88,
     "slip44": 889,
-    "tvl": 657605.292342782,
+    "tvl": 693492.8371030982,
     "chainSlug": "tomochain",
     "isTestnet": false
   },
@@ -6941,7 +6941,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 595319.4438266449,
+    "tvl": 596968.4638623077,
     "chainSlug": "bitlayer",
     "isTestnet": false
   },
@@ -6974,6 +6974,41 @@
     ],
     "tvl": 594110.478394736,
     "chainSlug": "polynomial",
+    "isTestnet": false
+  },
+  {
+    "name": "DFK Chain",
+    "chain": "DFK",
+    "icon": "dfk",
+    "rpc": [
+      {
+        "url": "https://subnets.avax.network/defi-kingdoms/dfk-chain/rpc"
+      },
+      {
+        "url": "https://avax-dfk.api.pocket.network",
+        "tracking": "none"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Jewel",
+      "symbol": "JEWEL",
+      "decimals": 18
+    },
+    "infoURL": "https://defikingdoms.com",
+    "shortName": "DFK",
+    "chainId": 53935,
+    "networkId": 53935,
+    "explorers": [
+      {
+        "name": "ethernal",
+        "url": "https://explorer.dfkchain.com",
+        "icon": "ethereum",
+        "standard": "none"
+      }
+    ],
+    "tvl": 591595.4066213253,
+    "chainSlug": "dfk",
     "isTestnet": false
   },
   {
@@ -7035,43 +7070,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 555959.1684479294,
+    "tvl": 567958.4887334972,
     "chainSlug": "fuse",
-    "isTestnet": false
-  },
-  {
-    "name": "DFK Chain",
-    "chain": "DFK",
-    "icon": "dfk",
-    "rpc": [
-      {
-        "url": "https://subnets.avax.network/defi-kingdoms/dfk-chain/rpc"
-      },
-      {
-        "url": "https://avax-dfk.api.pocket.network",
-        "tracking": "none"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Jewel",
-      "symbol": "JEWEL",
-      "decimals": 18
-    },
-    "infoURL": "https://defikingdoms.com",
-    "shortName": "DFK",
-    "chainId": 53935,
-    "networkId": 53935,
-    "explorers": [
-      {
-        "name": "ethernal",
-        "url": "https://explorer.dfkchain.com",
-        "icon": "ethereum",
-        "standard": "none"
-      }
-    ],
-    "tvl": 555588.121932323,
-    "chainSlug": "dfk",
     "isTestnet": false
   },
   {
@@ -7100,7 +7100,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 526230.263464483,
+    "tvl": 541957.289529834,
     "chainSlug": "bouncebit",
     "isTestnet": false
   },
@@ -7137,7 +7137,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 514369.97139695415,
+    "tvl": 515564.43026299175,
     "chainSlug": "sapphire",
     "isTestnet": false
   },
@@ -7193,7 +7193,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 494732.4552114111,
+    "tvl": 502633.18681688164,
     "chainSlug": "zetachain",
     "isTestnet": false
   },
@@ -7273,7 +7273,7 @@
         }
       ]
     },
-    "tvl": 490807.17310241744,
+    "tvl": 490952.29997470893,
     "chainSlug": "polygon zkevm",
     "isTestnet": false
   },
@@ -7311,7 +7311,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 483589.89498646953,
+    "tvl": 477369.93558815634,
     "chainSlug": "kasplex",
     "isTestnet": false
   },
@@ -7348,7 +7348,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 419527.29961403273,
+    "tvl": 414602.9404335615,
     "chainSlug": "oasys",
     "isTestnet": false
   },
@@ -7403,7 +7403,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 396512.29961630196,
+    "tvl": 397092.06406085956,
     "chainSlug": "dogechain",
     "isTestnet": false
   },
@@ -7442,32 +7442,47 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 365373.22358643543,
+    "tvl": 368503.7161660823,
     "chainSlug": "meter",
     "isTestnet": false
   },
   {
-    "name": "Carbon EVM",
-    "chain": "Carbon",
-    "icon": "carbon",
+    "name": "BitTorrent Chain Mainnet",
+    "chain": "BTTC",
+    "icon": "bttc",
     "rpc": [
       {
-        "url": "https://evm-api.carbon.network"
+        "url": "https://rpc.bittorrentchain.io"
+      },
+      {
+        "url": "https://rpc.bt.io"
+      },
+      {
+        "url": "https://bittorrent.drpc.org"
+      },
+      {
+        "url": "wss://bittorrent.drpc.org"
       }
     ],
     "faucets": [],
     "nativeCurrency": {
-      "name": "swth",
-      "symbol": "SWTH",
+      "name": "BitTorrent",
+      "symbol": "BTT",
       "decimals": 18
     },
-    "infoURL": "https://carbon.network/",
-    "shortName": "carbon",
-    "chainId": 9790,
-    "networkId": 9790,
-    "explorers": [],
-    "tvl": 340396.5534065615,
-    "chainSlug": "carbon",
+    "infoURL": "https://bt.io",
+    "shortName": "BTT",
+    "chainId": 199,
+    "networkId": 199,
+    "explorers": [
+      {
+        "name": "BitTorrent Chain Explorer",
+        "url": "https://bttcscan.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 324523.90298230166,
+    "chainSlug": "bittorrent",
     "isTestnet": false
   },
   {
@@ -7545,7 +7560,7 @@
         }
       ]
     },
-    "tvl": 306516.40713200177,
+    "tvl": 308400.6535540528,
     "chainSlug": "arbitrum nova",
     "isTestnet": false
   },
@@ -7580,47 +7595,32 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 258815.55756016803,
+    "tvl": 265212.73408439837,
     "chainSlug": "zilliqa",
     "isTestnet": false
   },
   {
-    "name": "BitTorrent Chain Mainnet",
-    "chain": "BTTC",
-    "icon": "bttc",
+    "name": "Carbon EVM",
+    "chain": "Carbon",
+    "icon": "carbon",
     "rpc": [
       {
-        "url": "https://rpc.bittorrentchain.io"
-      },
-      {
-        "url": "https://rpc.bt.io"
-      },
-      {
-        "url": "https://bittorrent.drpc.org"
-      },
-      {
-        "url": "wss://bittorrent.drpc.org"
+        "url": "https://evm-api.carbon.network"
       }
     ],
     "faucets": [],
     "nativeCurrency": {
-      "name": "BitTorrent",
-      "symbol": "BTT",
+      "name": "swth",
+      "symbol": "SWTH",
       "decimals": 18
     },
-    "infoURL": "https://bt.io",
-    "shortName": "BTT",
-    "chainId": 199,
-    "networkId": 199,
-    "explorers": [
-      {
-        "name": "BitTorrent Chain Explorer",
-        "url": "https://bttcscan.com",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 249015.31407574922,
-    "chainSlug": "bittorrent",
+    "infoURL": "https://carbon.network/",
+    "shortName": "carbon",
+    "chainId": 9790,
+    "networkId": 9790,
+    "explorers": [],
+    "tvl": 255205.3254337189,
+    "chainSlug": "carbon",
     "isTestnet": false
   },
   {
@@ -7648,7 +7648,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 243271.5679669154,
+    "tvl": 245728.1738560529,
     "chainSlug": "theta",
     "isTestnet": false
   },
@@ -7689,7 +7689,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 241835.29480458001,
+    "tvl": 243811.96184434494,
     "chainSlug": "csc",
     "isTestnet": false
   },
@@ -7733,49 +7733,58 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 231844.25797558745,
+    "tvl": 233120.36593111328,
     "chainSlug": "thundercore",
     "isTestnet": false
   },
   {
-    "name": "Smart Bitcoin Cash",
-    "chain": "smartBCH",
+    "name": "Elastos Smart Chain",
+    "chain": "ETH",
     "rpc": [
       {
-        "url": "https://smartbch.fountainhead.cash/mainnet"
+        "url": "https://api.elastos.io/esc"
       },
       {
-        "url": "https://global.uat.cash"
+        "url": "https://api.trinity-tech.io/esc"
       },
       {
-        "url": "https://rpc.uatvo.com"
+        "url": "https://api2.elastos.io/esc"
       },
       {
-        "url": "https://bch-mainnet.gateway.tatum.io",
-        "tracking": "yes"
+        "url": "https://api2.elastos.net/esc"
       },
       {
-        "url": "https://smartbch.greyh.at"
+        "url": "https://api2.elastos.io/eth"
       },
       {
-        "url": "https://rpc-mainnet.smartbch.org"
+        "url": "https://api2.elastos.net/eth"
       },
       {
-        "url": "https://smartbch.devops.cash/mainnet"
+        "url": "https://rpc.glidefinance.io"
+      },
+      {
+        "url": "https://api.elastos.io/eth"
       }
     ],
     "faucets": [],
     "nativeCurrency": {
-      "name": "Bitcoin Cash",
-      "symbol": "BCH",
+      "name": "Elastos",
+      "symbol": "ELA",
       "decimals": 18
     },
-    "infoURL": "https://smartbch.org/",
-    "shortName": "smartbch",
-    "chainId": 10000,
-    "networkId": 10000,
-    "tvl": 216582.95192472526,
-    "chainSlug": "smartbch",
+    "infoURL": "https://www.elastos.org/",
+    "shortName": "esc",
+    "chainId": 20,
+    "networkId": 20,
+    "explorers": [
+      {
+        "name": "elastos esc explorer",
+        "url": "https://esc.elastos.io",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 222014.1571625396,
+    "chainSlug": "elastos",
     "isTestnet": false
   },
   {
@@ -7844,7 +7853,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 211356.42919808725,
+    "tvl": 213764.13589014582,
     "chainSlug": "harmony",
     "isTestnet": false
   },
@@ -7885,7 +7894,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 193246.34597389176,
+    "tvl": 193600.1799235804,
     "chainSlug": "oasis",
     "isTestnet": false
   },
@@ -7953,58 +7962,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 189790.8294372204,
+    "tvl": 192763.18008057878,
     "chainSlug": "songbird",
-    "isTestnet": false
-  },
-  {
-    "name": "Elastos Smart Chain",
-    "chain": "ETH",
-    "rpc": [
-      {
-        "url": "https://api.elastos.io/esc"
-      },
-      {
-        "url": "https://api.trinity-tech.io/esc"
-      },
-      {
-        "url": "https://api2.elastos.io/esc"
-      },
-      {
-        "url": "https://api2.elastos.net/esc"
-      },
-      {
-        "url": "https://api2.elastos.io/eth"
-      },
-      {
-        "url": "https://api2.elastos.net/eth"
-      },
-      {
-        "url": "https://rpc.glidefinance.io"
-      },
-      {
-        "url": "https://api.elastos.io/eth"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Elastos",
-      "symbol": "ELA",
-      "decimals": 18
-    },
-    "infoURL": "https://www.elastos.org/",
-    "shortName": "esc",
-    "chainId": 20,
-    "networkId": 20,
-    "explorers": [
-      {
-        "name": "elastos esc explorer",
-        "url": "https://esc.elastos.io",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 186535.08634822373,
-    "chainSlug": "elastos",
     "isTestnet": false
   },
   {
@@ -8036,8 +7995,42 @@
         "standard": "none"
       }
     ],
-    "tvl": 174735.66739223173,
+    "tvl": 176106.2775978722,
     "chainSlug": "edu chain",
+    "isTestnet": false
+  },
+  {
+    "name": "Shape",
+    "chain": "ETH",
+    "rpc": [
+      {
+        "url": "https://mainnet.shape.network"
+      },
+      {
+        "url": "https://shape-mainnet.g.alchemy.com/public"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://shape.network",
+    "shortName": "shape",
+    "chainId": 360,
+    "networkId": 360,
+    "icon": "shape",
+    "explorers": [
+      {
+        "name": "shapescan",
+        "url": "https://shapescan.xyz",
+        "standard": "EIP3091"
+      }
+    ],
+    "status": "active",
+    "tvl": 161073.52164963313,
+    "chainSlug": "shape",
     "isTestnet": false
   },
   {
@@ -8072,42 +8065,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 161534.22969704962,
+    "tvl": 160357.223194355,
     "chainSlug": "velas",
-    "isTestnet": false
-  },
-  {
-    "name": "Shape",
-    "chain": "ETH",
-    "rpc": [
-      {
-        "url": "https://mainnet.shape.network"
-      },
-      {
-        "url": "https://shape-mainnet.g.alchemy.com/public"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://shape.network",
-    "shortName": "shape",
-    "chainId": 360,
-    "networkId": 360,
-    "icon": "shape",
-    "explorers": [
-      {
-        "name": "shapescan",
-        "url": "https://shapescan.xyz",
-        "standard": "EIP3091"
-      }
-    ],
-    "status": "active",
-    "tvl": 158704.69719309622,
-    "chainSlug": "shape",
     "isTestnet": false
   },
   {
@@ -8167,43 +8126,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 138850.64263182416,
+    "tvl": 136975.51730371895,
     "chainSlug": "lens",
-    "isTestnet": false
-  },
-  {
-    "name": "Odyssey Chain Mainnet",
-    "chain": "DIONE",
-    "rpc": [
-      {
-        "url": "https://node.dioneprotocol.com/ext/bc/D/rpc"
-      }
-    ],
-    "faucets": [],
-    "features": [
-      {
-        "name": "EIP155"
-      }
-    ],
-    "infoURL": "https://www.dioneprotocol.com",
-    "shortName": "Odyssey",
-    "chainId": 153153,
-    "networkId": 153153,
-    "icon": "odysseyChain",
-    "nativeCurrency": {
-      "name": "DIONE",
-      "symbol": "DIONE",
-      "decimals": 18
-    },
-    "explorers": [
-      {
-        "name": "Odyssey Scan",
-        "url": "https://odysseyscan.com",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 132985.73014903956,
-    "chainSlug": "odyssey",
     "isTestnet": false
   },
   {
@@ -8228,7 +8152,7 @@
     "chainId": 39797,
     "networkId": 39797,
     "slip44": 39797,
-    "tvl": 125642.43516978384,
+    "tvl": 126981.28762548632,
     "chainSlug": "energi",
     "isTestnet": false
   },
@@ -8299,8 +8223,43 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 125454.36150471275,
+    "tvl": 126472.41753578588,
     "chainSlug": "dymension",
+    "isTestnet": false
+  },
+  {
+    "name": "Odyssey Chain Mainnet",
+    "chain": "DIONE",
+    "rpc": [
+      {
+        "url": "https://node.dioneprotocol.com/ext/bc/D/rpc"
+      }
+    ],
+    "faucets": [],
+    "features": [
+      {
+        "name": "EIP155"
+      }
+    ],
+    "infoURL": "https://www.dioneprotocol.com",
+    "shortName": "Odyssey",
+    "chainId": 153153,
+    "networkId": 153153,
+    "icon": "odysseyChain",
+    "nativeCurrency": {
+      "name": "DIONE",
+      "symbol": "DIONE",
+      "decimals": 18
+    },
+    "explorers": [
+      {
+        "name": "Odyssey Scan",
+        "url": "https://odysseyscan.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 124364.3517605628,
+    "chainSlug": "odyssey",
     "isTestnet": false
   },
   {
@@ -8396,7 +8355,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 109202.8047884308,
+    "tvl": 110485.65602055445,
     "chainSlug": "ethereumclassic",
     "isTestnet": false
   },
@@ -8478,6 +8437,52 @@
     "isTestnet": false
   },
   {
+    "name": "Neon EVM Mainnet",
+    "chain": "Solana",
+    "rpc": [
+      {
+        "url": "https://neon-proxy-mainnet.solana.p2p.org"
+      },
+      {
+        "url": "https://neon-mainnet.everstake.one"
+      },
+      {
+        "url": "https://neon-evm.drpc.org",
+        "tracking": "none"
+      },
+      {
+        "url": "wss://neon-evm.drpc.org",
+        "tracking": "none"
+      }
+    ],
+    "faucets": [],
+    "icon": "neon",
+    "nativeCurrency": {
+      "name": "Neon",
+      "symbol": "NEON",
+      "decimals": 18
+    },
+    "infoURL": "https://neonevm.org",
+    "shortName": "neonevm-mainnet",
+    "chainId": 245022934,
+    "networkId": 245022934,
+    "explorers": [
+      {
+        "name": "neonscan",
+        "url": "https://neonscan.org",
+        "standard": "EIP3091"
+      },
+      {
+        "name": "native",
+        "url": "https://neon.blockscout.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 81502.26727580864,
+    "chainSlug": "neon",
+    "isTestnet": false
+  },
+  {
     "name": "Gravity Alpha Mainnet",
     "chain": "Gravity",
     "rpc": [
@@ -8537,88 +8542,8 @@
         }
       ]
     },
-    "tvl": 79847.0034565772,
+    "tvl": 77725.29244845896,
     "chainSlug": "gravity",
-    "isTestnet": false
-  },
-  {
-    "name": "Botanix Mainnet",
-    "chain": "BOTANIX",
-    "icon": "botanix",
-    "rpc": [
-      {
-        "url": "https://rpc.ankr.com/botanix_mainnet",
-        "tracking": "none"
-      },
-      {
-        "url": "https://rpc.botanixlabs.com"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Botanix",
-      "symbol": "BTC",
-      "decimals": 18
-    },
-    "infoURL": "https://botanixlabs.com",
-    "shortName": "BTNX",
-    "chainId": 3637,
-    "networkId": 3637,
-    "explorers": [
-      {
-        "name": "Botanix Explorer",
-        "url": "https://botanixscan.io",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 79120.14018285346,
-    "chainSlug": "botanix",
-    "isTestnet": false
-  },
-  {
-    "name": "Neon EVM Mainnet",
-    "chain": "Solana",
-    "rpc": [
-      {
-        "url": "https://neon-proxy-mainnet.solana.p2p.org"
-      },
-      {
-        "url": "https://neon-mainnet.everstake.one"
-      },
-      {
-        "url": "https://neon-evm.drpc.org",
-        "tracking": "none"
-      },
-      {
-        "url": "wss://neon-evm.drpc.org",
-        "tracking": "none"
-      }
-    ],
-    "faucets": [],
-    "icon": "neon",
-    "nativeCurrency": {
-      "name": "Neon",
-      "symbol": "NEON",
-      "decimals": 18
-    },
-    "infoURL": "https://neonevm.org",
-    "shortName": "neonevm-mainnet",
-    "chainId": 245022934,
-    "networkId": 245022934,
-    "explorers": [
-      {
-        "name": "neonscan",
-        "url": "https://neonscan.org",
-        "standard": "EIP3091"
-      },
-      {
-        "name": "native",
-        "url": "https://neon.blockscout.com",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 77548.83567355083,
-    "chainSlug": "neon",
     "isTestnet": false
   },
   {
@@ -8662,7 +8587,7 @@
         }
       ]
     },
-    "tvl": 77537.53387922737,
+    "tvl": 77614.2216674578,
     "chainSlug": "zkfair",
     "isTestnet": false
   },
@@ -8693,7 +8618,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 76306.32404117525,
+    "tvl": 76299.6212569823,
     "chainSlug": "ultron",
     "isTestnet": false
   },
@@ -8733,8 +8658,42 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 73166.23866561959,
+    "tvl": 73155.1352678611,
     "chainSlug": "lightlink",
+    "isTestnet": false
+  },
+  {
+    "name": "Botanix Mainnet",
+    "chain": "BOTANIX",
+    "icon": "botanix",
+    "rpc": [
+      {
+        "url": "https://rpc.ankr.com/botanix_mainnet",
+        "tracking": "none"
+      },
+      {
+        "url": "https://rpc.botanixlabs.com"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Botanix",
+      "symbol": "BTC",
+      "decimals": 18
+    },
+    "infoURL": "https://botanixlabs.com",
+    "shortName": "BTNX",
+    "chainId": 3637,
+    "networkId": 3637,
+    "explorers": [
+      {
+        "name": "Botanix Explorer",
+        "url": "https://botanixscan.io",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 70663.04002384815,
+    "chainSlug": "botanix",
     "isTestnet": false
   },
   {
@@ -8776,7 +8735,7 @@
       }
     ],
     "status": "active",
-    "tvl": 67660.4950824152,
+    "tvl": 68709.33159304535,
     "chainSlug": "superseed",
     "isTestnet": false
   },
@@ -8813,7 +8772,7 @@
         "url": "https://pepuscan.com/"
       }
     ],
-    "tvl": 62094.108543241295,
+    "tvl": 62125.07386702126,
     "chainSlug": "pepu",
     "isTestnet": false
   },
@@ -8846,7 +8805,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 60101.5581177946,
+    "tvl": 58929.04680366379,
     "chainSlug": "energyweb",
     "isTestnet": false
   },
@@ -8921,6 +8880,47 @@
     "isTestnet": false
   },
   {
+    "name": "Smart Bitcoin Cash",
+    "chain": "smartBCH",
+    "rpc": [
+      {
+        "url": "https://smartbch.fountainhead.cash/mainnet"
+      },
+      {
+        "url": "https://global.uat.cash"
+      },
+      {
+        "url": "https://rpc.uatvo.com"
+      },
+      {
+        "url": "https://bch-mainnet.gateway.tatum.io",
+        "tracking": "yes"
+      },
+      {
+        "url": "https://smartbch.greyh.at"
+      },
+      {
+        "url": "https://rpc-mainnet.smartbch.org"
+      },
+      {
+        "url": "https://smartbch.devops.cash/mainnet"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Bitcoin Cash",
+      "symbol": "BCH",
+      "decimals": 18
+    },
+    "infoURL": "https://smartbch.org/",
+    "shortName": "smartbch",
+    "chainId": 10000,
+    "networkId": 10000,
+    "tvl": 41545.47665411138,
+    "chainSlug": "smartbch",
+    "isTestnet": false
+  },
+  {
     "name": "CrossFi Mainnet",
     "icon": "crossfi",
     "chain": "crossfi",
@@ -8947,7 +8947,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 38645.44157060291,
+    "tvl": 38568.45312570889,
     "chainSlug": "crossfi",
     "isTestnet": false
   },
@@ -8989,47 +8989,8 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 31390.477705559006,
+    "tvl": 31760.872167089172,
     "chainSlug": "zora",
-    "isTestnet": false
-  },
-  {
-    "name": "Hydra Chain",
-    "chain": "HYDRA",
-    "rpc": [
-      {
-        "url": "https://rpc-mainnet.hydrachain.org"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Hydra",
-      "symbol": "HYDRA",
-      "decimals": 18
-    },
-    "features": [
-      {
-        "name": "EIP155"
-      },
-      {
-        "name": "EIP1559"
-      }
-    ],
-    "infoURL": "https://hydrachain.org",
-    "shortName": "HYDRA",
-    "chainId": 4488,
-    "networkId": 4488,
-    "icon": "hydra",
-    "explorers": [
-      {
-        "name": "Hydra Chain Mainnet explorer",
-        "url": "https://skynet.hydrachain.org",
-        "icon": "hydra",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 31079.43678367282,
-    "chainSlug": "hydra chain",
     "isTestnet": false
   },
   {
@@ -9152,7 +9113,7 @@
         }
       ]
     },
-    "tvl": 16722.124741552823,
+    "tvl": 16675.347966542387,
     "chainSlug": "matchain",
     "isTestnet": false
   },
@@ -9220,7 +9181,7 @@
         }
       ]
     },
-    "tvl": 16541.860854671417,
+    "tvl": 16542.57748532972,
     "chainSlug": "tombchain",
     "isTestnet": false
   },
@@ -9249,7 +9210,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 14924.700061113212,
+    "tvl": 15328.846800954167,
     "chainSlug": "endurance",
     "isTestnet": false
   },
@@ -9283,6 +9244,45 @@
     ],
     "tvl": 14898.059659041839,
     "chainSlug": "parex",
+    "isTestnet": false
+  },
+  {
+    "name": "Hydra Chain",
+    "chain": "HYDRA",
+    "rpc": [
+      {
+        "url": "https://rpc-mainnet.hydrachain.org"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Hydra",
+      "symbol": "HYDRA",
+      "decimals": 18
+    },
+    "features": [
+      {
+        "name": "EIP155"
+      },
+      {
+        "name": "EIP1559"
+      }
+    ],
+    "infoURL": "https://hydrachain.org",
+    "shortName": "HYDRA",
+    "chainId": 4488,
+    "networkId": 4488,
+    "icon": "hydra",
+    "explorers": [
+      {
+        "name": "Hydra Chain Mainnet explorer",
+        "url": "https://skynet.hydrachain.org",
+        "icon": "hydra",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 13439.298207575283,
+    "chainSlug": "hydra chain",
     "isTestnet": false
   },
   {
@@ -9322,7 +9322,7 @@
         }
       ]
     },
-    "tvl": 12043.707817795166,
+    "tvl": 12036.817720065665,
     "chainSlug": "step",
     "isTestnet": false
   },
@@ -9388,7 +9388,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 10577.627085932496,
+    "tvl": 10522.76046273538,
     "chainSlug": "omax",
     "isTestnet": false
   },
@@ -9610,7 +9610,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 6676.310880554025,
+    "tvl": 6646.313825317868,
     "chainSlug": "gochain",
     "isTestnet": false
   },
@@ -9657,7 +9657,7 @@
       ]
     },
     "status": "active",
-    "tvl": 6328.221271351073,
+    "tvl": 6414.066958867606,
     "chainSlug": "silicon zkevm",
     "isTestnet": false
   },
@@ -9697,7 +9697,7 @@
         "url": "https://mainnet.explorer.rarichain.org/"
       }
     ],
-    "tvl": 6022.204829379881,
+    "tvl": 6022.530031241175,
     "chainSlug": "rari",
     "isTestnet": false
   },
@@ -9800,7 +9800,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 5597.179453731886,
+    "tvl": 5595.946518852489,
     "chainSlug": "jbc",
     "isTestnet": false
   },
@@ -9838,7 +9838,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 5337.610326525468,
+    "tvl": 5485.039747843409,
     "chainSlug": "vinuchain",
     "isTestnet": false
   },
@@ -9881,6 +9881,48 @@
     ],
     "tvl": 4116.612326042085,
     "chainSlug": "callisto",
+    "isTestnet": false
+  },
+  {
+    "name": "Swan Chain Mainnet",
+    "chain": "SWAN",
+    "rpc": [
+      {
+        "url": "https://mainnet-rpc.swanchain.org"
+      },
+      {
+        "url": "https://mainnet-rpc-01.swanchain.org"
+      },
+      {
+        "url": "https://mainnet-rpc-02.swanchain.org"
+      },
+      {
+        "url": "https://mainnet-rpc-03.swanchain.org"
+      },
+      {
+        "url": "https://mainnet-rpc-04.swanchain.org"
+      }
+    ],
+    "faucets": [],
+    "icon": "swan",
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://swanchain.io/",
+    "shortName": "Swan",
+    "chainId": 254,
+    "networkId": 254,
+    "explorers": [
+      {
+        "name": "Swanchain Explorer",
+        "url": "https://swanscan.io",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 2649.777448787614,
+    "chainSlug": "swan",
     "isTestnet": false
   },
   {
@@ -9932,7 +9974,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 2285.2631647312314,
+    "tvl": 2303.502031216878,
     "chainSlug": "polkadot",
     "isTestnet": false
   },
@@ -9970,7 +10012,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 2089.967699309596,
+    "tvl": 2143.492647678965,
     "chainSlug": "darwinia",
     "isTestnet": false
   },
@@ -10053,7 +10095,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1435.6306869118564,
+    "tvl": 1403.0358488542133,
     "chainSlug": "ontologyevm",
     "isTestnet": false
   },
@@ -10083,7 +10125,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 1139.934324311931,
+    "tvl": 1141.636813618581,
     "chainSlug": "bitcichain",
     "isTestnet": false
   },
@@ -10115,7 +10157,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 1063.5551729649771,
+    "tvl": 1072.618435051891,
     "chainSlug": "rei",
     "isTestnet": false
   },
@@ -10159,7 +10201,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 523.2839389144368,
+    "tvl": 523.4181535796761,
     "chainSlug": "palm",
     "isTestnet": false
   },
@@ -10199,41 +10241,6 @@
     "isTestnet": false
   },
   {
-    "name": "MXC zkEVM Moonchain",
-    "chain": "MXC zkEVM",
-    "icon": "mxczkevm",
-    "rpc": [
-      {
-        "url": "https://rpc.mxc.com",
-        "tracking": "none"
-      },
-      {
-        "url": "wss://rpc.mxc.com/ws",
-        "tracking": "none"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "MXC zkEVM Moonchain",
-      "symbol": "MXC",
-      "decimals": 18
-    },
-    "infoURL": "https://doc.mxc.com/docs/intro",
-    "shortName": "MXCzkEVM",
-    "chainId": 18686,
-    "networkId": 18686,
-    "explorers": [
-      {
-        "name": "MXC zkEVM Moonchain",
-        "url": "https://explorer.moonchain.com",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 195.5699445610475,
-    "chainSlug": "moonchain",
-    "isTestnet": false
-  },
-  {
     "name": "Japan Open Chain Mainnet",
     "chain": "JOC",
     "rpc": [
@@ -10269,7 +10276,7 @@
     "redFlags": [
       "reusedChainId"
     ],
-    "tvl": 184.52495312774386,
+    "tvl": 179.95851998555784,
     "chainSlug": "joc",
     "isTestnet": false
   },
@@ -10294,7 +10301,7 @@
     "networkId": 666666666,
     "status": "incubating",
     "icon": "degen",
-    "tvl": 43.3385825624473,
+    "tvl": 44.425146596759596,
     "chainSlug": "degen",
     "isTestnet": false
   },
@@ -10324,7 +10331,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 5.037507573327751,
+    "tvl": 5.036537884228649,
     "chainSlug": "mtt network",
     "isTestnet": false
   },
@@ -10412,7 +10419,7 @@
         "standard": "none"
       }
     ],
-    "tvl": 0.3306709243623961,
+    "tvl": 0.3333087361371375,
     "chainSlug": "kusama",
     "isTestnet": false
   },
@@ -10447,6 +10454,41 @@
     ],
     "tvl": 0.02142208805858668,
     "chainSlug": "milkomeda",
+    "isTestnet": false
+  },
+  {
+    "name": "MXC zkEVM Moonchain",
+    "chain": "MXC zkEVM",
+    "icon": "mxczkevm",
+    "rpc": [
+      {
+        "url": "https://rpc.mxc.com",
+        "tracking": "none"
+      },
+      {
+        "url": "wss://rpc.mxc.com/ws",
+        "tracking": "none"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "MXC zkEVM Moonchain",
+      "symbol": "MXC",
+      "decimals": 18
+    },
+    "infoURL": "https://doc.mxc.com/docs/intro",
+    "shortName": "MXCzkEVM",
+    "chainId": 18686,
+    "networkId": 18686,
+    "explorers": [
+      {
+        "name": "MXC zkEVM Moonchain",
+        "url": "https://explorer.moonchain.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "tvl": 0.015910634445525963,
+    "chainSlug": "moonchain",
     "isTestnet": false
   },
   {
@@ -10509,7 +10551,7 @@
         "standard": "EIP3091"
       }
     ],
-    "tvl": 9.987684618908307e-19,
+    "tvl": 9.989991518699961e-19,
     "chainSlug": "bitgert",
     "isTestnet": false
   },
@@ -14051,48 +14093,6 @@
       "chain": "eip155-251"
     },
     "status": "active",
-    "isTestnet": false
-  },
-  {
-    "name": "Swan Chain Mainnet",
-    "chain": "SWAN",
-    "rpc": [
-      {
-        "url": "https://mainnet-rpc.swanchain.org"
-      },
-      {
-        "url": "https://mainnet-rpc-01.swanchain.org"
-      },
-      {
-        "url": "https://mainnet-rpc-02.swanchain.org"
-      },
-      {
-        "url": "https://mainnet-rpc-03.swanchain.org"
-      },
-      {
-        "url": "https://mainnet-rpc-04.swanchain.org"
-      }
-    ],
-    "faucets": [],
-    "icon": "swan",
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://swanchain.io/",
-    "shortName": "Swan",
-    "chainId": 254,
-    "networkId": 254,
-    "explorers": [
-      {
-        "name": "Swanchain Explorer",
-        "url": "https://swanscan.io",
-        "standard": "EIP3091"
-      }
-    ],
-    "tvl": 0,
-    "chainSlug": "swan",
     "isTestnet": false
   },
   {
@@ -55795,7 +55795,11 @@
     "name": "Robinhood Chain",
     "chain": "Robinhood Chain",
     "icon": "https://cdn.robinhood.com/assets/generated_assets/hoodchain_docsite/rh_favicon_120.png",
-    "rpc": [],
+    "rpc": [
+      {
+        "url": "https://rpc.mainnet.chain.robinhood.com"
+      }
+    ],
     "nativeCurrency": {
       "name": "Ether",
       "symbol": "ETH",
@@ -55805,8 +55809,14 @@
     "shortName": "robinhoodchain",
     "chainId": 4663,
     "networkId": 4663,
-    "explorers": [],
-    "status": "incubating",
+    "explorers": [
+      {
+        "name": "Robinhood Chain Blockscout Explorer",
+        "url": "https://robinhoodchain.blockscout.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "status": "active",
     "isTestnet": false
   },
   {
@@ -59320,7 +59330,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 79240081150.74559
+    "tvl": 79344701650.9904
   },
   {
     "name": "Ethereum Sepolia",
@@ -59479,7 +59489,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 79240081150.74559
+    "tvl": 79344701650.9904
   },
   {
     "name": "Base Goerli Testnet",
@@ -59554,7 +59564,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 6605491723.744946
+    "tvl": 6625857711.780705
   },
   {
     "name": "Base Sepolia Testnet",
@@ -59635,7 +59645,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 6605491723.744946
+    "tvl": 6625857711.780705
   },
   {
     "name": "BNB Smart Chain Testnet",
@@ -59736,7 +59746,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 6571919694.899182
+    "tvl": 6577602896.857446
   },
   {
     "name": "Arbitrum Goerli",
@@ -59801,7 +59811,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 1857478112.5571012
+    "tvl": 1853252673.398651
   },
   {
     "name": "Arbitrum Sepolia",
@@ -59887,7 +59897,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 1857478112.5571012
+    "tvl": 1853252673.398651
   },
   {
     "name": "Plasma Testnet",
@@ -59917,7 +59927,7 @@
     ],
     "testnet": true,
     "isTestnet": true,
-    "tvl": 1245531843.5292711
+    "tvl": 1234447096.9484422
   },
   {
     "name": "Ink Sepolia",
@@ -59964,7 +59974,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1198122922.0297947
+    "tvl": 1207017628.8467288
   },
   {
     "name": "Avalanche Fuji Testnet",
@@ -60045,7 +60055,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1046763849.2876412
+    "tvl": 1044622248.3280712
   },
   {
     "name": "Monad Testnet",
@@ -60122,7 +60132,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 686332278.2520248
+    "tvl": 689586815.6701654
   },
   {
     "name": "OP Sepolia Testnet",
@@ -60197,7 +60207,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 520602022.92877656
+    "tvl": 510202542.81834096
   },
   {
     "name": "Flare Testnet Coston2",
@@ -60260,7 +60270,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 335288321.22395295
+    "tvl": 331699012.1127104
   },
   {
     "name": "Cronos Testnet",
@@ -60305,7 +60315,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 290932411.0124444
+    "tvl": 292302423.5258324
   },
   {
     "name": "Mantle Testnet",
@@ -60336,7 +60346,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 258293866.60113627
+    "tvl": 257515276.25229385
   },
   {
     "name": "Mantle Sepolia Testnet",
@@ -60379,7 +60389,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 258293866.60113627
+    "tvl": 257515276.25229385
   },
   {
     "name": "Mantle Hoodi Testnet",
@@ -60410,7 +60420,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 258293866.60113627
+    "tvl": 257515276.25229385
   },
   {
     "name": "Stable Testnet",
@@ -60449,43 +60459,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 119569331.23128909
-  },
-  {
-    "name": "MegaETH Testnet",
-    "chain": "MegaETH",
-    "rpc": [
-      {
-        "url": "https://carrot.megaeth.com/rpc"
-      }
-    ],
-    "faucets": [
-      "https://testnet.megaeth.com"
-    ],
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://megaeth.com",
-    "shortName": "megaeth-testnet",
-    "chainId": 6343,
-    "networkId": 6343,
-    "icon": "megaeth",
-    "explorers": [
-      {
-        "name": "MegaETH Testnet Explorer",
-        "url": "https://testnet-mega.etherscan.io",
-        "standard": "EIP3091"
-      }
-    ],
-    "parent": {
-      "type": "L2",
-      "chain": "eip155-11155111"
-    },
-    "status": "active",
-    "isTestnet": true,
-    "tvl": 102169787.12988964
+    "tvl": 119712608.02849092
   },
   {
     "name": "Rootstock Testnet",
@@ -60529,7 +60503,43 @@
     ],
     "chainSlug": "trsk",
     "isTestnet": true,
-    "tvl": 101262721.49439284
+    "tvl": 109698191.4138536
+  },
+  {
+    "name": "MegaETH Testnet",
+    "chain": "MegaETH",
+    "rpc": [
+      {
+        "url": "https://carrot.megaeth.com/rpc"
+      }
+    ],
+    "faucets": [
+      "https://testnet.megaeth.com"
+    ],
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://megaeth.com",
+    "shortName": "megaeth-testnet",
+    "chainId": 6343,
+    "networkId": 6343,
+    "icon": "megaeth",
+    "explorers": [
+      {
+        "name": "MegaETH Testnet Explorer",
+        "url": "https://testnet-mega.etherscan.io",
+        "standard": "EIP3091"
+      }
+    ],
+    "parent": {
+      "type": "L2",
+      "chain": "eip155-11155111"
+    },
+    "status": "active",
+    "isTestnet": true,
+    "tvl": 101107702.57260913
   },
   {
     "name": "X Layer Testnet",
@@ -60581,7 +60591,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 86118406.81963347
+    "tvl": 87072467.2080786
   },
   {
     "name": "Hedera Testnet",
@@ -60644,7 +60654,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 80520686.80001429
+    "tvl": 81626339.15538403
   },
   {
     "name": "Mezo Testnet",
@@ -60689,7 +60699,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 67045626.007536076
+    "tvl": 67200426.63209777
   },
   {
     "name": "AILayer Testnet",
@@ -60722,7 +60732,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 59974493.08887193
+    "tvl": 61520658.69815063
   },
   {
     "name": "Hemi Sepolia",
@@ -60765,7 +60775,7 @@
     },
     "status": "active",
     "isTestnet": true,
-    "tvl": 49005892.586426556
+    "tvl": 47099684.20818605
   },
   {
     "name": "PulseChain Testnet v4",
@@ -60832,7 +60842,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 43522674.281253636
+    "tvl": 43916522.4380995
   },
   {
     "name": "Linea Goerli",
@@ -60885,7 +60895,7 @@
     ],
     "status": "active",
     "isTestnet": true,
-    "tvl": 38563213.21637505
+    "tvl": 38676745.39021604
   },
   {
     "name": "Linea Sepolia",
@@ -60958,7 +60968,7 @@
     ],
     "status": "active",
     "isTestnet": true,
-    "tvl": 38563213.21637505
+    "tvl": 38676745.39021604
   },
   {
     "name": "BOB Sepolia",
@@ -61009,7 +61019,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 33497811.48150502
+    "tvl": 33621363.85912901
   },
   {
     "name": "Kava Testnet",
@@ -61053,7 +61063,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 31425383.004046056
+    "tvl": 31221421.40179363
   },
   {
     "name": "Fraxtal Hoodi Testnet",
@@ -61088,90 +61098,7 @@
     "explorers": [],
     "status": "active",
     "isTestnet": true,
-    "tvl": 30886206.766702548
-  },
-  {
-    "name": "Blast Testnet",
-    "chain": "ETH",
-    "icon": "blastIcon",
-    "rpc": [
-      {
-        "url": "http://testnet-rpc.blastblockchain.com"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://docs.blastblockchain.com",
-    "shortName": "blastT",
-    "chainId": 23888,
-    "networkId": 23888,
-    "explorers": [
-      {
-        "name": "Blast Testnet",
-        "url": "http://testnet-explorer.blastblockchain.com",
-        "standard": "EIP3091"
-      }
-    ],
-    "isTestnet": true,
-    "tvl": 30244480.71556659
-  },
-  {
-    "name": "Blast Sepolia Testnet",
-    "chain": "ETH",
-    "rpc": [
-      {
-        "url": "https://sepolia.blast.io"
-      },
-      {
-        "url": "https://endpoints.omniatech.io/v1/blast/sepolia/public",
-        "tracking": "none"
-      },
-      {
-        "url": "https://blast-testnet-public.nodies.app",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://rpc.ankr.com/blast_testnet_sepolia",
-        "tracking": "none"
-      },
-      {
-        "url": "https://blast-sepolia.drpc.org"
-      },
-      {
-        "url": "wss://blast-sepolia.drpc.org"
-      }
-    ],
-    "faucets": [
-      "https://faucet.quicknode.com/blast/sepolia"
-    ],
-    "nativeCurrency": {
-      "name": "Sepolia Ether",
-      "symbol": "ETH",
-      "decimals": 18
-    },
-    "infoURL": "https://blast.io/",
-    "shortName": "blastsepolia",
-    "chainId": 168587773,
-    "networkId": 168587773,
-    "icon": "blast",
-    "explorers": [
-      {
-        "name": "Blast Sepolia Explorer",
-        "url": "https://testnet.blastscan.io",
-        "icon": "blast",
-        "standard": "EIP3091"
-      }
-    ],
-    "parent": {
-      "type": "L2",
-      "chain": "eip155-11155111"
-    },
-    "isTestnet": true,
-    "tvl": 30244480.71556659
+    "tvl": 30992568.482592132
   },
   {
     "name": "Unichain Sepolia Testnet",
@@ -61232,7 +61159,90 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 29812285.709184486
+    "tvl": 30507879.640038
+  },
+  {
+    "name": "Blast Testnet",
+    "chain": "ETH",
+    "icon": "blastIcon",
+    "rpc": [
+      {
+        "url": "http://testnet-rpc.blastblockchain.com"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://docs.blastblockchain.com",
+    "shortName": "blastT",
+    "chainId": 23888,
+    "networkId": 23888,
+    "explorers": [
+      {
+        "name": "Blast Testnet",
+        "url": "http://testnet-explorer.blastblockchain.com",
+        "standard": "EIP3091"
+      }
+    ],
+    "isTestnet": true,
+    "tvl": 30112835.69019339
+  },
+  {
+    "name": "Blast Sepolia Testnet",
+    "chain": "ETH",
+    "rpc": [
+      {
+        "url": "https://sepolia.blast.io"
+      },
+      {
+        "url": "https://endpoints.omniatech.io/v1/blast/sepolia/public",
+        "tracking": "none"
+      },
+      {
+        "url": "https://blast-testnet-public.nodies.app",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://rpc.ankr.com/blast_testnet_sepolia",
+        "tracking": "none"
+      },
+      {
+        "url": "https://blast-sepolia.drpc.org"
+      },
+      {
+        "url": "wss://blast-sepolia.drpc.org"
+      }
+    ],
+    "faucets": [
+      "https://faucet.quicknode.com/blast/sepolia"
+    ],
+    "nativeCurrency": {
+      "name": "Sepolia Ether",
+      "symbol": "ETH",
+      "decimals": 18
+    },
+    "infoURL": "https://blast.io/",
+    "shortName": "blastsepolia",
+    "chainId": 168587773,
+    "networkId": 168587773,
+    "icon": "blast",
+    "explorers": [
+      {
+        "name": "Blast Sepolia Explorer",
+        "url": "https://testnet.blastscan.io",
+        "icon": "blast",
+        "standard": "EIP3091"
+      }
+    ],
+    "parent": {
+      "type": "L2",
+      "chain": "eip155-11155111"
+    },
+    "isTestnet": true,
+    "tvl": 30112835.69019339
   },
   {
     "name": "Celo Sepolia Testnet",
@@ -61279,7 +61289,7 @@
     "chainId": 11142220,
     "networkId": 11142220,
     "isTestnet": true,
-    "tvl": 26658969.238330107
+    "tvl": 25967907.031072043
   },
   {
     "name": "Sonic Testnet",
@@ -61324,7 +61334,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 26077290.68005031
+    "tvl": 25490740.19944575
   },
   {
     "name": "Ethereal Testnet",
@@ -61358,7 +61368,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 22974489.67031518
+    "tvl": 22919846.12097607
   },
   {
     "name": "Flow EVM Testnet",
@@ -61393,7 +61403,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 17820932.772893902
+    "tvl": 17953367.204088893
   },
   {
     "name": "zkSync Sepolia Testnet",
@@ -61454,7 +61464,7 @@
       "reusedChainId"
     ],
     "isTestnet": true,
-    "tvl": 14078980.84426267
+    "tvl": 14080398.22447925
   },
   {
     "name": "Scroll Sepolia Testnet",
@@ -61542,7 +61552,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 11218901.94192166
+    "tvl": 11299612.19119688
   },
   {
     "name": "Immutable zkEVM Testnet",
@@ -61581,7 +61591,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 10980977.507943997
+    "tvl": 10980349.90639633
   },
   {
     "name": "Rollux Testnet",
@@ -61628,7 +61638,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 9920797.419446696
+    "tvl": 9942396.054741325
   },
   {
     "name": "Abstract Sepolia Testnet",
@@ -61675,7 +61685,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 9871298.829600036
+    "tvl": 9900418.646681042
   },
   {
     "name": "Morph Testnet",
@@ -61713,7 +61723,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 8013383.40974718
+    "tvl": 8040775.403141556
   },
   {
     "name": "Morph Hoodi",
@@ -61750,7 +61760,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 8013383.40974718
+    "tvl": 8040775.403141556
   },
   {
     "name": "Soneium Testnet Minato",
@@ -61801,7 +61811,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 7741326.165063335
+    "tvl": 7768644.596683469
   },
   {
     "name": "Core Blockchain Testnet",
@@ -61842,7 +61852,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 6612731.828431806
+    "tvl": 6650598.699133275
   },
   {
     "name": "Manta Pacific Testnet",
@@ -61886,7 +61896,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 5916959.046560291
+    "tvl": 5743757.192706613
   },
   {
     "name": "Manta Pacific Sepolia Testnet",
@@ -61942,7 +61952,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 5916959.046560291
+    "tvl": 5743757.192706613
   },
   {
     "name": "Citrea Testnet",
@@ -61982,7 +61992,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 4998169.6891000485
+    "tvl": 5009200.720026085
   },
   {
     "name": "Sophon Testnet",
@@ -62027,7 +62037,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 4980742.904649555
+    "tvl": 4989412.867648536
   },
   {
     "name": "Taiko Hoodi",
@@ -62062,7 +62072,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 4786094.756353127
+    "tvl": 4807572.637288568
   },
   {
     "name": "Cronos zkEVM Testnet",
@@ -62101,7 +62111,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 4708105.351097843
+    "tvl": 4749838.860035198
   },
   {
     "name": "Aurora Testnet",
@@ -62140,7 +62150,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 4697239.862075587
+    "tvl": 4743886.555081193
   },
   {
     "name": "Mode Testnet",
@@ -62194,7 +62204,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 2917526.6494054305
+    "tvl": 2926383.686747589
   },
   {
     "name": "IoTeX Network Testnet",
@@ -62225,7 +62235,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 2438157.4686922645
+    "tvl": 2433592.2401636676
   },
   {
     "name": "Somnia Testnet",
@@ -62261,7 +62271,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 2094599.0717608947
+    "tvl": 2120967.919640271
   },
   {
     "name": "Telos EVM Testnet",
@@ -62301,7 +62311,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 2039458.6411349815
+    "tvl": 2002521.0774547218
   },
   {
     "name": "Dexalot Subnet Testnet",
@@ -62333,7 +62343,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1391905.987037281
+    "tvl": 1406169.4439741487
   },
   {
     "name": "KUB Testnet",
@@ -62369,7 +62379,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1356462.028746107
+    "tvl": 1377226.6694833757
   },
   {
     "name": "ENI Testnet",
@@ -62398,7 +62408,54 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1144727.7632338307
+    "tvl": 1187113.3369025046
+  },
+  {
+    "name": "IOTA EVM Testnet",
+    "title": "IOTA EVM Testnet",
+    "chain": "IOTA EVM",
+    "icon": "iotaevm",
+    "rpc": [
+      {
+        "url": "https://evm-toolkit-api.evm.testnet.iotaledger.net"
+      },
+      {
+        "url": "https://iota-testnet-evm.public.blastapi.io",
+        "tracking": "limited"
+      },
+      {
+        "url": "https://rpc.ankr.com/iota_evm_testnet",
+        "tracking": "none"
+      },
+      {
+        "url": "https://iota-testnet.gateway.tatum.io",
+        "tracking": "yes"
+      },
+      {
+        "url": "https://json-rpc.evm.testnet.iotaledger.net"
+      }
+    ],
+    "faucets": [
+      "https://evm-toolkit.evm.testnet.iotaledger.net"
+    ],
+    "nativeCurrency": {
+      "name": "IOTA",
+      "symbol": "IOTA",
+      "decimals": 18
+    },
+    "infoURL": "https://www.iota.org",
+    "shortName": "iotaevm-testnet",
+    "chainId": 1075,
+    "networkId": 1075,
+    "explorers": [
+      {
+        "name": "explorer",
+        "url": "https://explorer.evm.testnet.iotaledger.net",
+        "standard": "EIP3091"
+      }
+    ],
+    "isTestnet": true,
+    "tvl": 1058332.6141791344
   },
   {
     "name": "opBNB Testnet",
@@ -62465,54 +62522,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1050525.5185556528
-  },
-  {
-    "name": "IOTA EVM Testnet",
-    "title": "IOTA EVM Testnet",
-    "chain": "IOTA EVM",
-    "icon": "iotaevm",
-    "rpc": [
-      {
-        "url": "https://evm-toolkit-api.evm.testnet.iotaledger.net"
-      },
-      {
-        "url": "https://iota-testnet-evm.public.blastapi.io",
-        "tracking": "limited"
-      },
-      {
-        "url": "https://rpc.ankr.com/iota_evm_testnet",
-        "tracking": "none"
-      },
-      {
-        "url": "https://iota-testnet.gateway.tatum.io",
-        "tracking": "yes"
-      },
-      {
-        "url": "https://json-rpc.evm.testnet.iotaledger.net"
-      }
-    ],
-    "faucets": [
-      "https://evm-toolkit.evm.testnet.iotaledger.net"
-    ],
-    "nativeCurrency": {
-      "name": "IOTA",
-      "symbol": "IOTA",
-      "decimals": 18
-    },
-    "infoURL": "https://www.iota.org",
-    "shortName": "iotaevm-testnet",
-    "chainId": 1075,
-    "networkId": 1075,
-    "explorers": [
-      {
-        "name": "explorer",
-        "url": "https://explorer.evm.testnet.iotaledger.net",
-        "standard": "EIP3091"
-      }
-    ],
-    "isTestnet": true,
-    "tvl": 1039719.6415418941
+    "tvl": 1055816.4901491357
   },
   {
     "name": "LUKSO Testnet",
@@ -62555,7 +62565,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 942668.3067804951
+    "tvl": 931780.7296587622
   },
   {
     "name": "Beam Testnet",
@@ -62602,7 +62612,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 917988.867503455
+    "tvl": 913259.7050152642
   },
   {
     "name": "KCC Testnet",
@@ -62633,7 +62643,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 772644.5834664677
+    "tvl": 790685.0735194109
   },
   {
     "name": "Hela Official Runtime Testnet",
@@ -62665,7 +62675,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 725950.2978916112
+    "tvl": 725800.629969135
   },
   {
     "name": "Doma Testnet",
@@ -62706,7 +62716,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 716642.1882584244
+    "tvl": 718101.416504119
   },
   {
     "name": "Lisk Sepolia Testnet",
@@ -62747,7 +62757,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 700242.6319698071
+    "tvl": 709245.7177830148
   },
   {
     "name": "Viction Testnet",
@@ -62777,7 +62787,7 @@
     "networkId": 89,
     "slip44": 1,
     "isTestnet": true,
-    "tvl": 657605.292342782
+    "tvl": 693492.8371030982
   },
   {
     "name": "Bitlayer Testnet",
@@ -62822,7 +62832,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 595319.4438266449
+    "tvl": 596968.4638623077
   },
   {
     "name": "Polynomial Sepolia",
@@ -62882,7 +62892,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 555959.1684479294
+    "tvl": 567958.4887334972
   },
   {
     "name": "BounceBit Testnet",
@@ -62911,7 +62921,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 526230.263464483
+    "tvl": 541957.289529834
   },
   {
     "name": "Oasis Sapphire Testnet",
@@ -62944,7 +62954,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 514369.97139695415
+    "tvl": 515564.43026299175
   },
   {
     "name": "ZetaChain Testnet",
@@ -62994,7 +63004,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 494732.4552114111
+    "tvl": 502633.18681688164
   },
   {
     "name": "Polygon zkEVM Testnet",
@@ -63034,7 +63044,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 490807.17310241744
+    "tvl": 490952.29997470893
   },
   {
     "name": "Oasys Testnet",
@@ -63063,7 +63073,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 419527.29961403273
+    "tvl": 414602.9404335615
   },
   {
     "name": "Dogechain Testnet",
@@ -63095,7 +63105,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 396512.29961630196
+    "tvl": 397092.06406085956
   },
   {
     "name": "Meter Testnet",
@@ -63126,31 +63136,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 365373.22358643543
-  },
-  {
-    "name": "Carbon EVM Testnet",
-    "chain": "Carbon",
-    "icon": "carbon",
-    "rpc": [
-      {
-        "url": "https://test-evm-api.carbon.network"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "swth",
-      "symbol": "SWTH",
-      "decimals": 18
-    },
-    "infoURL": "https://carbon.network/",
-    "shortName": "carbon-testnet",
-    "chainId": 9792,
-    "networkId": 9792,
-    "slip44": 1,
-    "explorers": [],
-    "isTestnet": true,
-    "tvl": 340396.5534065615
+    "tvl": 368503.7161660823
   },
   {
     "name": "Zilliqa 2 Testnet",
@@ -63186,7 +63172,31 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 258815.55756016803
+    "tvl": 265212.73408439837
+  },
+  {
+    "name": "Carbon EVM Testnet",
+    "chain": "Carbon",
+    "icon": "carbon",
+    "rpc": [
+      {
+        "url": "https://test-evm-api.carbon.network"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "swth",
+      "symbol": "SWTH",
+      "decimals": 18
+    },
+    "infoURL": "https://carbon.network/",
+    "shortName": "carbon-testnet",
+    "chainId": 9792,
+    "networkId": 9792,
+    "slip44": 1,
+    "explorers": [],
+    "isTestnet": true,
+    "tvl": 255205.3254337189
   },
   {
     "name": "Theta Testnet",
@@ -63215,7 +63225,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 243271.5679669154
+    "tvl": 245728.1738560529
   },
   {
     "name": "CoinEx Smart Chain Testnet",
@@ -63244,7 +63254,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 241835.29480458001
+    "tvl": 243811.96184434494
   },
   {
     "name": "ThunderCore Testnet",
@@ -63281,7 +63291,37 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 231844.25797558745
+    "tvl": 233120.36593111328
+  },
+  {
+    "name": "Elastos Smart Chain Testnet",
+    "chain": "ETH",
+    "rpc": [
+      {
+        "url": "https://api-testnet.elastos.io/eth"
+      }
+    ],
+    "faucets": [
+      "https://esc-faucet.elastos.io/"
+    ],
+    "nativeCurrency": {
+      "name": "Elastos",
+      "symbol": "tELA",
+      "decimals": 18
+    },
+    "infoURL": "https://www.elastos.org/",
+    "shortName": "esct",
+    "chainId": 21,
+    "networkId": 21,
+    "explorers": [
+      {
+        "name": "elastos esc explorer",
+        "url": "https://esc-testnet.elastos.io",
+        "standard": "EIP3091"
+      }
+    ],
+    "isTestnet": true,
+    "tvl": 222014.1571625396
   },
   {
     "name": "Oasis Emerald Testnet",
@@ -63316,37 +63356,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 193246.34597389176
-  },
-  {
-    "name": "Elastos Smart Chain Testnet",
-    "chain": "ETH",
-    "rpc": [
-      {
-        "url": "https://api-testnet.elastos.io/eth"
-      }
-    ],
-    "faucets": [
-      "https://esc-faucet.elastos.io/"
-    ],
-    "nativeCurrency": {
-      "name": "Elastos",
-      "symbol": "tELA",
-      "decimals": 18
-    },
-    "infoURL": "https://www.elastos.org/",
-    "shortName": "esct",
-    "chainId": 21,
-    "networkId": 21,
-    "explorers": [
-      {
-        "name": "elastos esc explorer",
-        "url": "https://esc-testnet.elastos.io",
-        "standard": "EIP3091"
-      }
-    ],
-    "isTestnet": true,
-    "tvl": 186535.08634822373
+    "tvl": 193600.1799235804
   },
   {
     "name": "EDU Chain Testnet",
@@ -63384,7 +63394,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 174735.66739223173
+    "tvl": 176106.2775978722
   },
   {
     "name": "Shape Sepolia Testnet",
@@ -63414,7 +63424,7 @@
     ],
     "slip44": 1,
     "isTestnet": true,
-    "tvl": 158704.69719309622
+    "tvl": 161073.52164963313
   },
   {
     "name": "Lens Testnet",
@@ -63463,7 +63473,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 138850.64263182416
+    "tvl": 136975.51730371895
   },
   {
     "name": "Energi Testnet",
@@ -63485,7 +63495,7 @@
     "networkId": 49797,
     "slip44": 1,
     "isTestnet": true,
-    "tvl": 125642.43516978384
+    "tvl": 126981.28762548632
   },
   {
     "name": "Huobi ECO Chain Testnet",
@@ -63597,43 +63607,7 @@
       "bridges": []
     },
     "isTestnet": true,
-    "tvl": 79847.0034565772
-  },
-  {
-    "name": "Botanix Testnet",
-    "chain": "BOTANIX",
-    "icon": "botanix",
-    "rpc": [
-      {
-        "url": "https://rpc.ankr.com/botanix_testnet",
-        "tracking": "none"
-      },
-      {
-        "url": "https://node.botanixlabs.dev"
-      }
-    ],
-    "faucets": [
-      "https://faucet.botanixlabs.dev"
-    ],
-    "nativeCurrency": {
-      "name": "Botanix",
-      "symbol": "BTC",
-      "decimals": 18
-    },
-    "infoURL": "https://botanixlabs.xyz",
-    "shortName": "BTNXt",
-    "chainId": 3636,
-    "networkId": 3636,
-    "slip44": 1,
-    "explorers": [
-      {
-        "name": "Botanix Explorer",
-        "url": "https://testnet.botanixscan.io",
-        "standard": "EIP3091"
-      }
-    ],
-    "isTestnet": true,
-    "tvl": 79120.14018285346
+    "tvl": 77725.29244845896
   },
   {
     "name": "ZKFair Testnet",
@@ -63676,7 +63650,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 77537.53387922737
+    "tvl": 77614.2216674578
   },
   {
     "name": "Ultron Testnet",
@@ -63707,7 +63681,43 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 76306.32404117525
+    "tvl": 76299.6212569823
+  },
+  {
+    "name": "Botanix Testnet",
+    "chain": "BOTANIX",
+    "icon": "botanix",
+    "rpc": [
+      {
+        "url": "https://rpc.ankr.com/botanix_testnet",
+        "tracking": "none"
+      },
+      {
+        "url": "https://node.botanixlabs.dev"
+      }
+    ],
+    "faucets": [
+      "https://faucet.botanixlabs.dev"
+    ],
+    "nativeCurrency": {
+      "name": "Botanix",
+      "symbol": "BTC",
+      "decimals": 18
+    },
+    "infoURL": "https://botanixlabs.xyz",
+    "shortName": "BTNXt",
+    "chainId": 3636,
+    "networkId": 3636,
+    "slip44": 1,
+    "explorers": [
+      {
+        "name": "Botanix Explorer",
+        "url": "https://testnet.botanixscan.io",
+        "standard": "EIP3091"
+      }
+    ],
+    "isTestnet": true,
+    "tvl": 70663.04002384815
   },
   {
     "name": "Superseed Sepolia Testnet",
@@ -63751,7 +63761,7 @@
       ]
     },
     "isTestnet": true,
-    "tvl": 67660.4950824152
+    "tvl": 68709.33159304535
   },
   {
     "name": "Findora Testnet",
@@ -63812,7 +63822,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 38645.44157060291
+    "tvl": 38568.45312570889
   },
   {
     "name": "Zora Sepolia Testnet",
@@ -63850,7 +63860,67 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 31390.477705559006
+    "tvl": 31760.872167089172
+  },
+  {
+    "name": "Matchain Testnet",
+    "chain": "Matchain",
+    "icon": "matchain",
+    "rpc": [
+      {
+        "url": "https://testnet-rpc.matchain.io"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "BNB",
+      "symbol": "BNB",
+      "decimals": 18
+    },
+    "infoURL": "https://www.matchain.io",
+    "shortName": "tMatchain",
+    "chainId": 699,
+    "networkId": 699,
+    "explorers": [
+      {
+        "name": "Matchscan Testnet",
+        "url": "https://testnet.matchscan.io",
+        "standard": "EIP3091",
+        "icon": "matchain"
+      }
+    ],
+    "isTestnet": true,
+    "tvl": 16675.347966542387
+  },
+  {
+    "name": "LACHAIN Testnet",
+    "chain": "TLA",
+    "icon": "lachain-io",
+    "rpc": [
+      {
+        "url": "https://rpc-testnet.lachain.io"
+      }
+    ],
+    "faucets": [],
+    "nativeCurrency": {
+      "name": "TLA",
+      "symbol": "TLA",
+      "decimals": 18
+    },
+    "infoURL": "https://lachain.io",
+    "shortName": "TLA",
+    "chainId": 226,
+    "networkId": 226,
+    "slip44": 1,
+    "explorers": [
+      {
+        "name": "blockscout",
+        "url": "https://scan-test.lachain.io",
+        "standard": "EIP3091"
+      }
+    ],
+    "isTestnet": true,
+    "tvl": 16594.941282288648
   },
   {
     "name": "Hydra Chain Testnet",
@@ -63890,67 +63960,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 31079.43678367282
-  },
-  {
-    "name": "Matchain Testnet",
-    "chain": "Matchain",
-    "icon": "matchain",
-    "rpc": [
-      {
-        "url": "https://testnet-rpc.matchain.io"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "BNB",
-      "symbol": "BNB",
-      "decimals": 18
-    },
-    "infoURL": "https://www.matchain.io",
-    "shortName": "tMatchain",
-    "chainId": 699,
-    "networkId": 699,
-    "explorers": [
-      {
-        "name": "Matchscan Testnet",
-        "url": "https://testnet.matchscan.io",
-        "standard": "EIP3091",
-        "icon": "matchain"
-      }
-    ],
-    "isTestnet": true,
-    "tvl": 16722.124741552823
-  },
-  {
-    "name": "LACHAIN Testnet",
-    "chain": "TLA",
-    "icon": "lachain-io",
-    "rpc": [
-      {
-        "url": "https://rpc-testnet.lachain.io"
-      }
-    ],
-    "faucets": [],
-    "nativeCurrency": {
-      "name": "TLA",
-      "symbol": "TLA",
-      "decimals": 18
-    },
-    "infoURL": "https://lachain.io",
-    "shortName": "TLA",
-    "chainId": 226,
-    "networkId": 226,
-    "slip44": 1,
-    "explorers": [
-      {
-        "name": "blockscout",
-        "url": "https://scan-test.lachain.io",
-        "standard": "EIP3091"
-      }
-    ],
-    "isTestnet": true,
-    "tvl": 16594.941282288648
+    "tvl": 13439.298207575283
   },
   {
     "name": "Omax Testnet",
@@ -63990,7 +64000,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 10577.627085932496
+    "tvl": 10522.76046273538
   },
   {
     "name": "Ancient8 Testnet",
@@ -64138,7 +64148,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 6676.310880554025
+    "tvl": 6646.313825317868
   },
   {
     "name": "Silicon zkEVM Sepolia Testnet",
@@ -64181,7 +64191,7 @@
     },
     "status": "active",
     "isTestnet": true,
-    "tvl": 6328.221271351073
+    "tvl": 6414.066958867606
   },
   {
     "name": "RARI Chain Testnet",
@@ -64209,7 +64219,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 6022.204829379881
+    "tvl": 6022.530031241175
   },
   {
     "name": "VinuChain Testnet",
@@ -64246,7 +64256,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 5337.610326525468
+    "tvl": 5485.039747843409
   },
   {
     "name": "Callisto Testnet",
@@ -64331,7 +64341,7 @@
     ],
     "chainSlug": "polkadot-testnet",
     "isTestnet": true,
-    "tvl": 2285.2631647312314
+    "tvl": 2303.502031216878
   },
   {
     "name": "REI Chain Testnet",
@@ -64416,7 +64426,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1435.6306869118564
+    "tvl": 1403.0358488542133
   },
   {
     "name": "Bitcichain Testnet",
@@ -64448,7 +64458,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 1139.934324311931
+    "tvl": 1141.636813618581
   },
   {
     "name": "Palm Testnet",
@@ -64490,7 +64500,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 523.2839389144368
+    "tvl": 523.4181535796761
   },
   {
     "name": "EOS EVM Network Testnet",
@@ -64557,7 +64567,7 @@
       }
     ],
     "isTestnet": true,
-    "tvl": 184.52495312774386
+    "tvl": 179.95851998555784
   },
   {
     "name": "Xphere Testnet",
