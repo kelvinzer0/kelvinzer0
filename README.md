@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jul 07 - [Fighting the bots](https://gregharvey.gitlab.io/blog/posts/2026-07/fighting-the-bots/)
+- Jul 07 - [Don't Panic Cyberdeck](https://www.printables.com/model/1775113-dont-panic-cyberdeck)
 - Jul 06 - [Data centre plans in Scotland weren't renewable, investigation finds](https://www.thecanary.co/uk/2026/07/06/data-centres-scotland/)
 - Jul 06 - [OpenSSH 10.4 released](https://marc.info/?l=openssh-unix-announce&m=178333732030805&w=2)
 - Jul 06 - [sneakerweb](https://sneakerweb.org/)
-- Jul 03 - [wince-dc: Windows CE Dreamcast Community Edition](https://github.com/maximqaxd/wince-dc)
-- Jul 03 - [Frequently Asked Questions about AI](https://www.counterfire.org/article/frequently-asked-questions-about-ai/)
 <!-- feed end -->
