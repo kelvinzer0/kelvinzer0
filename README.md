@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jul 15 - [Fermi — The Daily Estimation Puzzle Game](https://fermi.gg)
 - Jul 15 - [The zero-cost fallacy: Open source software in the agentic era](https://www.thoughtworks.com/insights/blog/open-source/zero-cost-fallacy-open-source-agentic-era)
 - Jul 14 - [The Old Computer Challenge](http://tekk.in/occ/)
 - Jul 13 - [A Farewell to ARPs: IPv4 Service on IPv6-Only Networks](https://labs.ripe.net/author/remco-van-mook/a-farewell-to-arps-ipv4-service-on-ipv6-only-networks/)
 - Jul 13 - [Using an IBM Unix RS/6000](https://www.youtube.com/watch?v=R-EwTmZMotI)
-- Jul 08 - [Slow Software: The Case for High-latency Systems Development](https://www.irenezhang.net/blog/2026/07/06/ai.html)
 <!-- feed end -->
