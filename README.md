@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jul 19 - [Form & Number: A History of Mathematical Beauty (Ebook, large format) : Alan J. Cain : Free Download, Borrow, and Streaming](https://archive.org/details/cain_formandnumber_ebook_large)
 - Jul 18 - [wp2shell: Pre Authentication RCE in WordPress Core](https://slcyber.io/research-center/wp2shell-pre-authentication-rce-in-wordpress-core)
 - Jul 17 - [Do You Need Me to Spell It Out? A Guide for Those Indirectly Affected by Chronic Illness](https://doyouneedmetospellitout.aflip.in/0e7a198e01.html)
 - Jul 15 - [Re-minding and Re-asking about Humans and Thought](https://www.youtube.com/watch?v=M-JjTSfaAhs)
 - Jul 15 - [Fermi — The Daily Estimation Puzzle Game](https://fermi.gg)
-- Jul 15 - [The zero-cost fallacy: Open source software in the agentic era](https://www.thoughtworks.com/insights/blog/open-source/zero-cost-fallacy-open-source-agentic-era)
 <!-- feed end -->
