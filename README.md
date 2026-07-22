@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jul 22 - [Journalist Richard Medhurst had his mobile phone seized. Did using a secure phone protect his data?](https://www.computerweekly.com/feature/Journalist-Richard-Medhurst-had-his-mobile-phone-seized-Did-using-a-secure-phone-protect-his-data)
 - Jul 22 - [Getting Off with the Luddites](https://www.nplusonemag.com/online-only/online-only/getting-off-with-the-luddites/)
 - Jul 22 - [OpenAI and Hugging Face partner to address security incident during model evaluation](https://openai.com/index/hugging-face-model-evaluation-security-incident/)
 - Jul 21 - [What We Lost When We Quit Using Crappy Old Web Forums](https://tedium.co/2026/07/01/online-web-forums-retrospective/)
 - Jul 21 - [The Hidden CCS2 Attack Surface on EV Chargers](https://www.saiflow.com/blog/the-hidden-ccs2-attack-surface-on-ev-chargers)
-- Jul 20 - [Hacker wipes European country’s entire land registry database, paralyzing real-estate market](https://cybernews.com/security/hacker-deletes-romanian-land-registry-database/)
 <!-- feed end -->
