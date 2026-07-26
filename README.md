@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jul 26 - [Atlassian Enables Default Data Collection to Train AI](https://letsdatascience.com/news/atlassian-enables-default-data-collection-to-train-ai-f71343d8)
 - Jul 25 - [SAT with UAS under Linux (2019)](https://www.smartmontools.org/wiki/SAT-with-UAS-Linux)
 - Jul 24 - [Judge approves a $1.5B Anthropic settlement over pirated books used to train the Claude chatbot](https://apnews.com/article/ai-anthropic-copyright-settlement-claude-books-bartz-74b140444023898aeba8579b6e9f0d63)
 - Jul 22 - [Journalist Richard Medhurst had his mobile phone seized. Did using a secure phone protect his data?](https://www.computerweekly.com/feature/Journalist-Richard-Medhurst-had-his-mobile-phone-seized-Did-using-a-secure-phone-protect-his-data)
 - Jul 22 - [Getting Off with the Luddites](https://www.nplusonemag.com/online-only/online-only/getting-off-with-the-luddites/)
-- Jul 22 - [OpenAI and Hugging Face partner to address security incident during model evaluation](https://openai.com/index/hugging-face-model-evaluation-security-incident/)
 <!-- feed end -->
