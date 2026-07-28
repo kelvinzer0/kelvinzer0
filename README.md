@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Jul 28 - [AI tech companies have ‘hidden debt’ worth around $1.65 trillion](https://www.tomshardware.com/tech-industry/big-tech/ai-tech-companies-have-hidden-debt-worth-around-usd1-65-trillion-report-claims-amount-is-122-percent-of-debt-reflected-on-the-balance-sheets-of-alphabet-amazon-meta-microsoft-and-oracle)
 - Jul 27 - [Robots with lasers and cameras but no security Liberating your vacuum (2021)](https://www.youtube.com/watch?v=EWqFxQpRbv8)
 - Jul 27 - [Paged Out 009](https://pagedout.institute/download/PagedOut_009.pdf)
 - Jul 26 - [Atlassian Enables Default Data Collection to Train AI](https://letsdatascience.com/news/atlassian-enables-default-data-collection-to-train-ai-f71343d8)
 - Jul 25 - [SAT with UAS under Linux (2019)](https://www.smartmontools.org/wiki/SAT-with-UAS-Linux)
-- Jul 24 - [Judge approves a $1.5B Anthropic settlement over pirated books used to train the Claude chatbot](https://apnews.com/article/ai-anthropic-copyright-settlement-claude-books-bartz-74b140444023898aeba8579b6e9f0d63)
 <!-- feed end -->
