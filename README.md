@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 02 - [Decoding Magic School Lunar's Save Game Format](https://www.mistys-internet.website/blog/blog/2026/08/01/decoding-magic-school-lunars-save-game-format/)
+- Aug 02 - [Return-to-Office Mandates are Triggering a New Era of Workplace Sabotage](https://enhancv.com/blog/rto-stealth-layoffs/)
 - Aug 02 - [T Coronae Borealis - Wikipedia](https://en.wikipedia.org/wiki/T_Coronae_Borealis#2016%E2%80%93present_activity)
 - Jul 28 - [Analyzing Divine Machinery as an "Art Movement"](https://youtu.be/nJx9POvQ894)
 - Jul 28 - [AI tech companies have ‘hidden debt’ worth around $1.65 trillion](https://www.tomshardware.com/tech-industry/big-tech/ai-tech-companies-have-hidden-debt-worth-around-usd1-65-trillion-report-claims-amount-is-122-percent-of-debt-reflected-on-the-balance-sheets-of-alphabet-amazon-meta-microsoft-and-oracle)
-- Jul 27 - [Robots with lasers and cameras but no security Liberating your vacuum (2021)](https://www.youtube.com/watch?v=EWqFxQpRbv8)
-- Jul 27 - [Paged Out 009](https://pagedout.institute/download/PagedOut_009.pdf)
 <!-- feed end -->
