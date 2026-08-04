@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 04 - [Cyberpunk Video Games | Console & PC – SHELLZINE](https://shellzine.net/cyberpunk-video-games/)
+- Aug 04 - [targetBridge: Use your Intel iMac as an external display for Apple Silicon Macs via Thunderbolt Bridge](https://github.com/swellweb/targetBridge)
 - Aug 03 - [Perl's AI Policy](https://github.com/Perl/perl5/blob/blead/AI_POLICY.md)
 - Aug 02 - [Decoding Magic School Lunar's Save Game Format](https://www.mistys-internet.website/blog/blog/2026/08/01/decoding-magic-school-lunars-save-game-format/)
 - Aug 02 - [Return-to-Office Mandates are Triggering a New Era of Workplace Sabotage](https://enhancv.com/blog/rto-stealth-layoffs/)
-- Aug 02 - [T Coronae Borealis - Wikipedia](https://en.wikipedia.org/wiki/T_Coronae_Borealis#2016%E2%80%93present_activity)
-- Jul 28 - [Analyzing Divine Machinery as an "Art Movement"](https://youtu.be/nJx9POvQ894)
 <!-- feed end -->
