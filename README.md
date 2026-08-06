@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 06 - [Simplifier](https://simplifier.neocities.org/)
 - Aug 05 - [Bugtraq is back - Bugtraq - SecurityFocus Mailing Lists](https://lists.securityfocus.com/hyperkitty/list/bugtraq@securityfocus.com/thread/CHKLXLA7SJEWLDFHWXB3QU57ADOXGL2E/)
 - Aug 05 - [Upgrading a MacBook Neo using iPhone Parts](https://www.youtube.com/watch?v=bIeEGeTd5DE)
 - Aug 04 - [The Lua community needs to learn to move on](https://hisham.hm/2026/08/04/the-lua-community-needs-to-learn-to-move-on/)
 - Aug 04 - [Cyberpunk Video Games | Console & PC – SHELLZINE](https://shellzine.net/cyberpunk-video-games/)
-- Aug 04 - [targetBridge: Use your Intel iMac as an external display for Apple Silicon Macs via Thunderbolt Bridge](https://github.com/swellweb/targetBridge)
 <!-- feed end -->
