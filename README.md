@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 10 - [c-comments: A tool that shows all comments and strings from C source](https://github.com/bagder/c-comments)
 - Aug 09 - [Power Macintosh G5 Architecture Overview (2003)](https://archive.org/details/power-mac-g5-overview)
 - Aug 06 - [Simplifier](https://simplifier.neocities.org/)
 - Aug 05 - [Bugtraq is back - Bugtraq - SecurityFocus Mailing Lists](https://lists.securityfocus.com/hyperkitty/list/bugtraq@securityfocus.com/thread/CHKLXLA7SJEWLDFHWXB3QU57ADOXGL2E/)
 - Aug 05 - [Upgrading a MacBook Neo using iPhone Parts](https://www.youtube.com/watch?v=bIeEGeTd5DE)
-- Aug 04 - [The Lua community needs to learn to move on](https://hisham.hm/2026/08/04/the-lua-community-needs-to-learn-to-move-on/)
 <!-- feed end -->
