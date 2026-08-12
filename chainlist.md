@@ -1469,6 +1469,7 @@
 | 13441 | BRIDGELESS | Bridgeless Mainnet |
 | 13600000 | Humanity | Humanity |
 | 13863860 | SIS | Symbiosis |
+| 1394 | MIDX | Midpoint Cross |
 | 1404 | BDAG | BlockDAG Network |
 | 140586 | BEX | BEXChain |
 | 1408 | VFL | VFlow |
@@ -2734,6 +2735,7 @@
 | 13145201 | ROON | RoonChain Testnet |
 | 13188 | BKC | BeeChain Testnet |
 | 13579 | INTUITION | Intuition Testnet |
+| 139420 | MIDX | Midpoint Cross Testnet |
 | 1409 | TVFL | VFlow Volta Testnet |
 | 1439 | Injective | Injective Testnet |
 | 15000 | QUAI | Quai Orchard Testnet |
