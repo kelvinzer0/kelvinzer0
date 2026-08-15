@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 15 - [How ancient trees are warning us about the next enormous solar storm](https://www.newscientist.com/article/2581487-how-ancient-trees-are-warning-us-about-the-next-enormous-solar-storm-2/)
 - Aug 12 - [Release of Aquamacs 4 alpha 2 (April 2026)](https://aquamacs.org/aquamacs-4-alpha/)
 - Aug 10 - [c-comments: A tool that shows all comments and strings from C source](https://github.com/bagder/c-comments)
 - Aug 09 - [Power Macintosh G5 Architecture Overview (2003)](https://archive.org/details/power-mac-g5-overview)
 - Aug 06 - [Simplifier](https://simplifier.neocities.org/)
-- Aug 05 - [Bugtraq is back - Bugtraq - SecurityFocus Mailing Lists](https://lists.securityfocus.com/hyperkitty/list/bugtraq@securityfocus.com/thread/CHKLXLA7SJEWLDFHWXB3QU57ADOXGL2E/)
 <!-- feed end -->
