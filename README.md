@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 23 - [Kodak DC50 now usable on the Apple II](https://www.colino.net/wordpress/archives/2026/08/23/kodak-dc50-now-usable-on-the-apple-ii/)
 - Aug 23 - [The real mummy’s curse: Health risks associated with the sale and trade of mummified remains | International Journal of Cultural Property](https://www.cambridge.org/core/journals/international-journal-of-cultural-property/article/real-mummys-curse-health-risks-associated-with-the-sale-and-trade-of-mummified-remains/FCE6E950ED8A6BEF310766AF1CF53DB4)
 - Aug 21 - [GodMode9-with-Cartridge-Fixer: 3DS Cartridge Fixer - Error correction for faulty 3DS Cartridges](https://github.com/skawo/GodMode9-with-Cartridge-Fixer)
 - Aug 18 - [How weaving helped invent modern computing — and is shaping its future](https://theconversation.com/how-weaving-helped-invent-modern-computing-and-is-shaping-its-future-287283)
 - Aug 15 - [How ancient trees are warning us about the next enormous solar storm](https://www.newscientist.com/article/2581487-how-ancient-trees-are-warning-us-about-the-next-enormous-solar-storm-2/)
-- Aug 12 - [Release of Aquamacs 4 alpha 2 (April 2026)](https://aquamacs.org/aquamacs-4-alpha/)
 <!-- feed end -->
