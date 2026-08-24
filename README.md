@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 24 - [What Comes After FOSS?](https://infrastructureinsights.fund/wp-content/uploads/2023/11/FOSS_2026-07-28_diif_report.pdf)
+- Aug 24 - [Jabber/XMPP: 25 Years of Digital Independence](https://gultsch.de/posts/25-years-of-digital-independence/)
 - Aug 23 - [tmpout_v](https://tmpout.sh/5/)
 - Aug 23 - [Kodak DC50 now usable on the Apple II](https://www.colino.net/wordpress/archives/2026/08/23/kodak-dc50-now-usable-on-the-apple-ii/)
 - Aug 23 - [The real mummy’s curse: Health risks associated with the sale and trade of mummified remains | International Journal of Cultural Property](https://www.cambridge.org/core/journals/international-journal-of-cultural-property/article/real-mummys-curse-health-risks-associated-with-the-sale-and-trade-of-mummified-remains/FCE6E950ED8A6BEF310766AF1CF53DB4)
-- Aug 21 - [GodMode9-with-Cartridge-Fixer: 3DS Cartridge Fixer - Error correction for faulty 3DS Cartridges](https://github.com/skawo/GodMode9-with-Cartridge-Fixer)
-- Aug 18 - [How weaving helped invent modern computing — and is shaping its future](https://theconversation.com/how-weaving-helped-invent-modern-computing-and-is-shaping-its-future-287283)
 <!-- feed end -->
