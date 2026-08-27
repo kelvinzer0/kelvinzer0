@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Aug 27 - [ALMA Reveals Long-Lived Hotspots on Betelgeuse’s Bubbling Surface | ALMA Observatory](https://www.almaobservatory.org/en/audiences/alma-reveals-long-lived-hotspots-on-betelgeuses-bubbling-surface/)
+- Aug 27 - [Changes to SourceHut's terms of service regarding LLMs](https://sourcehut.org/blog/2026-08-27-tos-changes-and-llms/)
 - Aug 24 - [What Comes After FOSS?](https://infrastructureinsights.fund/wp-content/uploads/2023/11/FOSS_2026-07-28_diif_report.pdf)
 - Aug 24 - [Jabber/XMPP: 25 Years of Digital Independence](https://gultsch.de/posts/25-years-of-digital-independence/)
 - Aug 23 - [tmpout_v](https://tmpout.sh/5/)
-- Aug 23 - [Kodak DC50 now usable on the Apple II](https://www.colino.net/wordpress/archives/2026/08/23/kodak-dc50-now-usable-on-the-apple-ii/)
-- Aug 23 - [The real mummy’s curse: Health risks associated with the sale and trade of mummified remains | International Journal of Cultural Property](https://www.cambridge.org/core/journals/international-journal-of-cultural-property/article/real-mummys-curse-health-risks-associated-with-the-sale-and-trade-of-mummified-remains/FCE6E950ED8A6BEF310766AF1CF53DB4)
 <!-- feed end -->
