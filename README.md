@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Sep 03 - [How most 16" Macbook Pros often kill themselves & why they're unfixable (2022)](https://www.youtube.com/watch?v=7cNg_ifibCQ)
 - Aug 31 - [tp-recovery-archive: List of available IBM/Lenovo ThinkPad Recovery Media](https://github.com/eggi36/tp-recovery-archive)
 - Aug 31 - [Playing whack-a-mole is losing](https://dadrian.io/blog/posts/whack-a-mole-is-losing/)
 - Aug 27 - [ALMA Reveals Long-Lived Hotspots on Betelgeuse’s Bubbling Surface | ALMA Observatory](https://www.almaobservatory.org/en/audiences/alma-reveals-long-lived-hotspots-on-betelgeuses-bubbling-surface/)
 - Aug 27 - [Changes to SourceHut's terms of service regarding LLMs](https://sourcehut.org/blog/2026-08-27-tos-changes-and-llms/)
-- Aug 24 - [What Comes After FOSS?](https://infrastructureinsights.fund/wp-content/uploads/2023/11/FOSS_2026-07-28_diif_report.pdf)
 <!-- feed end -->
