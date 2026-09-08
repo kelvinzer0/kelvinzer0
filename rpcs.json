@@ -14080,6 +14080,12 @@
         "url": "https://governors.mainnet.redbelly.network"
       },
       {
+        "url": "https://rpc.ankr.com/redbelly_mainnet"
+      },
+      {
+        "url": "https://api.uniblock.dev/uni/v1/json-rpc?chainId=151"
+      },
+      {
         "url": "https://151.rpc.thirdweb.com",
         "tracking": "yes"
       }
@@ -106552,8 +106558,9 @@
     "explorers": [
       {
         "name": "Nowa Testnet Explorer",
-        "url": "https://explorer.nowa.finance",
-        "standard": "EIP3091"
+        "url": "https://testnet.nowa.finance",
+        "standard": "EIP3091",
+        "icon": "https://nowa.finance/favicon.svg"
       }
     ],
     "isTestnet": true,
