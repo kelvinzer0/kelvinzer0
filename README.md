@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Sep 09 - [Why We Must Return to the Office to Use AI in Person](https://www.mcsweeneys.net/articles/why-we-must-return-to-the-office-to-use-ai-in-person)
 - Sep 04 - [Imperial Colors Manifesto](https://qum.cz/imperial_colors/)
 - Sep 04 - [Neil Fraser: News: .name Termination](https://neil.fraser.name/news/2026/09/03/)
 - Sep 03 - [How most 16" Macbook Pros often kill themselves & why they're unfixable (2022)](https://www.youtube.com/watch?v=7cNg_ifibCQ)
 - Aug 31 - [tp-recovery-archive: List of available IBM/Lenovo ThinkPad Recovery Media](https://github.com/eggi36/tp-recovery-archive)
-- Aug 31 - [Playing whack-a-mole is losing](https://dadrian.io/blog/posts/whack-a-mole-is-losing/)
 <!-- feed end -->
