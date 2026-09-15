@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Sep 15 - [I Found My First Android Phone](https://sava.rocks/blog/i-found-my-first-android-phone/)
 - Sep 13 - [Linux Zoom client has made it start proactively reading everything written to the X11 clipboard](https://hachyderm.io/@simontatham/117201594980991062)
 - Sep 11 - [I Don’t Want to Interact With Stochastic Parrots](https://ploum.net/2026-09-09-ai_policy.html)
 - Sep 10 - [qemu-NeXT: QEMU, now with (almost) full NeXT Black/M68K hardware support](https://github.com/blanham/qemu-NeXT)
 - Sep 09 - [Why We Must Return to the Office to Use AI in Person](https://www.mcsweeneys.net/articles/why-we-must-return-to-the-office-to-use-ai-in-person)
-- Sep 04 - [Imperial Colors Manifesto](https://qum.cz/imperial_colors/)
 <!-- feed end -->
