@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Sep 21 - [Creating a Blog in Gemini://](https://brennan.day/creating-a-blog-in-gemini/)
 - Sep 20 - [USWDS is dead. Long live USWDS](https://matthenry.fyi/posts/long-live-uswds/)
 - Sep 19 - [AI made me doubt everything about programming](https://www.youtube.com/watch?v=0-6-f94n_9M)
 - Sep 16 - [Posters.science](https://posters.science/)
 - Sep 15 - [I Found My First Android Phone](https://sava.rocks/blog/i-found-my-first-android-phone/)
-- Sep 13 - [Linux Zoom client has made it start proactively reading everything written to the X11 clipboard](https://hachyderm.io/@simontatham/117201594980991062)
 <!-- feed end -->
