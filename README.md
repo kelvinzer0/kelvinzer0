@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Sep 26 - [Adobe PostScript: The Language of Business (1991)](https://www.youtube.com/watch?v=Ayb-KF32uWk)
+- Sep 26 - [Defend union rights: Support the Rockstar 31](http://crowdfunder.co.uk/p/rockstar-31)
 - Sep 25 - [Become the Thousand Servers · Sabot Media](https://sabot.media/guides/become-the-thousand-servers/)
 - Sep 24 - [Why is Hacker News like that?](https://drewdevault.com/blog/Why-is-HN-like-that/)
 - Sep 21 - [Creating a Blog in Gemini://](https://brennan.day/creating-a-blog-in-gemini/)
-- Sep 20 - [USWDS is dead. Long live USWDS](https://matthenry.fyi/posts/long-live-uswds/)
-- Sep 19 - [AI made me doubt everything about programming](https://www.youtube.com/watch?v=0-6-f94n_9M)
 <!-- feed end -->
