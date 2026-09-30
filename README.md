@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Sep 30 - [The DNS Museum](https://dns.museum)
 - Sep 29 - [Multlingva paĝaro por lernado de la internacia lingvo Esperanto](https://lernu.net)
 - Sep 26 - [Adobe PostScript: The Language of Business (1991)](https://www.youtube.com/watch?v=Ayb-KF32uWk)
 - Sep 26 - [Defend union rights: Support the Rockstar 31](http://crowdfunder.co.uk/p/rockstar-31)
 - Sep 25 - [Become the Thousand Servers · Sabot Media](https://sabot.media/guides/become-the-thousand-servers/)
-- Sep 24 - [Why is Hacker News like that?](https://drewdevault.com/blog/Why-is-HN-like-that/)
 <!-- feed end -->
