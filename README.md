@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Oct 07 - [Tech Workers’ Leverage Over Employers Is Shifting](https://jacobin.com/2026/10/tech-workers-leverage-over-employers-is-shifting)
 - Oct 05 - [Windows 2000 Professional [in a browser]](https://wieslawsoltes.github.io/Win2000/)
 - Oct 05 - [L5 Cyber Cafe at Processing Community Day NYC](https://notapipe.itch.io/l5/devlog/1691626/l5-cyber-cafe-at-processing-community-day-nyc)
 - Oct 01 - [Semicolon Inspector](https://semicolon.trm.sh/)
 - Sep 30 - [‘We Hacked the FBI:’ Hackers Say They Have Data on All FBI Employees](https://www.404media.co/we-hacked-the-fbi-hackers-say-they-have-data-on-all-fbi-employees/)
-- Sep 30 - [Powerboard Tyche unveiled at Pianeta Amiga](https://www.powerpc-notebook.org/2026/09/powerboard-tyche-unveiled-at-pianeta-amiga/)
 <!-- feed end -->
