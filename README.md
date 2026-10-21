@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Oct 21 - [Violet - another static site generator](https://lunarwatcher.codeberg.page/violet/)
 - Oct 20 - [eMudhra Intermediate CA Compromise](https://emudhra.we-have-a-problem.com/)
 - Oct 12 - [How to Spend Ten Years Repairing A Computer and Why You Should Too](https://archive.org/details/lisazine/)
 - Oct 08 - [The people holding up the internet](https://sheets.works/data-viz/holding-up-the-internet)
 - Oct 07 - [Tech Workers’ Leverage Over Employers Is Shifting](https://jacobin.com/2026/10/tech-workers-leverage-over-employers-is-shifting)
-- Oct 05 - [Windows 2000 Professional [in a browser]](https://wieslawsoltes.github.io/Win2000/)
 <!-- feed end -->
