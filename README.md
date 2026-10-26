@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Oct 26 - [Emacs Historical Archive](https://softwarepreservation.computerhistory.org/emacs/)
 - Oct 24 - [Alias|Wavefront (1995 - 2006)](https://rip.so/alias-wavefront.html)
 - Oct 24 - [Bitwise Black Magic: How to Computer, Better Faster Stronger - YouTube](https://www.youtube.com/watch?v=oj3xA28N60I)
 - Oct 24 - [Categories of the Art Game](https://cdn.rhizome.org/editorial/2026/oct/14/categories-of-the-art-game/)
 - Oct 21 - [Violet - another static site generator](https://lunarwatcher.codeberg.page/violet/)
-- Oct 20 - [eMudhra Intermediate CA Compromise](https://emudhra.we-have-a-problem.com/)
 <!-- feed end -->
