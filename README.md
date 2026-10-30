@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Oct 29 - [If you love a website, back it up](https://blog.mistys-internet.website/post/2026/10/29/if-you-love-a-website-back-it-up/)
 - Oct 29 - [Encarta 95 online](https://benwinding.github.io/encarta_95_web/#/article/A)
 - Oct 27 - [The Story of the PCI PowerMac Boot Beep](https://www.patreon.com/bitsavers/posts/story-of-pci-173590054)
 - Oct 27 - [meshlive-android: Encrypted voice and video calls, live audio and video streams between phones over a Bluetooth mesh. No internet needed](https://github.com/MeshLive/meshlive-android)
 - Oct 26 - [Emacs Historical Archive](https://softwarepreservation.computerhistory.org/emacs/)
-- Oct 24 - [Alias|Wavefront (1995 - 2006)](https://rip.so/alias-wavefront.html)
 <!-- feed end -->
