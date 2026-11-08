@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Nov 08 - [ram-altman: Monitors your RAM and reports any "quite terrible" unused capacity directly to the CEO of OpenAI](https://github.com/IainKay/ram-altman)
 - Nov 01 - [Thermaltake PC Drive Bay Lighter/Cup Holder (2020)](https://www.youtube.com/watch?v=_ErL39wqO-c)
 - Nov 01 - [ANSI art and webcomics Archives](https://breakintochat.com/blog/category/ansi-art-and-webcomics/)
 - Nov 01 - [Mystery of 60-Second Fluctuations in Power Grids Solved](https://www.fz-juelich.de/en/news/archive/press-release/2026/mystery-of-60-second-fluctuations-in-power-grids-solved)
 - Oct 29 - [If you love a website, back it up](https://blog.mistys-internet.website/post/2026/10/29/if-you-love-a-website-back-it-up/)
-- Oct 29 - [Encarta 95 online](https://benwinding.github.io/encarta_95_web/#/article/A)
 <!-- feed end -->
