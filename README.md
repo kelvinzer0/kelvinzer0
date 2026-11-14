@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Nov 14 - [Making Content from Discoverable Servers Easier to Discover](https://discord.com/blog/making-content-from-discoverable-servers-easier-to-discover)
 - Nov 11 - [Solaris 2.5.1 PowerPC on QEMU w/GCC and Mosaic](https://virtuallyfun.com/2026/11/11/solaris-2-5-1-powerpc-on-qemu-w-gcc-and-mosaic/)
 - Nov 11 - [Human Emacs](https://human-emacs.org)
 - Nov 10 - [Filthy Human Hands License v1.0](https://whirling.top/fhh/)
 - Nov 08 - [ram-altman: Monitors your RAM and reports any "quite terrible" unused capacity directly to the CEO of OpenAI](https://github.com/IainKay/ram-altman)
-- Nov 01 - [Thermaltake PC Drive Bay Lighter/Cup Holder (2020)](https://www.youtube.com/watch?v=_ErL39wqO-c)
 <!-- feed end -->
