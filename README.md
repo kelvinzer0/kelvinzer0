@@ -60,9 +60,9 @@ I build things that work — from backend systems and APIs to infrastructure and
 [![Credly](https://img.shields.io/badge/Credly-Certifications-green?logo=credly&logoColor=white&style=flat-square)](https://www.credly.com/users/kelvin-yuli-andrian/badges)
 
 <!-- feed start -->
+- Nov 26 - [UI style guides](https://aresluna.org/ui-style-guides/)
 - Nov 25 - [Sodium-ion batteries approach cost parity with LFP, with 70 GWh covered by supply agreements](https://www.pv-magazine.com/2026/11/06/sodium-ion-batteries-approach-cost-parity-with-lfp-with-70-gwh-covered-by-supply-agreements/)
 - Nov 20 - [Recovering data from a dead website via the Wayback Machine](https://blog.mistys-internet.website/post/2026/11/20/recovering-data-from-a-dead-website-via-the-wayback-machine/)
 - Nov 18 - [Captain ACAB -- CA settlements from law enforcement](https://captainacab.com)
 - Nov 17 - [.:: Phrack Magazine ::. - #73](http://phrack.org/issues/73/1)
-- Nov 14 - [Making Content from Discoverable Servers Easier to Discover](https://discord.com/blog/making-content-from-discoverable-servers-easier-to-discover)
 <!-- feed end -->
